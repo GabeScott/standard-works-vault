@@ -1,7 +1,5 @@
 # Hope through the Atonement of Jesus Christ
 
-Gordon B. Hinckley
-
 By Elder Neal A. Maxwell - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1998 General Conference*
@@ -97,4 +95,3 @@ May this glorious moment one day be ours to claim, through the gospel of hope—
 
 
 
-#Agency #Atonement #Charity #Faith #Holy_Ghost #Hope #Jesus_Christ #Love #Resurrection #Sin #Spirituality

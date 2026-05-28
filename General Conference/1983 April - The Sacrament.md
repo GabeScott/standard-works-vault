@@ -1,7 +1,5 @@
 # The Sacrament
 
-Ezra Taft Benson
-
 By Elder David B. Haight - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1983 General Conference*
@@ -108,4 +106,3 @@ I bear you my humble testimony and witness that this is true, in the name of our
 
 
 
-#Priesthood #Sacrament

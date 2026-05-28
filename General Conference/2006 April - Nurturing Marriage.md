@@ -1,7 +1,5 @@
 # Nurturing Marriage
 
-Robert D. Hales
-
 By Elder Russell M. Nelson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2006 General Conference*
@@ -127,7 +125,3 @@ That each marriage may be so nurtured is my prayer, in the name of Jesus Christ,
 
 [^20]: “Because,” words by Edward Teschemacher (1902).
 
-
-
-
-#Communication #Family #Marriage #Temples

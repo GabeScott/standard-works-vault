@@ -1,7 +1,5 @@
 # Be of Good Cheer and Faithful in Adversity
 
-Gordon B. Hinckley
-
 By Elder Adhemar Damiani - *Of the Seventy*
 
 *Given in the April session of the 2005 General Conference*
@@ -129,7 +127,3 @@ God is our Father. We are His children. He loves us. He desires our happiness he
 
 [^19]: [[Ether 12.4|Ether 12:4]].
 
-
-
-
-#Adversity #Attitude #Faith #Hope #Love #Peace #Repentance

@@ -1,7 +1,5 @@
 # Jesus, the Very Thought of Thee
 
-Gordon B. Hinckley
-
 By Bishop Keith B. McMullin - *Second Counselor in the Presiding Bishopric*
 
 *Given in the April session of the 2004 General Conference*
@@ -154,7 +152,3 @@ I thank God for my testimony of Jesus and pray that all may be likewise blessed,
 
 [^25]: “The Living Christ: The Testimony of the Apostles.”
 
-
-
-
-#Atonement #Faith #Jesus_Christ #Prayer #Scripture_Study #Testimony

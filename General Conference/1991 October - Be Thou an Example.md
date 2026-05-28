@@ -1,7 +1,5 @@
 # Be Thou an Example
 
-Gordon B. Hinckley
-
 By Ruth B. Wright - *Second Counselor in the Primary General Presidency*
 
 *Given in the October session of the 1991 General Conference*
@@ -107,4 +105,3 @@ Each of us can feel our Savior’s love through the righteous example of others.
 
 
 
-#Example #Love #Testimony

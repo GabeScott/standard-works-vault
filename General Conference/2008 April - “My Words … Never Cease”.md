@@ -1,7 +1,5 @@
 # “My Words … Never Cease”
 
-Dieter F. Uchtdorf
-
 By Elder Jeffrey R. Holland - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2008 General Conference*
@@ -81,7 +79,3 @@ In our heartfelt devotion to Jesus of Nazareth as the very Son of God, the Savio
 
 [^17]: [[John 4.14|John 4:14]].
 
-
-
-
-#Holy_Ghost #Prophets #Scriptures

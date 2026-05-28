@@ -1,7 +1,5 @@
 # Finding Forgiveness
 
-Thomas S. Monson
-
 By Elder Richard G. Scott - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1995 General Conference*
@@ -103,7 +101,3 @@ Obtain His forgiveness by repenting *now.* In the name of Jesus Christ, amen.
 
 [^19]: [[Helaman 3.35|Hel. 3:35]].
 
-
-
-
-#Agency #Atonement #Forgiveness #Healing #Jesus_Christ #Mercy #Morality #Obedience #Repentance #Sin #Temptation

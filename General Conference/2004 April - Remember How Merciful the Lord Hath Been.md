@@ -1,7 +1,5 @@
 # Remember How Merciful the Lord Hath Been
 
-Gordon B. Hinckley
-
 By Elder Neal A. Maxwell - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2004 General Conference*
@@ -47,4 +45,3 @@ I testify to you that God has known you individually, brethren, for a long, long
 
 
 
-#Dedication #Fatherhood #Humility #Mercy #Patience #Service

@@ -1,7 +1,5 @@
 # Approaching the Throne of God with Confidence
 
-Thomas S. Monson
-
 By Elder Jörg Klebingat - *Of the Seventy*
 
 *Given in the October session of the 2014 General Conference*
@@ -43,4 +41,3 @@ Yours is the privilege, if you want it, to come to know for yourself, today or s
 
 
 
-#Commitment #Confidence #Forgiveness #God_The_Father #Obedience #Repentance

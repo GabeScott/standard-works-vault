@@ -1,7 +1,5 @@
 # Temples, Houses of the Lord Dotting the Earth
 
-Dallin H. Oaks
-
 By Elder Neil L. Andersen - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2024 General Conference*
@@ -129,7 +127,3 @@ In this day of confusion and commotion, I testify that the temple is His holy ho
 
 [^25]: Elder David B. Haight said:
 
-
-
-
-#Last_Days #Ordinances #Temple_Work #Temples

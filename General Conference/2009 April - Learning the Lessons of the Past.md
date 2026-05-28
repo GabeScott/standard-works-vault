@@ -1,7 +1,5 @@
 # Learning the Lessons of the Past
 
-Thomas S. Monson
-
 By Elder M. Russell Ballard - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2009 General Conference*
@@ -57,4 +55,3 @@ That you may find joy and happiness and peace in the future by learning the grea
 
 
 
-#Education #Testimony #Wisdom

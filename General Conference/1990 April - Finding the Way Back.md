@@ -1,7 +1,5 @@
 # Finding the Way Back
 
-Thomas S. Monson
-
 By Elder Richard G. Scott - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1990 General Conference*
@@ -83,4 +81,3 @@ I wish I could replace your doubt with my certainty, but I can’t give it to yo
 
 
 
-#Plan_Of_Salvation #Repentance

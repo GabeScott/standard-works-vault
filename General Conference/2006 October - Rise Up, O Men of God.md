@@ -1,7 +1,5 @@
 # Rise Up, O Men of God
 
-Gordon B. Hinckley
-
 By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the October session of the 2006 General Conference*
@@ -97,4 +95,3 @@ My brethren, I testify of the truth of these eternal qualities. I testify that i
 
 
 
-#Addiction #Education #Media #Priesthood #Worthiness

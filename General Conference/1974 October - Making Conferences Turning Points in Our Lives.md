@@ -1,7 +1,5 @@
 # Making Conferences Turning Points in Our Lives
 
-Spencer W. Kimball
-
 By Elder J. Thomas Fyans - *Assistant to the Council of the Twelve*
 
 *Given in the October session of the 1974 General Conference*
@@ -51,4 +49,3 @@ That we may select goals from this conference that will bring salvation to us an
 
 
 
-#Spirituality

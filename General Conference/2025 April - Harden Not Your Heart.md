@@ -1,7 +1,5 @@
 # Harden Not Your Heart
 
-Dallin H. Oaks
-
 By Elder Christopher H. Kim - *Of the Seventy*
 
 *Given in the April session of the 2025 General Conference*
@@ -101,7 +99,3 @@ Let us follow the example of our Savior, Jesus Christ, who followed the will of 
 
 [^17]: [[D&C 10.65|Doctrine and Covenants 10:65]].
 
-
-
-
-#Book_Of_Mormon #Holy_Ghost #Humility #Jesus_Christ #Repentance #Trust

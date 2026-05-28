@@ -1,7 +1,5 @@
 # Seeking Eternal Riches
 
-Spencer W. Kimball
-
 By President Spencer W. Kimball - *President of the Church*
 
 *Given in the April session of the 1976 General Conference*
@@ -143,4 +141,3 @@ And that is my testimony to you, my brothers and sisters, as we conclude this ma
 
 
 
-#Family #Prophets #Truth

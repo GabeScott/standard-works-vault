@@ -1,7 +1,5 @@
 # Courage to Proclaim the Truth
 
-Dallin H. Oaks
-
 By Elder Denelson Silva - *Of the Seventy*
 
 *Given in the October session of the 2022 General Conference*
@@ -63,4 +61,3 @@ I bear my testimony of Jesus Christ and that this is His Church. We have a livin
 
 
 
-#Book_Of_Mormon #Courage #Discipleship #Missionary_Work #Truth

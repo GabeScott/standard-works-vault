@@ -1,7 +1,5 @@
 # The Last Words of Moroni
 
-Spencer W. Kimball
-
 By Elder Mark E. Petersen - *Of the Council of the Twelve*
 
 *Given in the October session of the 1978 General Conference*
@@ -16,7 +14,7 @@ He had lived in America some fifteen hundred years ago and was the sole survivor
 
 He had witnessed the destruction of his whole nation, including his own family. In bitter vengeance their enemies had vowed their complete annihilation, and now this threat was accomplished.
 
-Moroni’s father was commander of the armies of this ancient people, known as Nephites. His name was Mormon. The war of which we speak took place here in America some four hundred years after Christ. (See [[Mormon 6.1|Morm. 6]].)
+Moroni’s father was commander of the armies of this ancient people, known as Nephites. His name was Mormon. The war of which we speak took place here in America some four hundred years after Christ. (See [[Mormon 6.1|Morm. 6]][[Mormon 6.2|]][[Mormon 6.3|]][[Mormon 6.4|]][[Mormon 6.5|]][[Mormon 6.6|]][[Mormon 6.7|]][[Mormon 6.8|]][[Mormon 6.9|]][[Mormon 6.10|]][[Mormon 6.11|]][[Mormon 6.12|]][[Mormon 6.13|]][[Mormon 6.14|]][[Mormon 6.15|]][[Mormon 6.16|]][[Mormon 6.17|]][[Mormon 6.18|]][[Mormon 6.19|]][[Mormon 6.20|]][[Mormon 6.21|]][[Mormon 6.22|]].)
 
 As the fighting neared its end, Mormon gathered the remnant of his forces about a hill which they called Cumorah, located in what is now the western part of the state of New York.
 
@@ -135,4 +133,3 @@ The last words of Moroni! Dare we forget them? God grant that we never will, I p
 
 
 
-#Book_Of_Mormon

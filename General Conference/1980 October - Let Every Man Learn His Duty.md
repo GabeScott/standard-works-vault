@@ -1,7 +1,5 @@
 # Let Every Man Learn His Duty
 
-Spencer W. Kimball
-
 By Elder Joseph B. Wirthlin - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1980 General Conference*
@@ -97,4 +95,3 @@ I bear you my deep and sincere testimony that this is the only way to obtain hap
 
 
 
-#Duty

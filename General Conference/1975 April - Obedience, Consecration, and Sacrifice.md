@@ -1,7 +1,5 @@
 # Obedience, Consecration, and Sacrifice
 
-Spencer W. Kimball
-
 By Elder Bruce R. McConkie - *Of the Council of the Twelve*
 
 *Given in the April session of the 1975 General Conference*
@@ -105,4 +103,3 @@ In the name of the Lord Jesus Christ. Amen.
 
 
 
-#Consecration #Obedience #Sacrifice

@@ -1,7 +1,5 @@
 # Selflessness: A Pattern for Happiness
 
-Gordon B. Hinckley
-
 By Elder H. Burke Peterson - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1985 General Conference*
@@ -81,4 +79,3 @@ In the name of Jesus Christ, amen.
 
 
 
-#Generosity

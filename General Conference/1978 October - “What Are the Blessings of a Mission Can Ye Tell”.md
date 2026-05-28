@@ -1,7 +1,5 @@
 # “What Are the Blessings of a Mission? Can Ye Tell?”
 
-Spencer W. Kimball
-
 By Elder Vaughn J. Featherstone - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1978 General Conference*
@@ -71,4 +69,3 @@ God bless that *all*—all—who may be able to serve will make themselves avail
 
 
 
-#Activation #Conversion #Missionary_Work

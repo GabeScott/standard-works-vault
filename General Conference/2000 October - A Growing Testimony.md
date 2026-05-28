@@ -1,7 +1,5 @@
 # A Growing Testimony
 
-Gordon B. Hinckley
-
 By President James E. Faust - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 2000 General Conference*
@@ -73,7 +71,3 @@ My greatest desire is to be true and faithful to the end of my days on this eart
 
 [^6]: In Conference Report, Oct. 1978, [[1978 October - Response to the Call.md|28]]; or *Ensign,* Nov. 1978, 20.
 
-
-
-
-#Adversity #Book_Of_Mormon #Jesus_Christ #Marriage #Missionary_Work #Spirituality #Temples #Testimony #Tithing

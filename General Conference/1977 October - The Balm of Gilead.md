@@ -1,7 +1,5 @@
 # The Balm of Gilead
 
-Spencer W. Kimball
-
 By Elder Boyd K. Packer - *Of the Council of the Twelve*
 
 *Given in the October session of the 1977 General Conference*
@@ -185,4 +183,3 @@ I bear witness of Him who is the Great Comforter and as one authorized to bear t
 
 
 
-#Evil #Forgiveness #Healing

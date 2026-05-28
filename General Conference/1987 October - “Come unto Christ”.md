@@ -1,7 +1,5 @@
 # “Come unto Christ”
 
-Ezra Taft Benson
-
 By President Ezra Taft Benson - *President of the Church*
 
 *Given in the October session of the 1987 General Conference*
@@ -143,4 +141,3 @@ My prayer for each of us is that we too will follow that inspired counsel: “Be
 
 
 
-#Book_Of_Mormon #Jesus_Christ #Testimony

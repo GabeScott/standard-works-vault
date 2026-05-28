@@ -1,7 +1,5 @@
 # Spiritual Security
 
-Ezra Taft Benson
-
 By Elder Charles Didier - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1987 General Conference*
@@ -77,4 +75,3 @@ I testify of the power of personal revelation and of the scriptures in my life. 
 
 
 
-#Safety

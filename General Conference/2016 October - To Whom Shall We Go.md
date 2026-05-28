@@ -1,7 +1,5 @@
 # To Whom Shall We Go?
 
-Jean B. Bingham
-
 By Elder M. Russell Ballard - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2016 General Conference*
@@ -125,7 +123,3 @@ Jesus is our Savior and Redeemer, and His restored gospel will lead us safely ba
 
 [^15]: [[2 Nephi 26.33|2 Nephi 26:33]].
 
-
-
-
-#Faith #Jesus_Christ #Loyalty

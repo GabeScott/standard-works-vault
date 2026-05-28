@@ -1,7 +1,5 @@
 # The Aaronic Priesthood: Return with Honor
 
-Thomas S. Monson
-
 By Bishop Robert D. Hales - *Presiding Bishop*
 
 *Given in the April session of the 1990 General Conference*
@@ -123,4 +121,3 @@ That we will remember who we are and be obedient to the commandments of the Lord
 
 
 
-#Agency #Faith #Honesty #Obedience #Priesthood #Youth

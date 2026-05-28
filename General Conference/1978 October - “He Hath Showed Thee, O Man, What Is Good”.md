@@ -1,7 +1,5 @@
 # “He Hath Showed Thee, O Man, What Is Good”
 
-Spencer W. Kimball
-
 By Elder S. Dilworth Young - *Emeritus Member of the First Quorum of the Seventy*
 
 *Given in the October session of the 1978 General Conference*
@@ -73,4 +71,3 @@ This dual obedience, faithfully kept, is our surest way of bearing testimony tha
 
 
 
-#Commandments #Obedience

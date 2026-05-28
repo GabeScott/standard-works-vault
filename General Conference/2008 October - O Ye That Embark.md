@@ -1,7 +1,5 @@
 # O Ye That Embark
 
-Thomas S. Monson
-
 By President Henry B. Eyring - *First Counselor in the First Presidency*
 
 *Given in the October session of the 2008 General Conference*
@@ -83,7 +81,3 @@ I testify that we are called of God. This is His true Church, and you hold His e
 
 [^5]: “I’ll Go Where You Want Me to Go,” *Hymns,* no. 270.
 
-
-
-
-#Angels #Priesthood #Service

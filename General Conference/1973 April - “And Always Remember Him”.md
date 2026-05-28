@@ -1,7 +1,5 @@
 # “And Always Remember Him”
 
-Harold B. Lee
-
 By Elder Henry D. Taylor - *Assistant to the Council of the Twelve*
 
 *Given in the April session of the 1973 General Conference*
@@ -77,4 +75,3 @@ That we may do this and thus obtain the blessings predicated upon this law, is m
 
 
 
-#Sacrament

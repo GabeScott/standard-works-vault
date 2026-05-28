@@ -1,7 +1,5 @@
 # Choose Eternal Life
 
-Richard G. Scott
-
 By Elder Randall K. Bennett - *Of the Seventy*
 
 *Given in the October session of the 2011 General Conference*
@@ -83,7 +81,3 @@ I bear my witness that because of Heavenly Father’s great plan of happiness, e
 
 [^7]: See [[D&C 58.42|Doctrine and Covenants 58:42]].
 
-
-
-
-#Accountability #Agency

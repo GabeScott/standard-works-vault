@@ -1,7 +1,5 @@
 # Following Jesus: Being a Peacemaker
 
-Russell M. Nelson
-
 By Elder Neil L. Andersen - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2022 General Conference*
@@ -189,7 +187,3 @@ May we love Him and love one another. May we be peacemakers, that we may be call
 
 [^34]: [[John 13.34|John 13:34–35]][[John 13.35|]].
 
-
-
-
-#Agency #Contention #Jesus_Christ #Opposition #Peacemaking

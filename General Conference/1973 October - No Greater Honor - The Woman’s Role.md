@@ -1,7 +1,5 @@
 # No Greater Honor: The Woman’s Role
 
-Harold B. Lee
-
 By President N. Eldon Tanner - *First Counselor in the First Presidency*
 
 *Given in the October session of the 1973 General Conference*
@@ -87,4 +85,3 @@ May this be our privilege and blessing I pray in the name of Jesus Christ. Amen.
 
 
 
-#Family #Home #Women

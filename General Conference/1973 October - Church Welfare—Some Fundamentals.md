@@ -1,7 +1,5 @@
 # Church Welfare—Some Fundamentals
 
-Harold B. Lee
-
 By President Marion G. Romney - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 1973 General Conference*
@@ -145,4 +143,3 @@ God bless us in performing this great service, I pray, in the name of Jesus Chri
 
 
 
-#Charity #Consecration #Jesus_Christ #Welfare #Work

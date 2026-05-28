@@ -1,7 +1,5 @@
 # Shall He Find Faith on the Earth?
 
-Gordon B. Hinckley
-
 By Elder Joseph B. Wirthlin - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2002 General Conference*
@@ -185,7 +183,3 @@ I testify that through our prophet, seer, and revelator, President Gordon B. Hin
 
 [^21]: [[Romans 5.1|Romans 5:1]].
 
-
-
-
-#Faith #Financial_Management #Humility #Work

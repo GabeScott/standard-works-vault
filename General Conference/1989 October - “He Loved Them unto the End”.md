@@ -1,7 +1,5 @@
 # “He Loved Them unto the End”
 
-Ezra Taft Benson
-
 By Elder Jeffrey R. Holland - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1989 General Conference*
@@ -61,4 +59,3 @@ Of that divine sustaining vote for all of us I testify in this, his true and liv
 
 
 
-#Charity #Endurance #Jesus_Christ #Leadership #Love #Sacrifice

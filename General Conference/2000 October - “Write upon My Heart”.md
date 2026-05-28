@@ -1,7 +1,5 @@
 # “Write upon My Heart”
 
-Gordon B. Hinckley
-
 By Elder Henry B. Eyring - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2000 General Conference*
@@ -75,4 +73,3 @@ I testify that our Heavenly Father answers the pleadings of faithful parents to 
 
 
 
-#Adversity #Children #Conscience #Faith #Forgiveness #Gratitude #Holy_Ghost #Jesus_Christ #Parenthood #Prayer #Service #Sin

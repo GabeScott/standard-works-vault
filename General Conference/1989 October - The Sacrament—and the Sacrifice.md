@@ -1,7 +1,5 @@
 # The Sacrament—and the Sacrifice
 
-Ezra Taft Benson
-
 By Elder David B. Haight - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1989 General Conference*
@@ -111,4 +109,3 @@ I testify to all of you that our Heavenly Father does answer our righteous plead
 
 
 
-#Gratitude #Obedience #Sacrament #Sacrifice #Spirituality

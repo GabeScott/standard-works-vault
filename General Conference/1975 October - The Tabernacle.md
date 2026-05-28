@@ -1,7 +1,5 @@
 # The Tabernacle
 
-Spencer W. Kimball
-
 By Elder Howard W. Hunter - *Of the Council of the Twelve*
 
 *Given in the October session of the 1975 General Conference*
@@ -41,4 +39,3 @@ Times may have changed and conditions under which we now live may be different, 
 
 
 
-#Temple_Square

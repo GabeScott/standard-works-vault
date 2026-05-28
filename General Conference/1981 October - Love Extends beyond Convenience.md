@@ -1,7 +1,5 @@
 # Love Extends beyond Convenience
 
-Gordon B. Hinckley
-
 By Bishop J. Richard Clarke - *Second Counselor in the Presiding Bishopric*
 
 *Given in the October session of the 1981 General Conference*
@@ -165,4 +163,3 @@ That we may walk in his steps and become even as he is I pray, in the sacred nam
 
 
 
-#Charity #Family

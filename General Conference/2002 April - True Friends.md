@@ -1,7 +1,5 @@
 # True Friends
 
-Gordon B. Hinckley
-
 By Elder Henry B. Eyring - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2002 General Conference*
@@ -113,7 +111,3 @@ In the sacred name of Jesus Christ, amen.
 
 [^10]: [[Alma 7.11|Alma 7:11–12]][[Alma 7.12|]].
 
-
-
-
-#Example #Friendship #Holy_Ghost #Love

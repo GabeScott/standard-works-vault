@@ -1,7 +1,5 @@
 # To Draw Closer to God
 
-Thomas S. Monson
-
 By Bishop Henry B. Eyring - *First Counselor in the Presiding Bishopric*
 
 *Given in the April session of the 1991 General Conference*
@@ -89,4 +87,3 @@ I pray that we will. In the name of Jesus Christ, amen.
 
 
 
-#Holy_Ghost #Obedience #Prayer #Prophets #Scripture_Study #Spirituality

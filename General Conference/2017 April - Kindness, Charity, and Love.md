@@ -1,7 +1,5 @@
 # Kindness, Charity, and Love
 
-Bonnie H. Cordon
-
 By President Thomas S. Monson - *President of the Church*
 
 *Given in the April session of the 2017 General Conference*
@@ -47,7 +45,3 @@ Brethren, let us examine our lives and determine to follow the Savior’s exampl
 
 [^3]: [[D&C 121.41|Doctrine and Covenants 121:41–42]][[D&C 121.42|]].
 
-
-
-
-#Charity #Jesus_Christ #Kindness #Love

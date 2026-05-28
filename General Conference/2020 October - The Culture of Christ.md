@@ -1,7 +1,5 @@
 # The Culture of Christ
 
-Russell M. Nelson
-
 By Elder William K. Jackson - *Of the Seventy*
 
 *Given in the October session of the 2020 General Conference*
@@ -69,7 +67,3 @@ We can, indeed, all cherish the best of our individual earthly cultures and stil
 
 [^3]: See *[Teachings of Presidents of the Church: George Albert Smith](https://www.churchofjesuschrist.org/study/manual/teachings-george-albert-smith/life-and-ministry?lang=eng)* (2011), xxviii; Gordon B. Hinckley, “[[2002 October - The Marvelous Foundation of Our Faith.md|The Marvelous Foundation of Our Faith]],” *Ensign* or *Liahona,* Nov. 2002, 78–81.
 
-
-
-
-#Church_Membership #Conversion #Jesus_Christ

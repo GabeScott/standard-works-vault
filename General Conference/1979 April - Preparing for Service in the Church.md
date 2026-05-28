@@ -1,7 +1,5 @@
 # Preparing for Service in the Church
 
-Spencer W. Kimball
-
 By President Spencer W. Kimball - *President of the Church*
 
 *Given in the April session of the 1979 General Conference*
@@ -75,4 +73,3 @@ I just wish to say this in conclusion: It is wonderful to meet this large body o
 
 
 
-#Priesthood #Wilford_Woodruff

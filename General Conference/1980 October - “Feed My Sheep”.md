@@ -1,7 +1,5 @@
 # “Feed My Sheep”
 
-Spencer W. Kimball
-
 By Elder Rex C. Reeve, Sr. - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1980 General Conference*
@@ -103,4 +101,3 @@ I pray God to bless us that we might have the missionary spirit come into our he
 
 
 
-#Missionary_Work

@@ -1,7 +1,5 @@
 # Warnings from the Past
 
-Joseph Fielding Smith
-
 By Elder Mark E. Petersen - *Of the Council of the Twelve*
 
 *Given in the April session of the 1971 General Conference*
@@ -139,4 +137,3 @@ God grant that we may awaken to our plight and change our course while there is 
 
 
 
-#Morality #Prophecy

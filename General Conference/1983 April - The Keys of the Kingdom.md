@@ -1,7 +1,5 @@
 # The Keys of the Kingdom
 
-Ezra Taft Benson
-
 By Elder Bruce R. McConkie - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1983 General Conference*
@@ -95,4 +93,3 @@ Now, this testimony I bear for myself and for all the faithful elders of the kin
 
 
 
-#Authority #Church_Leaders #Priesthood

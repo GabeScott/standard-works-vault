@@ -1,7 +1,5 @@
 # Scouters: Lead Them to a Mission
 
-Spencer W. Kimball
-
 By Elder S. Dilworth Young - *Of the First Council of the Seventy*
 
 *Given in the April session of the 1975 General Conference*
@@ -74,4 +72,3 @@ Boys like adventure—a mission is the highest type of adventure. Boys want to b
 
 
 
-#Missionary_Work #Preparation #Scouting

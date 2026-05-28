@@ -1,7 +1,5 @@
 # Fatherhood—Our Eternal Destiny
 
-Cheryl A. Esplin
-
 By Larry M. Gibson - *Recently Released First Counselor in the Young Men General Presidency*
 
 *Given in the April session of the 2015 General Conference*
@@ -123,4 +121,3 @@ I know that Heavenly Father is concerned about each of us individually and has a
 
 
 
-#Fatherhood #Priesthood #Teaching

@@ -1,7 +1,5 @@
 # Heavenly Father Has a Special Plan
 
-Gordon B. Hinckley
-
 By Elder Yoshihiko Kikuchi - *Of the Seventy*
 
 *Given in the April session of the 2000 General Conference*
@@ -161,7 +159,3 @@ He loves you. He knows you. He lives. In 1820 Heavenly Father and His Son, Jesus
 
 [^24]: [[D&C 88.62|D&C 88:62–63]][[D&C 88.63|]].
 
-
-
-
-#Education #Example #Family #God_The_Father #Holy_Ghost #Jesus_Christ #Love #Missionary_Work #Plan_Of_Salvation #Prayer #Spirituality

@@ -1,7 +1,5 @@
 # Magnify Your Calling
 
-Ezra Taft Benson
-
 By President Gordon B. Hinckley - *First Counselor in the First Presidency*
 
 *Given in the April session of the 1989 General Conference*
@@ -110,4 +108,3 @@ My brethren, I bear witness and testimony of these things. I bear testimony of t
 
 
 
-#Obedience #Priesthood

@@ -1,7 +1,5 @@
 # Standing by Our Promises and Covenants
 
-Jeffrey R. Holland
-
 By Elder Ronald A. Rasband - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2019 General Conference*
@@ -99,7 +97,3 @@ Of this I testify and promise in the name of Jesus Christ, amen.
 
 [^18]: [[Mosiah 2.41|Mosiah 2:41]].
 
-
-
-
-#Covenants

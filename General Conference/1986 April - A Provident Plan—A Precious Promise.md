@@ -1,7 +1,5 @@
 # A Provident Plan—A Precious Promise
 
-Ezra Taft Benson
-
 By President Thomas S. Monson - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 1986 General Conference*
@@ -122,4 +120,3 @@ I testify that God lives, that Jesus is the Christ, that we are led by a prophet
 
 
 
-#Love #Welfare

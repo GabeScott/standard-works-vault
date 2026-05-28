@@ -1,7 +1,5 @@
 # Behold Thy Mother
 
-Rosemary M. Wixom
-
 By Elder Jeffrey R. Holland - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2015 General Conference*
@@ -75,7 +73,3 @@ To all of our mothers everywhere, past, present, or future, I say, “Thank you.
 
 [^14]: [[Moroni 7.46|Moroni 7:46]]; see also [[1 Corinthians 13.8|1 Corinthians 13:8]].
 
-
-
-
-#Family #Jesus_Christ #Love #Motherhood

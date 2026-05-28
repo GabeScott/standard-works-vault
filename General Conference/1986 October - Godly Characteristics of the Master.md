@@ -1,7 +1,5 @@
 # Godly Characteristics of the Master
 
-Ezra Taft Benson
-
 By President Ezra Taft Benson - *President of the Church*
 
 *Given in the October session of the 1986 General Conference*
@@ -131,4 +129,3 @@ Now, brethren, I would like to read to you a statement recently approved by the 
 
 
 
-#Jesus_Christ #Priesthood

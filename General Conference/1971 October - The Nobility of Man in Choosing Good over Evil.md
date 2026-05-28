@@ -1,7 +1,5 @@
 # The Nobility of Man in Choosing Good over Evil
 
-Joseph Fielding Smith
-
 By Elder Alvin R. Dyer - *Assistant to the Council of the Twelve*
 
 *Given in the October session of the 1971 General Conference*
@@ -83,4 +81,3 @@ Of this I testify in the name of Jesus Christ. Amen.
 
 
 
-#Agency #Habits #Obedience

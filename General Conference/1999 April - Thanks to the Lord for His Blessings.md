@@ -1,7 +1,5 @@
 # Thanks to the Lord for His Blessings
 
-Gordon B. Hinckley
-
 By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the April session of the 1999 General Conference*
@@ -41,4 +39,3 @@ I repeat what I have said before. I love you. I leave my blessing and my testimo
 
 
 
-#Family #General_Conference #Restoration #Temples

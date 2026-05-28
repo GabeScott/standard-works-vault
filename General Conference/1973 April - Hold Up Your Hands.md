@@ -1,7 +1,5 @@
 # Hold Up Your Hands
 
-Harold B. Lee
-
 By Elder Sterling W. Sill - *Assistant to the Council of the Twelve*
 
 *Given in the April session of the 1973 General Conference*
@@ -77,4 +75,3 @@ If we all hold up clean, honest, industrious hands to God, then his work will pr
 
 
 
-#Covenants #Service

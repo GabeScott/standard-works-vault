@@ -1,7 +1,5 @@
 # “Home First”
 
-Thomas S. Monson
-
 By Elder Rex D. Pinegar - *Of the Presidency of the Seventy*
 
 *Given in the April session of the 1990 General Conference*
@@ -95,4 +93,3 @@ May we make the necessary individual and family course corrections which will pu
 
 
 
-#Adversity #Family

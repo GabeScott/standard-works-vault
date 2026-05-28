@@ -1,7 +1,5 @@
 # True Greatness
 
-Spencer W. Kimball
-
 By Elder Howard W. Hunter - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1982 General Conference*
@@ -55,4 +53,3 @@ That we may never be discouraged in doing those daily tasks which God has ordain
 
 
 
-#Endurance #Heroes #Success

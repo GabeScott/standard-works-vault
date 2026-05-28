@@ -1,7 +1,5 @@
 # It Shows in Your Face
 
-Robert D. Hales
-
 By Elaine S. Dalton - *Second Counselor in the Young Women General Presidency*
 
 *Given in the April session of the 2006 General Conference*
@@ -89,7 +87,3 @@ My call to you is the same as Moroni’s call: “Awake, and arise … , O daugh
 
 [^20]: [[Moroni 10.31|Moroni 10:31]].
 
-
-
-
-#Example #Obedience #Spirituality

@@ -1,7 +1,5 @@
 # Our Rising Generation
 
-Robert D. Hales
-
 By Elder Ronald A. Rasband - *Of the Presidency of the Seventy*
 
 *Given in the April session of the 2006 General Conference*
@@ -67,4 +65,3 @@ I testify that this is the Lord’s true Church, directed by Him through our dea
 
 
 
-#Example #Family #Youth

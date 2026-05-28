@@ -1,7 +1,5 @@
 # Reverence and Morality
 
-Ezra Taft Benson
-
 By President Gordon B. Hinckley - *First Counselor in the First Presidency*
 
 *Given in the April session of the 1987 General Conference*
@@ -127,4 +125,3 @@ God bless you, my beloved brethren—you of the noble birthright, you of the gre
 
 
 
-#Accountability #Health #Morality #Reverence

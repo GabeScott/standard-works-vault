@@ -1,7 +1,5 @@
 # He That Shall Endure unto the End, the Same Shall Be Saved
 
-Henry B. Eyring
-
 By Elder Claudio D. Zivic - *Of the Seventy*
 
 *Given in the April session of the 2018 General Conference*
@@ -107,7 +105,3 @@ Whatever our personal situations may be, I testify that our Heavenly Father is c
 
 [^9]: [[Ether 12.27|Ether 12:27]].
 
-
-
-
-#Covenants #Endurance #Obedience #Sacrament

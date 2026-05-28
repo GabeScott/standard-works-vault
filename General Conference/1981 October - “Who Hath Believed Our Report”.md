@@ -1,7 +1,5 @@
 # “Who Hath Believed Our Report?”
 
-Gordon B. Hinckley
-
 By Elder Bruce R. McConkie - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1981 General Conference*
@@ -137,4 +135,3 @@ In the name of the Lord Jesus Christ, amen.
 
 
 
-#Jesus_Christ #Restoration

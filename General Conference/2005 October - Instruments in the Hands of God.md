@@ -1,7 +1,5 @@
 # Instruments in the Hands of God
 
-Gordon B. Hinckley
-
 By President James E. Faust - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 2005 General Conference*
@@ -93,7 +91,3 @@ Dear sisters, our beloved fellow workers in the kingdom, whose names are recorde
 
 [^17]: See [[1 Timothy 5.14|1 Timothy 5:14]].
 
-
-
-
-#Motherhood #Relief_Society #Service #Single_Members #Womanhood

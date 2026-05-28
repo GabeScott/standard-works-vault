@@ -1,7 +1,5 @@
 # Our Mighty Errand
 
-Spencer W. Kimball
-
 By Elaine A. Cannon - *Young Women General President*
 
 *Given in the October session of the 1979 General Conference*
@@ -69,4 +67,3 @@ It is, after all, the only cause grand enough for woman’s precious energies. I
 
 
 
-#Women

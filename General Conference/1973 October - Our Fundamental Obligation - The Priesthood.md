@@ -1,7 +1,5 @@
 # Our Fundamental Obligation: The Priesthood
 
-Harold B. Lee
-
 By Elder Robert L. Simpson - *Assistant to the Council of the Twelve*
 
 *Given in the October session of the 1973 General Conference*
@@ -87,4 +85,3 @@ I testify with all the sobriety of my heart and soul that we are committed, that
 
 
 
-#Joseph_Smith #Priesthood #Responsibility

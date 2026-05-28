@@ -1,7 +1,5 @@
 # A New Harvest Time
 
-Gordon B. Hinckley
-
 By Elder Russell M. Nelson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1998 General Conference*
@@ -143,7 +141,3 @@ My grandfather’s watch reminds me that our grandparents watch—and wait—for
 
 [^31]: Including smaller temples more readily available to many members.
 
-
-
-
-#Family #Family_History #Priesthood #Temple_Work

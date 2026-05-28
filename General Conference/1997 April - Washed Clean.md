@@ -1,7 +1,5 @@
 # Washed Clean
 
-Gordon B. Hinckley
-
 By President Boyd K. Packer - *Acting President of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1997 General Conference*
@@ -164,7 +162,3 @@ In the name of Jesus Christ, amen.
 
 [^11]: Boyd K. Packer, “Washed Clean.”
 
-
-
-
-#Atonement #Church_Doctrine #Covenants #Faith #Jesus_Christ #Joy #Plan_Of_Salvation #Repentance #Sacrament #Scriptures #Sin

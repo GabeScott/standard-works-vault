@@ -1,7 +1,5 @@
 # He Truly Loves Us
 
-Thomas S. Monson
-
 By Elder Paul E. Koelliker - *Of the Seventy*
 
 *Given in the April session of the 2012 General Conference*
@@ -53,4 +51,3 @@ Because of the heaven-designed pattern of the family, we more fully understand h
 
 
 
-#Family #Love #Missionary_Work

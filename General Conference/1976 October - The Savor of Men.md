@@ -1,7 +1,5 @@
 # The Savor of Men
 
-Spencer W. Kimball
-
 By Elder Mark E. Petersen - *Of the Council of the Twelve*
 
 *Given in the October session of the 1976 General Conference*
@@ -125,4 +123,3 @@ May we have sufficient common sense to trust and obey the Lord our God! It is th
 
 
 
-#Government #Heroes #Obedience

@@ -1,7 +1,5 @@
 # Jesus Christ Is at the Center of the Restoration of the Gospel
 
-Gordon B. Hinckley
-
 By Elder Gary J. Coleman - *Of the Seventy*
 
 *Given in the October session of the 1992 General Conference*
@@ -51,4 +49,3 @@ I am so grateful for my eternal companion and for the second generation of Latte
 
 
 
-#Conversion #Jesus_Christ #Prophets #Testimony

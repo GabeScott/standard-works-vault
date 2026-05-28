@@ -1,7 +1,5 @@
 # Happiness through Service
 
-Ezra Taft Benson
-
 By President Thomas S. Monson - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 1988 General Conference*
@@ -17,4 +15,3 @@ God bless you, my brothers and sisters, in all of your incomings and outgoings. 
 
 
 
-#Responsibility #Testimony

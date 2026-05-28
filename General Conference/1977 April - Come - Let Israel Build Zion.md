@@ -1,7 +1,5 @@
 # Come: Let Israel Build Zion
 
-Spencer W. Kimball
-
 By Elder Bruce R. McConkie - *Of the Council of the Twelve*
 
 *Given in the April session of the 1977 General Conference*
@@ -125,4 +123,3 @@ By the revelations of the Holy Spirit to my soul, I know this work in which we a
 
 
 
-#House_Of_Israel #Restoration #Zion

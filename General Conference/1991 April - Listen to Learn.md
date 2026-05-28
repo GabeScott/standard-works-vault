@@ -1,7 +1,5 @@
 # Listen to Learn
 
-Thomas S. Monson
-
 By Elder Russell M. Nelson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1991 General Conference*
@@ -163,7 +161,3 @@ The wise listen to learn from the Lord. I testify of Him and certify that as we 
 
 [^24]: See [[Mosiah 9.18|Mosiah 9:18]]; [[Mosiah 23.10|23:10]]; [[Alma 9.26|Alma 9:26]]; [[D&C 19.23|D&C 19:23]]; [[D&C 112.10|112:10]]; [[Abraham 2.19|Abr. 2:19]]; JS—H, footnote to 1:71, para. 5.
 
-
-
-
-#Family #Jesus_Christ #Listening #Prayer #Prophets

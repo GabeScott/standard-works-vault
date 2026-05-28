@@ -1,7 +1,5 @@
 # “How Is It with Us?”
 
-Gordon B. Hinckley
-
 By Elder M. Russell Ballard - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2000 General Conference*
@@ -59,4 +57,3 @@ I testify that the Savior lives and He will bless each one of us if we will do a
 
 
 
-#Apostasy #Book_Of_Mormon #Church_Growth #Church_Organization #Commitment #Discipleship #Example #Faith #Family #General_Conference #Holy_Ghost #Hope #Love #Missionary_Work #Plan_Of_Salvation #Premortal_Existence #Preparation #Responsibility #Service #Spirituality #Temples #Testimony

@@ -1,7 +1,5 @@
 # The Rewards, the Blessings, the Promises
 
-Harold B. Lee
-
 By President Spencer W. Kimball - *President of the Council of the Twelve*
 
 *Given in the October session of the 1973 General Conference*
@@ -235,4 +233,3 @@ I bear witness that God has given us conditionally all these and thousands of ot
 
 
 
-#Covenants

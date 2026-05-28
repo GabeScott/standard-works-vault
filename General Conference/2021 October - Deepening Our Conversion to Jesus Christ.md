@@ -1,7 +1,5 @@
 # Deepening Our Conversion to Jesus Christ
 
-Russell M. Nelson
-
 By Elder Arnulfo Valenzuela - *Of the Seventy*
 
 *Given in the October session of the 2021 General Conference*
@@ -14,7 +12,7 @@ Thank you so much, Elder Nielson, for your beautiful message. We needed that.
 
 My dear brothers and sisters, President Russell M. Nelson has taught us recently: “To do anything well requires effort. Becoming a true disciple of Jesus Christ is no exception. Increasing your faith and trust in Him takes effort.” Among the recommendations that he gave us to increase our faith in Jesus Christ is that we become engaged learners, that we immerse ourselves in the scriptures to understand better Christ’s mission and ministry. (See “[[2021 April - Christ Is Risen; Faith in Him Will Move Mountains.md|Christ Is Risen; Faith in Him Will Move Mountains]],” *Liahona*, May 2021, 103.)
 
-We learn in the Book of Mormon that the scriptures were an important part of Lehi’s family—so much so that Nephi and his brothers returned to Jerusalem to obtain the plates of brass (see [[1 Nephi 3.1|1 Nephi 3–4]]).
+We learn in the Book of Mormon that the scriptures were an important part of Lehi’s family—so much so that Nephi and his brothers returned to Jerusalem to obtain the plates of brass (see [[1 Nephi 3.1|1 Nephi 3–4]][[1 Nephi 3.2|]][[1 Nephi 3.3|]][[1 Nephi 3.4|]][[1 Nephi 3.5|]][[1 Nephi 3.6|]][[1 Nephi 3.7|]][[1 Nephi 3.8|]][[1 Nephi 3.9|]][[1 Nephi 3.10|]][[1 Nephi 3.11|]][[1 Nephi 3.12|]][[1 Nephi 3.13|]][[1 Nephi 3.14|]][[1 Nephi 3.15|]][[1 Nephi 3.16|]][[1 Nephi 3.17|]][[1 Nephi 3.18|]][[1 Nephi 3.19|]][[1 Nephi 3.20|]][[1 Nephi 3.21|]][[1 Nephi 3.22|]][[1 Nephi 3.23|]][[1 Nephi 3.24|]][[1 Nephi 3.25|]][[1 Nephi 3.26|]][[1 Nephi 3.27|]][[1 Nephi 3.28|]][[1 Nephi 3.29|]][[1 Nephi 3.30|]][[1 Nephi 3.31|]]).
 
 The scriptures reveal God’s will for us, much as the Liahona did for Nephi and his father. After he broke his bow, Nephi needed to know where he should go to obtain food. His father, Lehi, looked at the Liahona and saw the things that were written. Nephi saw that the spindles functioned according to the faith, diligence, and attention given to them. He also saw writing which was easy to read and which gave them understanding regarding the paths of the Lord. He became aware that the Lord brings about great things through small means. He was obedient regarding the directions given by the Liahona. He went up the mountain and obtained food for his family, who had suffered so much from the lack thereof. (See [[1 Nephi 16.23|1 Nephi 16:23–31]][[1 Nephi 16.24|]][[1 Nephi 16.25|]][[1 Nephi 16.26|]][[1 Nephi 16.27|]][[1 Nephi 16.28|]][[1 Nephi 16.29|]][[1 Nephi 16.30|]][[1 Nephi 16.31|]].)
 
@@ -65,4 +63,3 @@ I testify that Jesus Christ is the beloved Son of our Heavenly Father. I love my
 
 
 
-#Conversion #Discipleship #Holy_Ghost #Jesus_Christ #Scripture_Study #Scriptures

@@ -1,7 +1,5 @@
 # “Thus Saith the Lord”
 
-Joseph Fielding Smith
-
 By Elder Theodore M. Burton - *Assistant to the Council of the Twelve*
 
 *Given in the October session of the 1971 General Conference*
@@ -69,4 +67,3 @@ I bear you this personal witness in the name of Jesus Christ. Amen.
 
 
 
-#Joseph_Smith #Restoration

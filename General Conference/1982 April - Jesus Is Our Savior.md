@@ -1,7 +1,5 @@
 # Jesus Is Our Savior
 
-Spencer W. Kimball
-
 By Elder David B. Haight - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1982 General Conference*
@@ -209,4 +207,3 @@ He is our Redeemer, our Lord, our King. His kingdom is again established on the 
 
 
 
-#Jesus_Christ

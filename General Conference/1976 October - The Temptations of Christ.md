@@ -1,7 +1,5 @@
 # The Temptations of Christ
 
-Spencer W. Kimball
-
 By Elder Howard W. Hunter - *Of the Council of the Twelve*
 
 *Given in the October session of the 1976 General Conference*
@@ -61,4 +59,3 @@ May this be our destiny, I pray in the name of our Lord and Master, Jesus Christ
 
 
 
-#Temptation

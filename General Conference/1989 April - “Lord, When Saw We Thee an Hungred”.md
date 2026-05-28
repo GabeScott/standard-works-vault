@@ -1,7 +1,5 @@
 # “Lord, When Saw We Thee an Hungred?”
 
-Ezra Taft Benson
-
 By Joy F. Evans - *First Counselor in the Relief Society General Presidency*
 
 *Given in the April session of the 1989 General Conference*
@@ -95,4 +93,3 @@ That we may do so, brothers and sisters, each of us, as we have the opportunity,
 
 
 
-#Adversity #Charity #Relief_Society #Service

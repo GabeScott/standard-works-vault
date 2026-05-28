@@ -1,7 +1,5 @@
 # “For a Bishop Must Be Blameless”
 
-Spencer W. Kimball
-
 By Elder L. Tom Perry - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1982 General Conference*
@@ -87,4 +85,3 @@ May God bless us that this may be the beginning of a new and improved relationsh
 
 
 
-#Bishops

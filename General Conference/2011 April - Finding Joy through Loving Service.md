@@ -1,7 +1,5 @@
 # Finding Joy through Loving Service
 
-Thomas S. Monson
-
 By Elder M. Russell Ballard - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2011 General Conference*
@@ -103,4 +101,3 @@ As we approach the Easter season, may we show our love and appreciation for the 
 
 
 
-#Family #Love #Missionary_Work #Service

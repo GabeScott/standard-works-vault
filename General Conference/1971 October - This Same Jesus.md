@@ -1,7 +1,5 @@
 # This Same Jesus
 
-Joseph Fielding Smith
-
 By Elder Hugh B. Brown - *Of the Council of the Twelve*
 
 *Given in the October session of the 1971 General Conference*
@@ -47,4 +45,3 @@ Let us, then, at this closing session, renew that plea and rededicate ourselves 
 
 
 
-#Holy_Land #Jesus_Christ

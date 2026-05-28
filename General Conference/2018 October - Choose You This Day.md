@@ -1,7 +1,5 @@
 # Choose You This Day
 
-Russell M. Nelson
-
 By Elder Dale G. Renlund - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2018 General Conference*
@@ -129,7 +127,3 @@ I conclude with the rest of Jacob’s blessing: “Wherefore, may God raise you 
 
 [^28]: [[2 Nephi 10.25|2 Nephi 10:25]].
 
-
-
-
-#Agency #Jesus_Christ #Plan_Of_Salvation #Repentance

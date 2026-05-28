@@ -1,7 +1,5 @@
 # Responsibilities of Shepherds
 
-Thomas S. Monson
-
 By President James E. Faust - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 1995 General Conference*
@@ -129,7 +127,3 @@ That we may do so, I pray humbly in the name of Jesus Christ, amen.
 
 [^19]: [[John 21.15|John 21:15–17]][[John 21.16|]][[John 21.17|]].
 
-
-
-
-#Quorums_Of_Seventy

@@ -1,7 +1,5 @@
 # To Grow Up unto the Lord
 
-Robert D. Hales
-
 By Anne C. Pingree - *Second Counselor in the Relief Society General Presidency*
 
 *Given in the April session of the 2006 General Conference*
@@ -69,7 +67,3 @@ As that faithful bishop, those dedicated sisters, and I might attest, in this on
 
 [^10]: [[1 Nephi 18.3|1 Nephi 18:3]].
 
-
-
-
-#Faith #Service #Spirituality

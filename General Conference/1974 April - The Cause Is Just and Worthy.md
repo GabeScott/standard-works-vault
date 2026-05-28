@@ -1,7 +1,5 @@
 # The Cause Is Just and Worthy
 
-Spencer W. Kimball
-
 By President Spencer W. Kimball - *President of the Church*
 
 *Given in the April session of the 1974 General Conference*
@@ -77,4 +75,3 @@ And so I leave this testimony with you. In the name of our Lord Jesus Christ. Am
 
 
 
-#Goals #Jesus_Christ #Scriptures

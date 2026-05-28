@@ -1,7 +1,5 @@
 # Receive Truth
 
-Gordon B. Hinckley
-
 By Elder L. Tom Perry - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1997 General Conference*
@@ -77,4 +75,3 @@ Plan on completing the full four years of seminary. You know the institute is av
 
 
 
-#Education #Institute #Jesus_Christ #Scriptures #Seminary

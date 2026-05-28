@@ -1,7 +1,5 @@
 # What Are You Thinking?
 
-Thomas S. Monson
-
 By Elder W. Craig Zwick - *Of the Seventy*
 
 *Given in the April session of the 2014 General Conference*
@@ -69,4 +67,3 @@ I bear humble witness that we can “minister grace” through compassionate lan
 
 
 
-#Communication #Love #Marriage

@@ -1,7 +1,5 @@
 # Jesus Christ, Our Redeemer
 
-Harold B. Lee
-
 By President Marion G. Romney - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 1973 General Conference*
@@ -186,4 +184,3 @@ I further testify that The Church of Jesus Christ of Latter-day Saints—present
 
 
 
-#Blessings #Jesus_Christ

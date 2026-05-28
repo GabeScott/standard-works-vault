@@ -1,7 +1,5 @@
 # We Bear Testimony to the World
 
-Gordon B. Hinckley
-
 By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the October session of the 2006 General Conference*
@@ -35,4 +33,3 @@ Now, brothers and sisters, after the singing of the choir, we shall hear the rem
 
 
 
-#Church_Growth #Missionary_Work #Temples

@@ -1,7 +1,5 @@
 # Abound with Blessings
 
-Ulisses Soares
-
 By Elder Dale G. Renlund - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2019 General Conference*
@@ -109,7 +107,3 @@ I invite you to faithfully activate heavenly power to receive specific blessings
 
 [^29]: [[Proverbs 28.20|Proverbs 28:20]].
 
-
-
-
-#Blessings #Faith #Obedience #Prayer #Spirituality

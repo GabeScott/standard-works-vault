@@ -1,7 +1,5 @@
 # Reverence for Life
 
-Gordon B. Hinckley
-
 By Elder Russell M. Nelson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1985 General Conference*
@@ -121,7 +119,3 @@ Life comes from life. It is a gift from our Heavenly Father. It is eternal, as h
 
 [^13]: *General Handbook of Instructions, 1983,* p. 78.
 
-
-
-
-#Abortion

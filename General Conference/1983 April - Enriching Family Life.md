@@ -1,7 +1,5 @@
 # Enriching Family Life
 
-Ezra Taft Benson
-
 By Elder James E. Faust - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1983 General Conference*
@@ -81,4 +79,3 @@ If we are united and go forward under the leadership of those who have the keys 
 
 
 
-#Family #Parenthood

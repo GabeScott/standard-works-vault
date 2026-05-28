@@ -1,7 +1,5 @@
 # The Value of a Testimony
 
-Gordon B. Hinckley
-
 By Elder Helvécio Martins - *Of the Seventy*
 
 *Given in the October session of the 1990 General Conference*
@@ -59,4 +57,3 @@ This testimony I witness unto you with all my heart, in the name of Jesus Christ
 
 
 
-#Missionary_Work #Testimony

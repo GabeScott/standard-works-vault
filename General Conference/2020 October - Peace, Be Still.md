@@ -1,7 +1,5 @@
 # Peace, Be Still
 
-Russell M. Nelson
-
 By Lisa L. Harkness - *First Counselor in the Primary General Presidency*
 
 *Given in the October session of the 2020 General Conference*
@@ -123,7 +121,3 @@ Sisters and brothers, our current challenging circumstances are not our final, e
 
 [^27]: [[Mark 4.39|Mark 4:39]].
 
-
-
-
-#Adversity #Faith #Obedience #Peace

@@ -1,7 +1,5 @@
 # The Vitality of Love
 
-Joseph Fielding Smith
-
 By President Milton R. Hunter - *Of the First Council of the Seventy*
 
 *Given in the October session of the 1971 General Conference*
@@ -83,4 +81,3 @@ I bear my testimony that the true gospel of our Lord has been restored to earth 
 
 
 
-#Love

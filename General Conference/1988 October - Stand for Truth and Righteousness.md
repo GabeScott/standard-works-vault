@@ -1,7 +1,5 @@
 # Stand for Truth and Righteousness
 
-Ezra Taft Benson
-
 By Ardeth G. Kapp - *Young Women General President*
 
 *Given in the October session of the 1988 General Conference*
@@ -65,4 +63,3 @@ God is our Father, and we are His daughters. Just think of that! He knows us and
 
 
 
-#Commitment #Peer_Pressure #Young_Women

@@ -1,7 +1,5 @@
 # Keeping Covenants and Honoring the Priesthood
 
-Gordon B. Hinckley
-
 By Elder James E. Faust - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1993 General Conference*
@@ -77,4 +75,3 @@ May the Spirit of the Lord be with us to help us magnify this great priesthood a
 
 
 
-#Apostasy #Loyalty #Priesthood

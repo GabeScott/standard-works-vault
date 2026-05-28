@@ -1,7 +1,5 @@
 # Sacred Scriptures—the Foundations of Faith
 
-Henry B. Eyring
-
 By Elder Quentin L. Cook - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2024 General Conference*
@@ -54,7 +52,7 @@ In many significant respects, the Book of Mormon provides fundamental doctrine t
 
 The Bible provides an accurate account of the mortal ministry of Jesus Christ, including His death and Resurrection. The Book of Mormon is more explicit about the Atonement of Jesus Christ,[^14] something prophets explained in detail prior to His death.
 
-The heading to [[Alma 42.1|Alma chapter 42]] reflects the doctrinal significance of the Atonement of Jesus Christ.
+The heading to [[Alma 42.1|Alma chapter 42]][[Alma 42.2|]][[Alma 42.3|]][[Alma 42.4|]][[Alma 42.5|]][[Alma 42.6|]][[Alma 42.7|]][[Alma 42.8|]][[Alma 42.9|]][[Alma 42.10|]][[Alma 42.11|]][[Alma 42.12|]][[Alma 42.13|]][[Alma 42.14|]][[Alma 42.15|]][[Alma 42.16|]][[Alma 42.17|]][[Alma 42.18|]][[Alma 42.19|]][[Alma 42.20|]][[Alma 42.21|]][[Alma 42.22|]][[Alma 42.23|]][[Alma 42.24|]][[Alma 42.25|]][[Alma 42.26|]][[Alma 42.27|]][[Alma 42.28|]][[Alma 42.29|]][[Alma 42.30|]][[Alma 42.31|]] reflects the doctrinal significance of the Atonement of Jesus Christ.
 
 It reads: “Mortality is a probationary time to enable man to repent and serve God—The Fall brought temporal and spiritual death upon all mankind—Redemption comes through repentance—God Himself atones for the sins of the world—Mercy is for those who repent—All others are subject to God’s justice—Mercy comes because of the Atonement—Only the truly penitent are saved.”
 
@@ -119,7 +117,3 @@ I bear my sure witness of the divinity of Jesus Christ and the reality of His At
 
 [^19]: The Church has experienced significant growth and increased attendance in recent years. The percent leaving the Church is less than in the past, but we need every member.
 
-
-
-
-#Book_Of_Mormon #Conversion #Scriptures

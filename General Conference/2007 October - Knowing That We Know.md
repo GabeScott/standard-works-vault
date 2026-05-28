@@ -1,7 +1,5 @@
 # Knowing That We Know
 
-Gordon B. Hinckley
-
 By Elder Douglas L. Callister - *Of the Seventy*
 
 *Given in the October session of the 2007 General Conference*
@@ -67,7 +65,3 @@ I have a testimony. It urges to be expressed. I bear witness that the power of t
 
 [^3]: President Brigham Young’s Office Journal, Oct. 1, 1860, Brigham Young Office Files, Church Archives, The Church of Jesus Christ of Latter-day Saints; punctuation and capitalization modernized.
 
-
-
-
-#Conversion #Testimony

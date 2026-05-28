@@ -1,7 +1,5 @@
 # Sacrifice Still Brings Forth Blessings
 
-Joseph Fielding Smith
-
 By President Hartman Rector, Jr. - *Of the First Council of the Seventy*
 
 *Given in the October session of the 1971 General Conference*
@@ -61,4 +59,3 @@ I am a witness that God lives. I know he lives and that he hears and answers pra
 
 
 
-#Family_Home_Evening #Sacrifice

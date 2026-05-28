@@ -1,7 +1,5 @@
 # Address Given by President Marion G. Romney at Welfare Services Session Saturday, April 5, 1975
 
-Spencer W. Kimball
-
 By President Marion G. Romney - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 1975 General Conference*
@@ -41,4 +39,3 @@ The Lord bless you, brothers and sisters, that you may listen and that you may i
 
 
 
-#Welfare

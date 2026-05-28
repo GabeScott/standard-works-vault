@@ -1,7 +1,5 @@
 # To the Single Adult Sisters of the Church
 
-Ezra Taft Benson
-
 By President Ezra Taft Benson - *President of the Church*
 
 *Given in the October session of the 1988 General Conference*
@@ -97,4 +95,3 @@ God bless and sustain you always. I leave my blessings upon you wonderful sister
 
 
 
-#Commitment #Marriage #Service #Single_Members

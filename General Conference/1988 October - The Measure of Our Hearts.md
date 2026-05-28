@@ -1,7 +1,5 @@
 # The Measure of Our Hearts
 
-Ezra Taft Benson
-
 By Elder Marvin J. Ashton - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1988 General Conference*
@@ -117,4 +115,3 @@ We are led by a living prophet today. President Ezra Taft Benson has a pure, gen
 
 
 
-#Conversion #Honesty #Judging #Love

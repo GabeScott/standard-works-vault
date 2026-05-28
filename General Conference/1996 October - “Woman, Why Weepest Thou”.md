@@ -1,7 +1,5 @@
 # “Woman, Why Weepest Thou?”
 
-Gordon B. Hinckley
-
 By President James E. Faust - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 1996 General Conference*
@@ -129,7 +127,3 @@ I pray, as did King Benjamin, that we shall “be steadfast and immovable, alway
 
 [^24]: [[Mosiah 5.15|Mosiah 5:15]].
 
-
-
-
-#Adversity #Atonement #Evil #Jesus_Christ #Peace #Repentance #Service #Women

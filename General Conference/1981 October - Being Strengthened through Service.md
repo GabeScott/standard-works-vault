@@ -1,7 +1,5 @@
 # Being Strengthened through Service
 
-Gordon B. Hinckley
-
 By Nyle Randall
 
 *Given in the October session of the 1981 General Conference*
@@ -45,4 +43,3 @@ I know that Jesus Christ lives, that this Church contains his complete gospel pl
 
 
 
-#Family #Social_Services

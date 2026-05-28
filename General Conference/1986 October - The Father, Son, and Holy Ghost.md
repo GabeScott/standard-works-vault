@@ -1,7 +1,5 @@
 # The Father, Son, and Holy Ghost
 
-Ezra Taft Benson
-
 By President Gordon B. Hinckley - *First Counselor in the First Presidency*
 
 *Given in the October session of the 1986 General Conference*
@@ -151,4 +149,3 @@ I bear witness of these great, transcendent truths. I do so by the gift and powe
 
 
 
-#God_The_Father #Godhead #Holy_Ghost #Jesus_Christ

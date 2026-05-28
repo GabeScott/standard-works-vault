@@ -1,7 +1,5 @@
 # Jesus Christ: The Caregiver of Our Soul
 
-Russell M. Nelson
-
 By Elder Ulisses Soares - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2021 General Conference*
@@ -113,7 +111,3 @@ My dear brothers and sisters, on this Easter Sunday, I bear my solemn witness th
 
 [^30]: See [[John 11.25|John 11:25]].
 
-
-
-
-#Adversity #Atonement #Jesus_Christ #Repentance

@@ -1,7 +1,5 @@
 # Our Path of Duty
 
-Thomas S. Monson
-
 By Bishop Keith B. McMullin - *Second Counselor in the Presiding Bishopric*
 
 *Given in the April session of the 2010 General Conference*
@@ -131,7 +129,3 @@ I bear my witness that our path of duty is clearly marked by an undivided faith 
 
 [^26]: [[Ecclesiastes 12.13|Ecclesiastes 12:13]]; emphasis added.
 
-
-
-
-#Commandments #Duty #Obedience #Prayer

@@ -1,7 +1,5 @@
 # The Service That Counts
 
-Ezra Taft Benson
-
 By President Thomas S. Monson - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 1989 General Conference*
@@ -159,4 +157,3 @@ That each of us may qualify for this blessing from our Lord is my prayer, in the
 
 
 
-#Charity #Missionary_Work #Self-Esteem #Service

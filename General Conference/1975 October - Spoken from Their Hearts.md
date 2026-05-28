@@ -1,7 +1,5 @@
 # Spoken from Their Hearts
 
-Spencer W. Kimball
-
 By President Spencer W. Kimball - *President of the Church*
 
 *Given in the October session of the 1975 General Conference*
@@ -61,4 +59,3 @@ And God bless all you who are here. May he go with you to your homes as you retu
 
 
 
-#General_Conference

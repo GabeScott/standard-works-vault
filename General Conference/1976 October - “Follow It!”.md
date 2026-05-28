@@ -1,7 +1,5 @@
 # “Follow It!”
 
-Spencer W. Kimball
-
 By Elder Paul H. Dunn - *Of the First Council of the Seventy*
 
 *Given in the October session of the 1976 General Conference*
@@ -85,4 +83,3 @@ God grant us to have that courage and determination as we go forth, edified and 
 
 
 
-#Commitment #Courage #Obedience

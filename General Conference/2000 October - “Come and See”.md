@@ -1,7 +1,5 @@
 # “Come and See”
 
-Gordon B. Hinckley
-
 By Elder Alexander B. Morrison - *Emeritus Member of the Seventy*
 
 *Given in the October session of the 2000 General Conference*
@@ -29,4 +27,3 @@ Of that I testify, as one of His servants, in the name of Jesus Christ, amen.
 
 
 
-#Greed #Healing #Jesus_Christ #Love #Service

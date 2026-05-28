@@ -1,7 +1,5 @@
 # A Time for Preparation
 
-Gordon B. Hinckley
-
 By Elder David B. Haight - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1991 General Conference*
@@ -95,4 +93,3 @@ I am a living witness of our Eternal Heavenly Father’s love and mercy. He live
 
 
 
-#Adversity #Honesty #Morality #Preparation #Priesthood #Temptation

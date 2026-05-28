@@ -1,7 +1,5 @@
 # Be Fruitful, Multiply, and Subdue the Earth
 
-Cheryl A. Esplin
-
 By Elder Joseph W. Sitati - *Of the Seventy*
 
 *Given in the April session of the 2015 General Conference*
@@ -121,7 +119,3 @@ I testify of the living reality of God the Father and of His Beloved Son, our Sa
 
 [^20]: [[Hebrews 2.18|Hebrews 2:18]].
 
-
-
-
-#Children #Divine_Nature #Family #Marriage #Plan_Of_Salvation #Service

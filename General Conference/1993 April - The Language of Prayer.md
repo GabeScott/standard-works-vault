@@ -1,7 +1,5 @@
 # The Language of Prayer
 
-Thomas S. Monson
-
 By Elder Dallin H. Oaks - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1993 General Conference*
@@ -105,4 +103,3 @@ I testify that this is the Church of Jesus Christ, which our Savior has restored
 
 
 
-#Prayer #Respect

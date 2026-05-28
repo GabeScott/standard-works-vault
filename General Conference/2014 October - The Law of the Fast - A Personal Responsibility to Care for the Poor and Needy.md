@@ -1,7 +1,5 @@
 # The Law of the Fast: A Personal Responsibility to Care for the Poor and Needy
 
-Thomas S. Monson
-
 By Bishop Dean M. Davies - *Second Counselor in the Presiding Bishopric*
 
 *Given in the October session of the 2014 General Conference*
@@ -95,7 +93,3 @@ In [[3 Nephi 27.27|chapter 27 of 3 Nephi]], the risen Lord asked, “What manner
 
 [^9]: [[3 Nephi 27.27|3 Nephi 27:27]].
 
-
-
-
-#Fasting #Self-Reliance #Service #Welfare

@@ -1,7 +1,5 @@
 # Reverent and Clean
 
-Ezra Taft Benson
-
 By Elder Dallin H. Oaks - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1986 General Conference*
@@ -131,4 +129,3 @@ I testify of God the Father and his Son, Jesus Christ, and pray that we may be m
 
 
 
-#Profanity

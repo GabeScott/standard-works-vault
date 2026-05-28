@@ -1,7 +1,5 @@
 # Our Heartfelt All
 
-Russell M. Nelson
-
 By Elder Dieter F. Uchtdorf - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2022 General Conference*
@@ -141,7 +139,3 @@ I testify that this is true, as I also testify that Jesus Christ is our Master, 
 
 [^14]: [[D&C 64.33|Doctrine and Covenants 64:33]].
 
-
-
-
-#Balance #Consecration #Discipleship #Sacrifice #Service

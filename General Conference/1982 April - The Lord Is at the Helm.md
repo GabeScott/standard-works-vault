@@ -1,7 +1,5 @@
 # The Lord Is at the Helm
 
-Spencer W. Kimball
-
 By President Spencer W. Kimball - *President of the Church*
 
 *Given in the April session of the 1982 General Conference*
@@ -13,4 +11,3 @@ My beloved brothers and sisters, this is a great experience for me. I have waite
 
 
 
-#Testimony

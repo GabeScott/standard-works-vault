@@ -1,7 +1,5 @@
 # Why Is My Boy Wandering Tonight?
 
-Spencer W. Kimball
-
 By President N. Eldon Tanner - *First Counselor in the First Presidency*
 
 *Given in the October session of the 1974 General Conference*
@@ -138,4 +136,3 @@ I also bear my solemn witness that Jesus Christ has reestablished his church wit
 
 
 
-#Sin #Temptation

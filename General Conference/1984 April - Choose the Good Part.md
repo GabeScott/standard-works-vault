@@ -1,7 +1,5 @@
 # Choose the Good Part
 
-Gordon B. Hinckley
-
 By Elder Marvin J. Ashton - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1984 General Conference*
@@ -85,4 +83,3 @@ May God help us to so do, I pray in the worthy name of Jesus Christ, our Redeeme
 
 
 
-#Single_Members #Women

@@ -1,7 +1,5 @@
 # “Always Remember Him”
 
-Thomas S. Monson
-
 By Elder Henry B. Eyring - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1995 General Conference*
@@ -43,4 +41,3 @@ And if those who hear will take the Savior’s name upon them and always remembe
 
 
 
-#Covenants #Humility #Jesus_Christ

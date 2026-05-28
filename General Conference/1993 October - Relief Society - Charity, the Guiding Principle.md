@@ -1,7 +1,5 @@
 # Relief Society: Charity, the Guiding Principle
 
-Gordon B. Hinckley
-
 By Aileen H. Clyde - *Second Counselor in the Relief Society General Presidency*
 
 *Given in the October session of the 1993 General Conference*
@@ -35,7 +33,3 @@ There is much evidence of the goodness of you women and of the principles that m
 
 [^3]: Ibid.
 
-
-
-
-#Charity #Relief_Society #Service

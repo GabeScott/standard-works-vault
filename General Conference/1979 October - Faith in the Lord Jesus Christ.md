@@ -1,7 +1,5 @@
 # Faith in the Lord Jesus Christ
 
-Spencer W. Kimball
-
 By President Marion G. Romney - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 1979 General Conference*
@@ -141,4 +139,3 @@ These are some of the reasons why “Faith in the Lord Jesus Christ” is the fi
 
 
 
-#Faith #Jesus_Christ #Plan_Of_Salvation

@@ -1,7 +1,5 @@
 # “Strengthen Thy Brethren”
 
-N. Eldon Tanner
-
 By President Paul H. Dunn - *Of the First Council of the Seventy*
 
 *Given in the October session of the 1972 General Conference*
@@ -57,4 +55,3 @@ I testify to the divinity of this church. It is true. I sustain President Lee as
 
 
 
-#Fellowshipping #Teaching

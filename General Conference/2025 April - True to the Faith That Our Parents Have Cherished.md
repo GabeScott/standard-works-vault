@@ -1,7 +1,5 @@
 # True to the Faith That Our Parents Have Cherished
 
-Dallin H. Oaks
-
 By Elder Hans T. Boom - *Of the Seventy*
 
 *Given in the April session of the 2025 General Conference*
@@ -112,7 +110,3 @@ Let us be “true to the faith that our parents have cherished, true to truth fo
 
 [^12]: *Hymns*, no. 254.
 
-
-
-
-#Endurance #Faith #Family #Missionary_Service #Parents #Sacrifice #Testimony

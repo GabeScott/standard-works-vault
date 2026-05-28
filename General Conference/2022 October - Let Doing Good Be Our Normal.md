@@ -1,7 +1,5 @@
 # Let Doing Good Be Our Normal
 
-Dallin H. Oaks
-
 By Elder Rafael E. Pino - *Of the Seventy*
 
 *Given in the October session of the 2022 General Conference*
@@ -67,4 +65,3 @@ My brothers and sisters, I testify of the 15 men whom we sustain as prophets, se
 
 
 
-#Discipleship #Family_History #Prayer #Sacrament #Scripture_Study #Temple_Work #Traditions

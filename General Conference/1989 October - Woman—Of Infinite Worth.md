@@ -1,7 +1,5 @@
 # Woman—Of Infinite Worth
 
-Ezra Taft Benson
-
 By Elder Russell M. Nelson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1989 General Conference*
@@ -101,4 +99,3 @@ God bless us to honor each woman in her divine mission as a woman of infinite wo
 
 
 
-#Example #Women

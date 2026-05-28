@@ -1,7 +1,5 @@
 # Fourth Floor, Last Door
 
-Jean B. Bingham
-
 By President Dieter F. Uchtdorf - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 2016 General Conference*
@@ -179,7 +177,3 @@ I leave you my faith, my conviction, and my certain and unshakable witness that 
 
 [^14]: Deuteronomy 1:11, New International Version (2011).
 
-
-
-
-#Agency #Endurance #Faith #Trust

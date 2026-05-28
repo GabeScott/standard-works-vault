@@ -1,7 +1,5 @@
 # Confidence through Conversion
 
-Gordon B. Hinckley
-
 By Aileen H. Clyde - *Second Counselor in the Relief Society General Presidency*
 
 *Given in the October session of the 1992 General Conference*
@@ -49,4 +47,3 @@ In the name of Jesus Christ, amen.
 
 
 
-#Agency #Conversion #Self-Esteem

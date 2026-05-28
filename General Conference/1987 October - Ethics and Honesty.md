@@ -1,7 +1,5 @@
 # Ethics and Honesty
 
-Ezra Taft Benson
-
 By Elder David B. Haight - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1987 General Conference*
@@ -89,4 +87,3 @@ I so declare, in the name of Jesus Christ, amen.
 
 
 
-#Honesty #Morality

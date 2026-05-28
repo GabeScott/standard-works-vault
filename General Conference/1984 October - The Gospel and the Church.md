@@ -1,7 +1,5 @@
 # The Gospel and the Church
 
-Gordon B. Hinckley
-
 By Elder Ronald E. Poelman - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1984 General Conference*
@@ -67,4 +65,3 @@ In the words of the Nephite leader Pahoran “May \[we\] rejoice in the great pr
 
 
 
-#Church_Growth #Church_Organization #Truth

@@ -1,7 +1,5 @@
 # A Call to Arms
 
-Spencer W. Kimball
-
 By Elder Rex D. Pinegar - *Of the First Council of the Seventy*
 
 *Given in the October session of the 1975 General Conference*
@@ -77,4 +75,3 @@ Yes, “the same spirit animates the whole” today among the members of the Chu
 
 
 
-#Missionary_Work #Sacrifice

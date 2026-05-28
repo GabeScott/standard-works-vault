@@ -1,7 +1,5 @@
 # The Lamanites Must Rise in Majesty and Power
 
-Spencer W. Kimball
-
 By Elder J. Thomas Fyans - *Assistant to the Council of the Twelve*
 
 *Given in the April session of the 1976 General Conference*
@@ -63,4 +61,3 @@ The Lord is our light, and that light comes through the prophets. Of this I test
 
 
 
-#House_Of_Israel #Native_Americans

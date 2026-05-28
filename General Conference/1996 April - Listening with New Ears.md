@@ -1,7 +1,5 @@
 # Listening with New Ears
 
-James E. Faust
-
 By Virginia H. Pearce - *First Counselor in the Young Women General Presidency*
 
 *Given in the April session of the 1996 General Conference*
@@ -49,4 +47,3 @@ I echo her testimony in the name of Jesus Christ, amen.
 
 
 
-#Church_Leaders #Holy_Ghost #Listening #Prophets #Spirituality #Young_Women

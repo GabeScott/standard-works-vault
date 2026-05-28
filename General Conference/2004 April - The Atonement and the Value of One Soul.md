@@ -1,7 +1,5 @@
 # The Atonement and the Value of One Soul
 
-Gordon B. Hinckley
-
 By Elder M. Russell Ballard - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2004 General Conference*
@@ -76,4 +74,3 @@ My dear brothers and sisters, may you give to others and receive for yourselves 
 
 
 
-#Atonement #Individual_Worth #Jesus_Christ #Restoration #Resurrection

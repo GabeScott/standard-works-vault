@@ -1,7 +1,5 @@
 # Sustaining of General Authorities, Area Seventies, and General Officers
 
-Dallin H. Oaks
-
 By Presented by President Dallin H. Oaks - *First Counselor in the First Presidency*
 
 *Given in the April session of the 2024 General Conference*

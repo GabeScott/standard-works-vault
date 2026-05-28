@@ -1,7 +1,5 @@
 # What Think Ye of the Book of Mormon?
 
-Gordon B. Hinckley
-
 By Elder Bruce R. McConkie - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1983 General Conference*
@@ -105,4 +103,3 @@ As it happens, I am one of the many who have come to know, by the revelations of
 
 
 
-#Scriptures

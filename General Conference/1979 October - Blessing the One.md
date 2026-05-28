@@ -1,7 +1,5 @@
 # Blessing the One
 
-Spencer W. Kimball
-
 By Bishop Victor L. Brown - *Presiding Bishop*
 
 *Given in the October session of the 1979 General Conference*
@@ -91,4 +89,3 @@ It is my prayer, my brothers and sisters, that each of us as leaders and parents
 
 
 
-#Native_Americans #Social_Services #Welfare

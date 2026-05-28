@@ -1,7 +1,5 @@
 # The Gospel—A Global Faith
 
-Gordon B. Hinckley
-
 By President Howard W. Hunter - *President of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1991 General Conference*
@@ -51,4 +49,3 @@ Ours is a perennial religion based on eternal, saving truth. Its message of love
 
 
 
-#Faith #Love #Missionary_Work #Unity

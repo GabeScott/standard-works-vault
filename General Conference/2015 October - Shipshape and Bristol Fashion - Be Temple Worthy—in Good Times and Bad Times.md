@@ -1,7 +1,5 @@
 # Shipshape and Bristol Fashion: Be Temple Worthy—in Good Times and Bad Times
 
-Rosemary M. Wixom
-
 By Elder Quentin L. Cook - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2015 General Conference*
@@ -81,7 +79,7 @@ My dear brothers and sisters, life is not easy, nor was it meant to be. It is a 
 
 [^1]: [[2 Nephi 2.13|2 Nephi 2:13]]. This scripture is part of a parallelism in the Book of Mormon. It is interesting that many of the prophets whose writings and sermons are included in the Book of Mormon used this literary approach to emphasize important doctrinal concepts. See, for example, [[2 Nephi 9.25|2 Nephi 9:25]] (Jacob) and [[2 Nephi 11.7|2 Nephi 11:7]] (Nephi).
 
-[^2]: See [[2 Nephi 28.1|2 Nephi 28]].
+[^2]: See [[2 Nephi 28.1|2 Nephi 28]][[2 Nephi 28.2|]][[2 Nephi 28.3|]][[2 Nephi 28.4|]][[2 Nephi 28.5|]][[2 Nephi 28.6|]][[2 Nephi 28.7|]][[2 Nephi 28.8|]][[2 Nephi 28.9|]][[2 Nephi 28.10|]][[2 Nephi 28.11|]][[2 Nephi 28.12|]][[2 Nephi 28.13|]][[2 Nephi 28.14|]][[2 Nephi 28.15|]][[2 Nephi 28.16|]][[2 Nephi 28.17|]][[2 Nephi 28.18|]][[2 Nephi 28.19|]][[2 Nephi 28.20|]][[2 Nephi 28.21|]][[2 Nephi 28.22|]][[2 Nephi 28.23|]][[2 Nephi 28.24|]][[2 Nephi 28.25|]][[2 Nephi 28.26|]][[2 Nephi 28.27|]][[2 Nephi 28.28|]][[2 Nephi 28.29|]][[2 Nephi 28.30|]][[2 Nephi 28.31|]][[2 Nephi 28.32|]].
 
 [^3]: See [[4 Nephi 1.15|4 Nephi 1:15–17]][[4 Nephi 1.16|]][[4 Nephi 1.17|]].
 
@@ -101,7 +99,7 @@ My dear brothers and sisters, life is not easy, nor was it meant to be. It is a 
 
 [^11]: Ross Douthat, “Gay Conservatism and Straight Liberation,” *New York Times,* June 28, 2015, Sunday Review section, 11.
 
-[^12]: See [[2 Nephi 2.1|2 Nephi 2]].
+[^12]: See [[2 Nephi 2.1|2 Nephi 2]][[2 Nephi 2.2|]][[2 Nephi 2.3|]][[2 Nephi 2.4|]][[2 Nephi 2.5|]][[2 Nephi 2.6|]][[2 Nephi 2.7|]][[2 Nephi 2.8|]][[2 Nephi 2.9|]][[2 Nephi 2.10|]][[2 Nephi 2.11|]][[2 Nephi 2.12|]][[2 Nephi 2.13|]][[2 Nephi 2.14|]][[2 Nephi 2.15|]][[2 Nephi 2.16|]][[2 Nephi 2.17|]][[2 Nephi 2.18|]][[2 Nephi 2.19|]][[2 Nephi 2.20|]][[2 Nephi 2.21|]][[2 Nephi 2.22|]][[2 Nephi 2.23|]][[2 Nephi 2.24|]][[2 Nephi 2.25|]][[2 Nephi 2.26|]][[2 Nephi 2.27|]][[2 Nephi 2.28|]][[2 Nephi 2.29|]][[2 Nephi 2.30|]].
 
 [^13]: See [[Matthew 25.1|Matthew 25:1–30]][[Matthew 25.2|]][[Matthew 25.3|]][[Matthew 25.4|]][[Matthew 25.5|]][[Matthew 25.6|]][[Matthew 25.7|]][[Matthew 25.8|]][[Matthew 25.9|]][[Matthew 25.10|]][[Matthew 25.11|]][[Matthew 25.12|]][[Matthew 25.13|]][[Matthew 25.14|]][[Matthew 25.15|]][[Matthew 25.16|]][[Matthew 25.17|]][[Matthew 25.18|]][[Matthew 25.19|]][[Matthew 25.20|]][[Matthew 25.21|]][[Matthew 25.22|]][[Matthew 25.23|]][[Matthew 25.24|]][[Matthew 25.25|]][[Matthew 25.26|]][[Matthew 25.27|]][[Matthew 25.28|]][[Matthew 25.29|]][[Matthew 25.30|]].
 
@@ -137,7 +135,3 @@ My dear brothers and sisters, life is not easy, nor was it meant to be. It is a 
 
 [^29]: [[Galatians 5.22|Galatians 5:22]].
 
-
-
-
-#Agency #Holy_Ghost #Joy #Righteousness #Sabbath #Self-Control #Worthiness

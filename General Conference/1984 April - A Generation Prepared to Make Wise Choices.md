@@ -1,7 +1,5 @@
 # A Generation Prepared to Make Wise Choices
 
-Gordon B. Hinckley
-
 By Elaine A. Cannon - *Recently released as Young Women General President*
 
 *Given in the April session of the 1984 General Conference*
@@ -43,4 +41,3 @@ I love the gospel. I love the Lord. I am grateful that there is not a doubt in m
 
 
 
-#Youth

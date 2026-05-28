@@ -1,7 +1,5 @@
 # Abiding in God and Repairing the Breach
 
-Sharon Eubank
-
 By Neill F. Marriott - *Second Counselor in the Young Women General Presidency*
 
 *Given in the October session of the 2017 General Conference*
@@ -83,7 +81,3 @@ Our Father’s infinite love reaches out to us, to bring us back into His glory 
 
 [^11]: See [[Moroni 7.48|Moroni 7:48]].
 
-
-
-
-#Atonement #God_The_Father #Jesus_Christ #Love

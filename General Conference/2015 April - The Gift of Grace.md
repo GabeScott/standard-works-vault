@@ -1,7 +1,5 @@
 # The Gift of Grace
 
-Cheryl A. Esplin
-
 By President Dieter F. Uchtdorf - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 2015 General Conference*
@@ -227,7 +225,3 @@ I pray that we will see with new eyes and a new heart the eternal significance o
 
 [^38]: [[Romans 6.4|Romans 6:4]].
 
-
-
-
-#Atonement #Grace #Jesus_Christ #Obedience #Repentance #Resurrection

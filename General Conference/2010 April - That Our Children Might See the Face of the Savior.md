@@ -1,7 +1,5 @@
 # That Our Children Might See the Face of the Savior
 
-Thomas S. Monson
-
 By Cheryl C. Lant - *Recently Released Primary General President*
 
 *Given in the April session of the 2010 General Conference*
@@ -55,4 +53,3 @@ Brothers and sisters, I know that God lives. Jesus Christ is His Son, our Savior
 
 
 
-#Children #Family #Jesus_Christ #Teaching

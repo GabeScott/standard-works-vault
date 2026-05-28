@@ -1,7 +1,5 @@
 # Beauty for Ashes: The Healing Path of Forgiveness
 
-Dallin H. Oaks
-
 By Sister Kristin M. Yee - *Second Counselor in the Relief Society General Presidency*
 
 *Given in the October session of the 2022 General Conference*
@@ -145,7 +143,3 @@ Jesus Christ is your personal Messiah, your loving Redeemer and Savior, who know
 
 [^25]: See [[Jacob 6.5|Jacob 6:5]].
 
-
-
-
-#Forgiveness #Healing #Jesus_Christ

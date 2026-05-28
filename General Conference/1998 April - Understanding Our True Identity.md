@@ -1,7 +1,5 @@
 # Understanding Our True Identity
 
-Gordon B. Hinckley
-
 By Carol B. Thomas - *First Counselor in the Young Women General Presidency*
 
 *Given in the April session of the 1998 General Conference*
@@ -37,4 +35,3 @@ Thank you, young women, for all you offer. As you continue to enjoy this worldwi
 
 
 
-#Adversity #Family #Family_History #Jesus_Christ #Temples #Women #Youth

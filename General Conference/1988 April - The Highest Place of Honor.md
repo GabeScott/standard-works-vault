@@ -1,7 +1,5 @@
 # The Highest Place of Honor
 
-Ezra Taft Benson
-
 By Elder James E. Faust - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1988 General Conference*
@@ -65,4 +63,3 @@ In conclusion, I wish to repeat that I do not believe that God’s purposes on e
 
 
 
-#Marriage #Priesthood #Women

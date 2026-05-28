@@ -1,7 +1,5 @@
 # Ask, Seek, Knock
 
-Thomas S. Monson
-
 By Elder Russell M. Nelson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2009 General Conference*
@@ -97,7 +95,3 @@ Every Latter-day Saint may merit personal revelation. The invitation to ask, see
 
 [^17]: See [[D&C 1.30|D&C 1:30]].
 
-
-
-
-#Prayer #Spirituality #Truth

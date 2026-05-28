@@ -1,7 +1,5 @@
 # The Healing Power of Christ
 
-Ezra Taft Benson
-
 By President Gordon B. Hinckley - *First Counselor in the First Presidency*
 
 *Given in the October session of the 1988 General Conference*
@@ -103,4 +101,3 @@ As members of the Church of Jesus Christ, ours is a ministry of healing, with a 
 
 
 
-#Healing #Jesus_Christ #Sin

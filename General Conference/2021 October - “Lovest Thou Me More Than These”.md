@@ -1,7 +1,5 @@
 # “Lovest Thou Me More Than These?”
 
-Russell M. Nelson
-
 By President M. Russell Ballard - *Acting President of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2021 General Conference*
@@ -105,7 +103,3 @@ I testify that Jesus Christ is our beloved Savior. He is the Only Begotten Son o
 
 [^15]: [[John 21.15|John 21:15]].
 
-
-
-
-#Discipleship #Jesus_Christ #Love #Priorities

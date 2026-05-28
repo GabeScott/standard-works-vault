@@ -1,7 +1,5 @@
 # We Can’t Do It Alone
 
-Spencer W. Kimball
-
 By Elder Robert D. Hales - *Assistant to the Council of the Twelve*
 
 *Given in the October session of the 1975 General Conference*
@@ -90,4 +88,3 @@ If only we could live our lives as our prophet, Spencer W. Kimball, does—in th
 
 
 
-#Love #Service

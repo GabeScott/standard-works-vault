@@ -1,7 +1,5 @@
 # Honesty, a Principle of Salvation
 
-Joseph Fielding Smith
-
 By Elder Mark E. Petersen - *Of the Council of the Twelve*
 
 *Given in the October session of the 1971 General Conference*
@@ -150,4 +148,3 @@ Except through the truth there is no salvation in the kingdom of God, and that t
 
 
 
-#Honesty

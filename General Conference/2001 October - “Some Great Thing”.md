@@ -1,7 +1,5 @@
 # “Some Great Thing”
 
-Gordon B. Hinckley
-
 By President James E. Faust - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 2001 General Conference*
@@ -103,7 +101,3 @@ In the parable of talents, the one who had increased his talents was told, “We
 
 [^18]: [[Matthew 25.23|Matt. 25:23]].
 
-
-
-
-#Church_History #Endurance #Faith #Jesus_Christ #Kindness #Love #Obedience #Sacrifice #Work

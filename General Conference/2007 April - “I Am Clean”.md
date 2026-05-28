@@ -1,7 +1,5 @@
 # “I Am Clean”
 
-Thomas S. Monson
-
 By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the April session of the 2007 General Conference*
@@ -87,4 +85,3 @@ God bless you, my beloved brethren. Speak with the Lord in prayer. Cultivate kin
 
 
 
-#Honesty #Morality #Obedience

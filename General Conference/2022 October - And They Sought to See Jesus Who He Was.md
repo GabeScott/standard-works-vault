@@ -1,7 +1,5 @@
 # And They Sought to See Jesus Who He Was
 
-Dallin H. Oaks
-
 By Elder James W. McConkie III - *Of the Seventy*
 
 *Given in the October session of the 2022 General Conference*
@@ -123,13 +121,9 @@ I witness that Jesus lives, that He knows us, and that He has the power to heal,
 
 [^27]: [[D&C 62.3|Doctrine and Covenants 62:3]] explains that the Lord’s servants are “blessed, for the testimony which ye have borne is recorded in heaven … and your sins are forgiven you.”
 
-[^28]: See M. Russell Ballard, “[[2021 April - Hope in Christ.md|Hope in Christ]],” *Liahona*, May 2021, 55–56. President Ballard notes that a “sense of belonging” is important to both physical and spiritual health, and he observes that “every member in our quorums, organizations, wards, and stakes has God-given gifts and talents that can help build up His kingdom now.” See also David F. Holland, *Moroni: A Brief Theological Introduction* (2020), 61–65. Holland discusses [[Moroni 6.1|Moroni 6]] and the ways in which participation and fellowship in a faith community help facilitate the kind of personal spiritual experience that binds us more closely to heaven.
+[^28]: See M. Russell Ballard, “[[2021 April - Hope in Christ.md|Hope in Christ]],” *Liahona*, May 2021, 55–56. President Ballard notes that a “sense of belonging” is important to both physical and spiritual health, and he observes that “every member in our quorums, organizations, wards, and stakes has God-given gifts and talents that can help build up His kingdom now.” See also David F. Holland, *Moroni: A Brief Theological Introduction* (2020), 61–65. Holland discusses [[Moroni 6.1|Moroni 6]][[Moroni 6.2|]][[Moroni 6.3|]][[Moroni 6.4|]][[Moroni 6.5|]][[Moroni 6.6|]][[Moroni 6.7|]][[Moroni 6.8|]][[Moroni 6.9|]] and the ways in which participation and fellowship in a faith community help facilitate the kind of personal spiritual experience that binds us more closely to heaven.
 
 [^29]: See Dieter F. Uchtdorf, “[[2008 October - Lift Where You Stand.md|Lift Where You Stand]],” *Ensign* or *Liahona*, Nov. 2008, 56. Elder Uchtdorf explains that “none of us can or should move the Lord’s work alone. But if we all stand close together in the place the Lord has appointed and lift where we stand, nothing can keep this divine work from moving upward and forward.” See also Chi Hong (Sam) Wong, “[[2014 October - Rescue in Unity.md|Rescue in Unity]],” *Ensign* or *Liahona*, Nov. 2014, 15. Elder Wong references [[Mark 2.1|Mark 2:1–5]][[Mark 2.2|]][[Mark 2.3|]][[Mark 2.4|]][[Mark 2.5|]] and teaches that “in order to assist the Savior, we have to work together in unity and in harmony. Everyone, every position, and every calling is important.”
 
 [^30]: Oscar W. McConkie, in Conference Report, Oct. 1952, 57.
 
-
-
-
-#Discipleship #Faith #Forgiveness #Healing #Jesus_Christ #Scriptures

@@ -1,7 +1,5 @@
 # Our Constant Companion
 
-David A. Bednar
-
 By President Henry B. Eyring - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 2023 General Conference*
@@ -99,7 +97,3 @@ As a witness of Jesus Christ, I know that He lives and He leads His Church. You 
 
 [^10]: [[D&C 121.45|Doctrine and Covenants 121:45–46]][[D&C 121.46|]].
 
-
-
-
-#Holy_Ghost #Inspiration #Ministering #Prayer #Repentance

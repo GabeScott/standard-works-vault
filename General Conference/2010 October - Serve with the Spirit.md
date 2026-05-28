@@ -1,7 +1,5 @@
 # Serve with the Spirit
 
-Thomas S. Monson
-
 By President Henry B. Eyring - *First Counselor in the First Presidency*
 
 *Given in the October session of the 2010 General Conference*
@@ -111,7 +109,3 @@ I testify that we are called of God by prophecy. This is the true Church of Jesu
 
 [^8]: George Q. Cannon, *Deseret Weekly,* Sept. 29, 1894, 449–50.
 
-
-
-
-#Holy_Ghost #Priesthood #Service

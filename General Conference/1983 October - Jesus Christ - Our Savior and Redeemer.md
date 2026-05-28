@@ -1,7 +1,5 @@
 # Jesus Christ: Our Savior and Redeemer
 
-Gordon B. Hinckley
-
 By President Ezra Taft Benson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1983 General Conference*
@@ -169,4 +167,3 @@ God bless us all to believe Him, to accept Him, to worship Him, and to fully tru
 
 
 
-#Faith #Jesus_Christ

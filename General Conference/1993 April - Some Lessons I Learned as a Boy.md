@@ -1,7 +1,5 @@
 # Some Lessons I Learned as a Boy
 
-Thomas S. Monson
-
 By President Gordon B. Hinckley - *First Counselor in the First Presidency*
 
 *Given in the April session of the 1993 General Conference*
@@ -123,4 +121,3 @@ Fathers, be good men, that your wives will speak of you with love and appreciati
 
 
 
-#Obedience #Peer_Pressure #Preparation #Standards #Work

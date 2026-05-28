@@ -1,7 +1,5 @@
 # Are You Taking Your Priesthood for Granted?
 
-Spencer W. Kimball
-
 By President N. Eldon Tanner - *First Counselor in the First Presidency*
 
 *Given in the April session of the 1976 General Conference*
@@ -121,4 +119,3 @@ Let us remember also that every disloyal person weakens our army, and pray that 
 
 
 
-#Covenants #Priesthood #Standards

@@ -1,7 +1,5 @@
 # Encircled in the Arms of His Love
 
-Gordon B. Hinckley
-
 By Elder Neal A. Maxwell - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2002 General Conference*
@@ -83,4 +81,3 @@ In the name of Jesus Christ, amen.
 
 
 
-#Adversity #Discipleship #Holy_Ghost #Jesus_Christ #Spirituality

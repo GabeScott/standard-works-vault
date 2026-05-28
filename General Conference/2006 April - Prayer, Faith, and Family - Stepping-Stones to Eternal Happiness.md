@@ -1,7 +1,5 @@
 # Prayer, Faith, and Family: Stepping-Stones to Eternal Happiness
 
-Robert D. Hales
-
 By Elder H. Bruce Stucki - *Of the Seventy*
 
 *Given in the April session of the 2006 General Conference*
@@ -113,7 +111,3 @@ I sincerely pray that we will use the stepping-stones of prayer, faith, and our 
 
 [^10]: *Teachings of Gordon B. Hinckley,* 205.
 
-
-
-
-#Faith #Family #Prayer

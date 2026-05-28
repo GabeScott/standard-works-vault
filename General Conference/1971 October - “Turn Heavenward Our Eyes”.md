@@ -1,7 +1,5 @@
 # “Turn Heavenward Our Eyes”
 
-Joseph Fielding Smith
-
 By Bishop John H. Vandenberg - *Presiding Bishop*
 
 *Given in the October session of the 1971 General Conference*
@@ -151,4 +149,3 @@ May we guide our lives and those of our children in this direction, I pray humbl
 
 
 
-#Creation #Faith #Joy #Plan_Of_Salvation

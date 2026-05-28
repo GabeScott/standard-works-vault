@@ -1,7 +1,5 @@
 # What Latter-day Saint Women Do Best: Stand Strong and Immovable
 
-Gordon B. Hinckley
-
 By Julie B. Beck - *Relief Society General President*
 
 *Given in the October session of the 2007 General Conference*
@@ -127,7 +125,3 @@ My dear sisters, our prophet, whom I sustain with all my heart, has said that th
 
 [^10]: *Worldwide Leadership Training Meeting,* Jan. 10, 2004, 21.
 
-
-
-
-#Faith #Family #Motherhood #Relief_Society #Service

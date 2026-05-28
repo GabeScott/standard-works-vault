@@ -1,7 +1,5 @@
 # The Healing Power of Forgiveness
 
-Thomas S. Monson
-
 By President James E. Faust - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 2007 General Conference*
@@ -109,7 +107,3 @@ Let us remember that we need to forgive to be forgiven. In the words of one of m
 
 [^21]: [[D&C 64.10|D&C 64:10]].
 
-
-
-
-#Faith #Forgiveness #Healing #Humility

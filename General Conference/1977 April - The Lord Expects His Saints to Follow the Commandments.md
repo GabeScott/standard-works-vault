@@ -1,7 +1,5 @@
 # The Lord Expects His Saints to Follow the Commandments
 
-Spencer W. Kimball
-
 By President Spencer W. Kimball - *President of the Church*
 
 *Given in the April session of the 1977 General Conference*
@@ -179,4 +177,3 @@ Brothers and sisters, this is the work of the Lord. We deal with many things whi
 
 
 
-#Obedience #Sabbath

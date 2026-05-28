@@ -1,7 +1,5 @@
 # Embrace the Lord’s Gift of Repentance
 
-Henry B. Eyring
-
 By Elder Jorge M. Alvarado - *Of the Seventy*
 
 *Given in the October session of the 2024 General Conference*
@@ -133,7 +131,3 @@ My friends, I am a witness of the glorious Restoration of the gospel through the
 
 [^22]: *Hymns*, no. 193.
 
-
-
-
-#Repentance

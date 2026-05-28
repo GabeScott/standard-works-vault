@@ -1,7 +1,5 @@
 # The Man Who Communed with Jehovah
 
-Henry B. Eyring
-
 By Elder Kyle S. McKay - *Of the Seventy*
 
 *Given in the October session of the 2024 General Conference*
@@ -139,7 +137,3 @@ Joseph Smith is now part of that heavenly priesthood of which he spoke. As he pr
 
 [^29]: *Hymns*, no. 27.
 
-
-
-
-#First_Vision #Joseph_Smith #Repentance #Restoration

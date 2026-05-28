@@ -1,7 +1,5 @@
 # The Simplicity of Gospel Truths
 
-Gordon B. Hinckley
-
 By Elder Robert L. Simpson - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1984 General Conference*
@@ -91,4 +89,3 @@ Nephi, in foretelling the ministry of the Apostle John, described his teachings 
 
 
 
-#Truth

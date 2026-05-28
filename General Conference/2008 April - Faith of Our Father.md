@@ -1,7 +1,5 @@
 # Faith of Our Father
 
-Dieter F. Uchtdorf
-
 By President Dieter F. Uchtdorf - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 2008 General Conference*
@@ -139,7 +137,3 @@ I bear solemn witness of the reality of God the Father; His Son, Jesus Christ; t
 
 [^8]: See [[Matthew 9.22|Matthew 9:22]].
 
-
-
-
-#Church_History #Faith #Family_History #God_The_Father

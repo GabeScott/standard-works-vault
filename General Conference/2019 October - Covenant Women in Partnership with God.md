@@ -1,7 +1,5 @@
 # Covenant Women in Partnership with God
 
-Jeffrey R. Holland
-
 By President Henry B. Eyring - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 2019 General Conference*
@@ -65,7 +63,3 @@ I testify that God the Father lives and He loves you. He will answer your prayer
 
 [^5]: Russell M. Nelson, “[[1989 October - Woman—Of Infinite Worth.md|Woman—Of Infinite Worth]],” 22.
 
-
-
-
-#Covenants #Motherhood #Service #Women

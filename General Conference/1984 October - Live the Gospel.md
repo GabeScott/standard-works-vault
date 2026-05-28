@@ -1,7 +1,5 @@
 # Live the Gospel
 
-Gordon B. Hinckley
-
 By President Gordon B. Hinckley - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 1984 General Conference*
@@ -49,4 +47,3 @@ I leave with you my love and blessing and that of each of my Brethren in the nam
 
 
 
-#Leadership

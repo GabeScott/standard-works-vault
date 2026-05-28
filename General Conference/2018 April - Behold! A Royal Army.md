@@ -1,7 +1,5 @@
 # Behold! A Royal Army
 
-Henry B. Eyring
-
 By Elder Ronald A. Rasband - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2018 General Conference*
@@ -115,13 +113,9 @@ Today we all stand as witnesses of the Lord revealing His will through His proph
 
 [^4]: In James R. Clark, comp., *Messages of the First Presidency of The Church of Jesus Christ of Latter-day Saints* (1965), 2:354.
 
-[^5]: See [[Alma 13.1|Alma 13]].
+[^5]: See [[Alma 13.1|Alma 13]][[Alma 13.2|]][[Alma 13.3|]][[Alma 13.4|]][[Alma 13.5|]][[Alma 13.6|]][[Alma 13.7|]][[Alma 13.8|]][[Alma 13.9|]][[Alma 13.10|]][[Alma 13.11|]][[Alma 13.12|]][[Alma 13.13|]][[Alma 13.14|]][[Alma 13.15|]][[Alma 13.16|]][[Alma 13.17|]][[Alma 13.18|]][[Alma 13.19|]][[Alma 13.20|]][[Alma 13.21|]][[Alma 13.22|]][[Alma 13.23|]][[Alma 13.24|]][[Alma 13.25|]][[Alma 13.26|]][[Alma 13.27|]][[Alma 13.28|]][[Alma 13.29|]][[Alma 13.30|]][[Alma 13.31|]].
 
 [^6]: [[D&C 88.72|Doctrine and Covenants 88:72–73]][[D&C 88.73|]].
 
 [^7]: “Behold! A Royal Army,” *Hymns,* no. 251.
 
-
-
-
-#Church_Organization #Ministering #Priesthood_Quorums #Unity

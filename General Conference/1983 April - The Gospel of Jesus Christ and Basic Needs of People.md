@@ -1,7 +1,5 @@
 # The Gospel of Jesus Christ and Basic Needs of People
 
-Ezra Taft Benson
-
 By Elder James M. Paramore - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1983 General Conference*
@@ -45,4 +43,3 @@ And members, may we reach out with all the energy and love we have, first to hel
 
 
 
-#Brotherhood #Mission_Of_The_Church #Service

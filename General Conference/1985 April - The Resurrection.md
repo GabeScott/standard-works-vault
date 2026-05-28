@@ -1,7 +1,5 @@
 # The Resurrection
 
-Gordon B. Hinckley
-
 By Elder James E. Faust - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1985 General Conference*
@@ -111,4 +109,3 @@ To all we say, “May Christ lift thee up, and may … the hope of his glory and
 
 
 
-#Discipleship #Jesus_Christ #Resurrection

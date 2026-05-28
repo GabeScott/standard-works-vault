@@ -1,7 +1,5 @@
 # What Manner of Men and Women Ought Ye to Be?
 
-Thomas S. Monson
-
 By Elder Lynn G. Robbins - *Of the Seventy*
 
 *Given in the April session of the 2011 General Conference*
@@ -81,7 +79,3 @@ My remarks today have been addressed primarily to parents, but the principles ap
 
 [^3]: See *Preach My Gospel: A Guide to Missionary Service* (2004), 115.
 
-
-
-
-#Children #Jesus_Christ #Obedience #Parenthood #Responsibility

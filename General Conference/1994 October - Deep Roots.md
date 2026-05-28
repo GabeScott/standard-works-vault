@@ -1,7 +1,5 @@
 # Deep Roots
 
-Gordon B. Hinckley
-
 By Elder Joseph B. Wirthlin - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1994 General Conference*
@@ -123,7 +121,3 @@ I bear testimony that we can find peace, security, and joy and happiness in the 
 
 [^19]: [[Ether 2.7|Ether 2:7, 9]][[Ether 2.9|]].
 
-
-
-
-#Adversity #Holy_Ghost #Jesus_Christ #Missionary_Work #Morality #Resurrection #Satan #Self-Control #Spirituality #Word_Of_Wisdom

@@ -1,7 +1,5 @@
 # God Helps the Faithful Priesthood Holder
 
-Gordon B. Hinckley
-
 By President Henry B. Eyring - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 2007 General Conference*
@@ -77,4 +75,3 @@ I testify that I know that you and I hold the priesthood of God and that He will
 
 
 
-#Holy_Ghost #Leadership #Prayer #Priesthood #Testimony #Work

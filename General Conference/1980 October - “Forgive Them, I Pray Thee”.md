@@ -1,7 +1,5 @@
 # “Forgive Them, I Pray Thee”
 
-Spencer W. Kimball
-
 By Elder Vaughn J. Featherstone - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1980 General Conference*
@@ -105,4 +103,3 @@ I know that he, our Savior, loves us and that he is our Redeemer, our Atoner, an
 
 
 
-#Forgiveness #Repentance

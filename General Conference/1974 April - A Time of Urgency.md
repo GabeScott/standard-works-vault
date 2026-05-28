@@ -1,7 +1,5 @@
 # A Time of Urgency
 
-Spencer W. Kimball
-
 By Elder Marvin J. Ashton - *Of the Council of the Twelve*
 
 *Given in the April session of the 1974 General Conference*
@@ -81,4 +79,3 @@ God lives. Jesus is the Christ. He is our Redeemer, and this is His kingdom here
 
 
 
-#Jesus_Christ #Preparation

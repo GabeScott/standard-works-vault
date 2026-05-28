@@ -1,7 +1,5 @@
 # Guided Safely Home
 
-Thomas S. Monson
-
 By President Thomas S. Monson - *President of the Church*
 
 *Given in the October session of the 2014 General Conference*
@@ -73,7 +71,3 @@ With the rudder of faith guiding our passage, brethren, we too will find our way
 
 [^8]: [[Jacob 7.5|Jacob 7:5]].
 
-
-
-
-#Example #Priesthood #Worthiness

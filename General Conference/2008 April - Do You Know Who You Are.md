@@ -1,7 +1,5 @@
 # Do You Know Who You Are?
 
-Dieter F. Uchtdorf
-
 By Dean R. Burgess - *First Counselor in the Young Men General Presidency*
 
 *Given in the April session of the 2008 General Conference*
@@ -71,4 +69,3 @@ May we all be able to know and understand who we really are. May the Spirit we f
 
 
 
-#Covenants #Divine_Nature #Priesthood

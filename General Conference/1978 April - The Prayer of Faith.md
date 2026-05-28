@@ -1,7 +1,5 @@
 # The Prayer of Faith
 
-Spencer W. Kimball
-
 By Elder Thomas S. Monson - *Of the Council of the Twelve*
 
 *Given in the April session of the 1978 General Conference*
@@ -108,4 +106,3 @@ He has taught us how to pray. That each of us will learn and live this lesson is
 
 
 
-#Prayer

@@ -1,7 +1,5 @@
 # Greed, Selfishness, and Overindulgence
 
-Gordon B. Hinckley
-
 By Elder Joe J. Christensen - *Of the Presidency of the Seventy*
 
 *Given in the April session of the 1999 General Conference*
@@ -139,7 +137,3 @@ I testify that Jesus is the Christ, this is His Church led by living prophets, a
 
 [^15]: [[John 3.16|John 3:16]].
 
-
-
-
-#Children #Covetousness #Faith #Financial_Management #Generosity #Greed #Jesus_Christ #Love #Parenthood #Self-Reliance #Spirituality #Success #Wealth

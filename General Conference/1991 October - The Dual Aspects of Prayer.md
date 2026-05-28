@@ -1,7 +1,5 @@
 # The Dual Aspects of Prayer
 
-Gordon B. Hinckley
-
 By Elder Francis M. Gibbons - *Released Member of the Seventy*
 
 *Given in the October session of the 1991 General Conference*
@@ -41,4 +39,3 @@ How much better it is to follow the admonitions of the Savior, to speak with kin
 
 
 
-#Adversity #Love #Prayer #Spirituality

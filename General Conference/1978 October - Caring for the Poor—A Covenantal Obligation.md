@@ -1,7 +1,5 @@
 # Caring for the Poor—A Covenantal Obligation
 
-Spencer W. Kimball
-
 By President Marion G. Romney - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 1978 General Conference*
@@ -157,4 +155,3 @@ That each of us will fully discharge our obligation under that covenant, I humbl
 
 
 
-#Covenants #Welfare

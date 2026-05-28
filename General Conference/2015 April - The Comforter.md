@@ -1,7 +1,5 @@
 # The Comforter
 
-Cheryl A. Esplin
-
 By President Henry B. Eyring - *First Counselor in the First Presidency*
 
 *Given in the April session of the 2015 General Conference*
@@ -149,7 +147,3 @@ As His witness, I extend gratitude for what you do so well to help the living Lo
 
 [^12]: See [[D&C 81.5|Doctrine and Covenants 81:5]].
 
-
-
-
-#Adversity #Atonement #Baptism #Compassion #Covenants #Holy_Ghost #Jesus_Christ

@@ -1,7 +1,5 @@
 # These Are Your Days
 
-Gordon B. Hinckley
-
 By Jayne B. Malan - *First Counselor in the Young Women General Presidency*
 
 *Given in the October session of the 1991 General Conference*
@@ -67,4 +65,3 @@ We honor you, we pray for you, we love you. May God bless you. I say this in the
 
 
 
-#Faith #Obedience #Self-Esteem #Testimony

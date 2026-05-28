@@ -1,7 +1,5 @@
 # The Blessing of Church Interviews
 
-Spencer W. Kimball
-
 By President N. Eldon Tanner - *First Counselor in the First Presidency*
 
 *Given in the October session of the 1978 General Conference*
@@ -145,4 +143,3 @@ Now, brethren, we are about to hear from our beloved president, Spencer W. Kimba
 
 
 
-#Church_Leaders #Morality #Worthiness

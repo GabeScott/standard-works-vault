@@ -1,7 +1,5 @@
 # Receiving a Testimony of the Restored Gospel of Jesus Christ
 
-Gordon B. Hinckley
-
 By Elder Robert D. Hales - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2003 General Conference*
@@ -151,7 +149,3 @@ Jesus Christ lives. This is His work. Of this I bear my special witness, in the 
 
 [^30]: [[1 Nephi 15.11|1 Nephi 15:11]].
 
-
-
-
-#Conversion #Holy_Ghost #Joseph_Smith #Prayer #Restoration #Scripture_Study #Testimony #Worthiness

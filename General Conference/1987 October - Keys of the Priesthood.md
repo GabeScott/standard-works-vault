@@ -1,7 +1,5 @@
 # Keys of the Priesthood
 
-Ezra Taft Benson
-
 By Elder Russell M. Nelson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1987 General Conference*
@@ -118,7 +116,3 @@ May we be true to the trust he has given to us who bear the holy priesthood and 
 
 [^1]: Lyrics by Russell M. Nelson, copyright 1987; “Tydi A Roddaist,” by Arwell Hughes, copyright 1938. Gratitude is expressed to Mr. Hughes for permission to use his music with these words, and to Barry D. R. Whittaker, president of the Cardiff Wales Stake, for his assistance.
 
-
-
-
-#Priesthood #Responsibility

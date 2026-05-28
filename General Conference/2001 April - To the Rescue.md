@@ -1,7 +1,5 @@
 # To the Rescue
 
-Gordon B. Hinckley
-
 By President Thomas S. Monson - *First Counselor in the First Presidency*
 
 *Given in the April session of the 2001 General Conference*
@@ -117,7 +115,3 @@ In the name of Jesus Christ, amen.
 
 [^12]: [[Matthew 25.40|Matt. 25:40]].
 
-
-
-
-#Duty #Friendship #Hope #Jesus_Christ #Love #Neighbors #Peace #Priesthood #Service #Work

@@ -1,7 +1,5 @@
 # To the Women of the Church
 
-Gordon B. Hinckley
-
 By President Howard W. Hunter - *President of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1992 General Conference*
@@ -70,4 +68,3 @@ May the Lord bless you as you continue to serve him by serving others and as you
 
 
 
-#Jesus_Christ #Service #Women

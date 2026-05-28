@@ -1,7 +1,5 @@
 # Claim the Blessings of Your Covenants
 
-Thomas S. Monson
-
 By Linda S. Reeves - *Second Counselor in the Relief Society General Presidency*
 
 *Given in the October session of the 2013 General Conference*
@@ -73,7 +71,3 @@ I testify that Jesus Christ is our Savior and Redeemer. Because of His atoning s
 
 [^6]: See Russell M. Nelson, [“Divine Love,”](https://www.churchofjesuschrist.org/study/ensign/2003/02/divine-love?lang=eng) *Ensign,* Feb. 2003, 20–25; *Liahona,* Feb. 2003, 12–17.
 
-
-
-
-#Adversity #Covenants #Repentance #Sacrament

@@ -1,7 +1,5 @@
 # The Strength to Endure
 
-Thomas S. Monson
-
 By Elder Richard J. Maynes - *Of the Presidency of the Seventy*
 
 *Given in the October session of the 2013 General Conference*
@@ -28,7 +26,7 @@ Heavenly Father also understood that due to our mortality we would not always ma
 
 Endurance is an important principle found within the doctrine of Jesus Christ. It is important because the quality of our eternal future is proportional to our ability to endure in righteousness.
 
-In [[2 Nephi 31.1|2 Nephi 31]] the prophet Nephi teaches us that after we receive the same saving ordinance of baptism that Jesus Christ received and then receive the gift of the Holy Ghost, we must “press forward, feasting upon the word of Christ, and endure to the end, \[and then\] behold, thus saith the Father: \[We\] shall have eternal life.”[^3]
+In [[2 Nephi 31.1|2 Nephi 31]][[2 Nephi 31.2|]][[2 Nephi 31.3|]][[2 Nephi 31.4|]][[2 Nephi 31.5|]][[2 Nephi 31.6|]][[2 Nephi 31.7|]][[2 Nephi 31.8|]][[2 Nephi 31.9|]][[2 Nephi 31.10|]][[2 Nephi 31.11|]][[2 Nephi 31.12|]][[2 Nephi 31.13|]][[2 Nephi 31.14|]][[2 Nephi 31.15|]][[2 Nephi 31.16|]][[2 Nephi 31.17|]][[2 Nephi 31.18|]][[2 Nephi 31.19|]][[2 Nephi 31.20|]][[2 Nephi 31.21|]] the prophet Nephi teaches us that after we receive the same saving ordinance of baptism that Jesus Christ received and then receive the gift of the Holy Ghost, we must “press forward, feasting upon the word of Christ, and endure to the end, \[and then\] behold, thus saith the Father: \[We\] shall have eternal life.”[^3]
 
 Therefore, in order to receive the greatest of all the blessings of our Heavenly Father, which is eternal life, we must complete the appropriate ordinance work and then continue to keep the associated covenants. In other words, we must successfully endure.
 
@@ -83,7 +81,3 @@ I bear you my testimony and my witness of the reality of a loving Heavenly Fathe
 
 [^6]: [[2 Timothy 4.6|2 Timothy 4:6–8]][[2 Timothy 4.7|]][[2 Timothy 4.8|]].
 
-
-
-
-#Adversity #Atonement #Endurance

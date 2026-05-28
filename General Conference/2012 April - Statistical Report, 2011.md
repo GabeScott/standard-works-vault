@@ -1,7 +1,5 @@
 # Statistical Report, 2011
 
-Thomas S. Monson
-
 By Presented by Brook P. Hales - *Secretary to the First Presidency*
 
 *Given in the April session of the 2012 General Conference*

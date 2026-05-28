@@ -1,7 +1,5 @@
 # Our Campfire of Faith
 
-Russell M. Nelson
-
 By Elder Gerrit W. Gong - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2018 General Conference*
@@ -147,7 +145,3 @@ May His blessings and enduring joy be ours as we warm our hearts and hopes and c
 
 [^25]: [[2 Nephi 31.20|2 Nephi 31:20]].
 
-
-
-
-#Creativity #Faith #Grace #Jesus_Christ #Joy #Love #Ministering #Service

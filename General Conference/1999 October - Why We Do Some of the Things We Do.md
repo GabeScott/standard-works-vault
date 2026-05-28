@@ -1,7 +1,5 @@
 # Why We Do Some of the Things We Do
 
-Gordon B. Hinckley
-
 By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the October session of the 1999 General Conference*
@@ -95,4 +93,3 @@ Brethren, what a tremendous organization we are all a part of. We shall go forwa
 
 
 
-#Church_Organization #Communication #Education #Generosity #Government #Homosexuality #Marriage #Media #Morality #Priesthood #Sacrifice #Service #Word_Of_Wisdom #Work

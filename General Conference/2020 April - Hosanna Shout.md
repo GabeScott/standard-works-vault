@@ -1,7 +1,5 @@
 # Hosanna Shout
 
-Russell M. Nelson
-
 By Presented by President Russell M. Nelson - *President of The Church of Jesus Christ of Latter-day Saints*
 
 *Given in the April session of the 2020 General Conference*
@@ -29,7 +27,3 @@ Upon a signal from the conductor, please join in singing â€œThe Spirit of God.â€
 
 [^1]: *Hymns,* no. 2.
 
-
-
-
-#First_Vision #Restoration

@@ -1,7 +1,5 @@
 # “Neither Boast of Faith Nor of Mighty Works”
 
-Thomas S. Monson
-
 By Elder Marvin J. Ashton - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1990 General Conference*
@@ -101,4 +99,3 @@ I leave you my special witness of the truthfulness of this great work. All of us
 
 
 
-#Gratitude #Humility

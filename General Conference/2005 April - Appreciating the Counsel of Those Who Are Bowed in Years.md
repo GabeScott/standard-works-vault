@@ -1,7 +1,5 @@
 # Appreciating the Counsel of Those Who Are Bowed in Years
 
-Gordon B. Hinckley
-
 By Elder Stephen B. Oveson - *Of the Seventy*
 
 *Given in the April session of the 2005 General Conference*
@@ -73,4 +71,3 @@ I wish to add my own humble affirmation of the truthfulness of the aforementione
 
 
 
-#Elderly #Prophets #Testimony #Wisdom

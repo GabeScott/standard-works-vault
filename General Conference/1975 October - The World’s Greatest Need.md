@@ -1,7 +1,5 @@
 # The World’s Greatest Need
 
-Spencer W. Kimball
-
 By Elder Hartman Rector, Jr. - *Of the First Council of the Seventy*
 
 *Given in the October session of the 1975 General Conference*
@@ -79,4 +77,3 @@ All that is needed is to hearken unto the voice of him whom the Lord has chosen 
 
 
 
-#Family #Government #Prophets #Word_Of_Wisdom #Work

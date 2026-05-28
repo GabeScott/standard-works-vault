@@ -1,7 +1,5 @@
 # Preparation Brings Blessings
 
-Thomas S. Monson
-
 By President Thomas S. Monson - *President of the Church*
 
 *Given in the April session of the 2010 General Conference*
@@ -119,7 +117,3 @@ Brethren, it is my prayer that we may so live that we too may touch heaven and b
 
 [^10]: [[Isaiah 1.18|Isaiah 1:18]].
 
-
-
-
-#Church_Callings #Honesty #Preparation #Service #Standards

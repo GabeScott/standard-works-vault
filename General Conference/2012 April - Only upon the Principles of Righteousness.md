@@ -1,7 +1,5 @@
 # Only upon the Principles of Righteousness
 
-Thomas S. Monson
-
 By Elder Larry Y. Wilson - *Of the Seventy*
 
 *Given in the April session of the 2012 General Conference*
@@ -79,7 +77,3 @@ Brothers and sisters, this is the Lord’s way. Even if you’ve been mistreated
 
 [^12]: See [[Matthew 11.28|Matthew 11:28]].
 
-
-
-
-#Leadership #Obedience #Parenthood #Priesthood

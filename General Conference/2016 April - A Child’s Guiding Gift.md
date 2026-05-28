@@ -1,7 +1,5 @@
 # A Child’s Guiding Gift
 
-Cheryl A. Esplin
-
 By Mary R. Durham - *Recently Released Second Counselor in the Primary General Presidency*
 
 *Given in the April session of the 2016 General Conference*
@@ -34,7 +32,7 @@ Elder David A. Bednar said: “The simplicity of \[confirmation\] may cause us t
 
 Children have a natural desire to do good and to be good. We can feel their innocence, their purity. They also have a great sensitivity to the still, small voice.
 
-In [[3 Nephi 26.1|3 Nephi 26]], the Savior showed us the spiritual capacity of children:
+In [[3 Nephi 26.1|3 Nephi 26]][[3 Nephi 26.2|]][[3 Nephi 26.3|]][[3 Nephi 26.4|]][[3 Nephi 26.5|]][[3 Nephi 26.6|]][[3 Nephi 26.7|]][[3 Nephi 26.8|]][[3 Nephi 26.9|]][[3 Nephi 26.10|]][[3 Nephi 26.11|]][[3 Nephi 26.12|]][[3 Nephi 26.13|]][[3 Nephi 26.14|]][[3 Nephi 26.15|]][[3 Nephi 26.16|]][[3 Nephi 26.17|]][[3 Nephi 26.18|]][[3 Nephi 26.19|]][[3 Nephi 26.20|]][[3 Nephi 26.21|]], the Savior showed us the spiritual capacity of children:
 
 “He did loose their tongues, and they did speak unto their fathers great and marvelous things, even greater than he had revealed unto the people. …
 
@@ -93,7 +91,3 @@ We need not fear as we see our children enter the waters of life, for we have he
 
 [^11]: Richard G. Scott, “[[2009 October - To Acquire Spiritual Guidance.md|To Acquire Spiritual Guidance]],” *Ensign* or *Liahona,* Nov. 2009, 7.
 
-
-
-
-#Baptism #Children #Covenants #Holy_Ghost #Teaching

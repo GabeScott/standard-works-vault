@@ -1,7 +1,5 @@
 # Exercising Our Spiritual Muscles
 
-Ulisses Soares
-
 By Elder Juan Pablo Villar - *Of the Seventy*
 
 *Given in the April session of the 2019 General Conference*
@@ -63,7 +61,3 @@ I bear my witness that we are children of a loving Heavenly Father. His Son, Jes
 
 [^7]: See Russell M. Nelson, “[[2018 April - Let Us All Press On.md|Let Us All Press On]],” *Ensign* or *Liahona,* May 2018, 118–19.
 
-
-
-
-#Faith #Spiritual_Gifts

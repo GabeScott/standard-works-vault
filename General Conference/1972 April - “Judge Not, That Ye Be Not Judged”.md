@@ -1,7 +1,5 @@
 # “Judge Not, That Ye Be Not Judged”
 
-Wilford G. Edling
-
 By President N. Eldon Tanner - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 1972 General Conference*
@@ -139,4 +137,3 @@ This promise, and my testimony, I leave with you in the name of Jesus Christ. Am
 
 
 
-#Charity #Criticism #Forgiveness #Judging #Love

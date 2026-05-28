@@ -1,7 +1,5 @@
 # Four B’s for Boys
 
-Gordon B. Hinckley
-
 By President Gordon B. Hinckley - *Counselor in the First Presidency*
 
 *Given in the October session of the 1981 General Conference*
@@ -47,4 +45,3 @@ And so, there are my “Four Bs for Boys”: Be Smart, Be Fair, Be Clean, Be Tru
 
 
 
-#Youth

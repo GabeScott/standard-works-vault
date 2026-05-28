@@ -1,7 +1,5 @@
 # Follow the Prophet; He Knows the Way
 
-Dallin H. Oaks
-
 By Elder Michael John U. Teh - *Of the Seventy*
 
 *Given in the April session of the 2026 General Conference*
@@ -77,5 +75,3 @@ I testify that we are led today by a living prophet, President Dallin H. Oaks. H
 
 [^9]: [[Mosiah 8.17|Mosiah 8:17]].
 
-
-#Atonement_Of_Jesus_Christ #Jesus_Christ #Prophets #Traditions

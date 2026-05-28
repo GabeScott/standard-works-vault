@@ -1,7 +1,5 @@
 # The Greatest Joy
 
-Thomas S. Monson
-
 By Elder Clinton L. Cutler - *Of the Seventy*
 
 *Given in the April session of the 1990 General Conference*
@@ -23,4 +21,3 @@ I conclude with a testimony I heard this past week from three recent converts wh
 
 
 
-#Book_Of_Mormon #God_The_Father #Love #Prophets #Service

@@ -1,7 +1,5 @@
 # Taking on the Name of Jesus Christ
 
-Dallin H. Oaks
-
 By Elder Dale G. Renlund - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2025 General Conference*
@@ -115,7 +113,3 @@ He lives. I absolutely know it. He loves you. He gave His life for you. He plead
 
 [^31]: See [[Romans 8.17|Romans 8:17]].
 
-
-
-
-#Covenants #Discipleship #Jesus_Christ #Priesthood_Power

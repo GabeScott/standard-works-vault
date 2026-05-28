@@ -1,7 +1,5 @@
 # He Is the Son of God
 
-Spencer W. Kimball
-
 By Elder David B. Haight - *Of the Council of the Twelve*
 
 *Given in the April session of the 1976 General Conference*
@@ -99,4 +97,3 @@ Bless us with heavenly inspiration to know and to be prepared for His coming—f
 
 
 
-#Jesus_Christ #Quorum_Of_The_Twelve_Apostles

@@ -1,7 +1,5 @@
 # Priesthood Responsibilities
 
-Harold B. Lee
-
 By President N. Eldon Tanner - *First Counselor in the First Presidency*
 
 *Given in the April session of the 1973 General Conference*
@@ -85,4 +83,3 @@ May the Lord help us to appreciate who we are and to live accordingly, realizing
 
 
 
-#Priesthood

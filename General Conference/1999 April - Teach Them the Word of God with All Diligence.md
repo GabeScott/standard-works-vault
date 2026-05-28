@@ -1,7 +1,5 @@
 # Teach Them the Word of God with All Diligence
 
-Gordon B. Hinckley
-
 By Elder L. Tom Perry - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1999 General Conference*
@@ -83,4 +81,3 @@ May God bless us that we will be more determined to study and prepare and improv
 
 
 
-#Book_Of_Mormon #Children #Church_Callings #Holy_Ghost #Jesus_Christ #Parenthood #Prayer #Scripture_Study #Sunday_School #Teaching

@@ -1,7 +1,5 @@
 # For the Time Will Come When They Will Not Endure Sound Doctrine
 
-Spencer W. Kimball
-
 By Elder L. Tom Perry - *Of the Council of the Twelve*
 
 *Given in the October session of the 1975 General Conference*
@@ -99,4 +97,3 @@ May God grant that we may have the courage to stand up and be counted for that w
 
 
 
-#False_Doctrines #Government #Marriage

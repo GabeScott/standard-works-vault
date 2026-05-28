@@ -1,7 +1,5 @@
 # Missionary Memories
 
-Ezra Taft Benson
-
 By President Thomas S. Monson - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 1987 General Conference*
@@ -89,4 +87,3 @@ God bless us, my brethren, with missionary memories of stalwart service in the c
 
 
 
-#Faith #Missionary_Work

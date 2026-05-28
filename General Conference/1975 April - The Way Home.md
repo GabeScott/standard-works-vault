@@ -1,7 +1,5 @@
 # The Way Home
 
-Spencer W. Kimball
-
 By Elder Thomas S. Monson - *Of the Council of the Twelve*
 
 *Given in the April session of the 1975 General Conference*
@@ -91,4 +89,3 @@ May such be the blessing of all, I pray in the name of Jesus Christ. Amen.
 
 
 
-#Apostasy #Truth

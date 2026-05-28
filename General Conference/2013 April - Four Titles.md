@@ -1,7 +1,5 @@
 # Four Titles
 
-Thomas S. Monson
-
 By President Dieter F. Uchtdorf - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 2013 General Conference*
@@ -139,7 +137,3 @@ I pray that as you ponder the many titles of a worthy priesthood holder, you wil
 
 [^14]: [[Ephesians 4.13|Ephesians 4:13]].
 
-
-
-
-#Discipleship #Divine_Nature #Healing #Service

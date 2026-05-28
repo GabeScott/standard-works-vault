@@ -1,7 +1,5 @@
 # Trusting the Doctrine of Christ
 
-Gary E. Stevenson
-
 By Elder Evan A. Schmutz - *Of the Seventy*
 
 *Given in the April session of the 2023 General Conference*
@@ -69,7 +67,7 @@ With all my heart, I invite you to trust the doctrine of Christ and build your l
 
 [^2]: [[2 Nephi 31.2|2 Nephi 31:2]]; emphasis added.
 
-[^3]: See [[2 Nephi 31.1|2 Nephi 31–32]].
+[^3]: See [[2 Nephi 31.1|2 Nephi 31–32]][[2 Nephi 31.2|]][[2 Nephi 31.3|]][[2 Nephi 31.4|]][[2 Nephi 31.5|]][[2 Nephi 31.6|]][[2 Nephi 31.7|]][[2 Nephi 31.8|]][[2 Nephi 31.9|]][[2 Nephi 31.10|]][[2 Nephi 31.11|]][[2 Nephi 31.12|]][[2 Nephi 31.13|]][[2 Nephi 31.14|]][[2 Nephi 31.15|]][[2 Nephi 31.16|]][[2 Nephi 31.17|]][[2 Nephi 31.18|]][[2 Nephi 31.19|]][[2 Nephi 31.20|]][[2 Nephi 31.21|]].
 
 [^4]: See [[2 Nephi 31.7|2 Nephi 31:7–8]][[2 Nephi 31.8|]].
 
@@ -83,7 +81,7 @@ With all my heart, I invite you to trust the doctrine of Christ and build your l
 
 [^9]: In Marianne Holman Prescott, “[Elder Russell M. Nelson: ‘Epistles of the Lord,’](https://www.thechurchnews.com/2015/7/1/23213145/elder-russell-m-nelson-epistles-of-the-lord)” *Church News*, July 1, 2015, thechurchnews.com.
 
-[^10]: *[Preach My Gospel: A Guide to Missionary Service](https://www.churchofjesuschrist.org/study/manual/preach-my-gospel-a-guide-to-missionary-service/what-is-my-purpose-as-a-missionary?lang=eng&id=figure2#figure2)* (2018), 1. The “missionary purpose” reflects the five elements of the doctrine of Christ. The teaching of [[2 Nephi 31.1|2 Nephi 31–32]] includes several other important elements that are part of the doctrine of Christ, such as holding fast to the word of Christ (see [[2 Nephi 31.19|2 Nephi 31:19–20]][[2 Nephi 31.20|]]; [[2 Nephi 32.3|32:3]]); keeping commandments (see [[2 Nephi 31.7|2 Nephi 31:7, 10, 18]][[2 Nephi 31.10|]][[2 Nephi 31.18|]]); prayer (see [[2 Nephi 32.8|2 Nephi 32:8–9]][[2 Nephi 32.9|]]); and at its very core, the doctrine that Christ’s atoning sacrifice is the only way whereby we can be saved (see [[2 Nephi 31.21|2 Nephi 31:21]]). Elements of the doctrine of Christ are found throughout the scriptures, although the most thorough discussions of the doctrine are found in [[2 Nephi 31.5|2 Nephi 31:5–21]][[2 Nephi 31.6|]][[2 Nephi 31.7|]][[2 Nephi 31.8|]][[2 Nephi 31.9|]][[2 Nephi 31.10|]][[2 Nephi 31.11|]][[2 Nephi 31.12|]][[2 Nephi 31.13|]][[2 Nephi 31.14|]][[2 Nephi 31.15|]][[2 Nephi 31.16|]][[2 Nephi 31.17|]][[2 Nephi 31.18|]][[2 Nephi 31.19|]][[2 Nephi 31.20|]][[2 Nephi 31.21|]]; [[3 Nephi 11.31|3 Nephi 11:31–39]][[3 Nephi 11.32|]][[3 Nephi 11.33|]][[3 Nephi 11.34|]][[3 Nephi 11.35|]][[3 Nephi 11.36|]][[3 Nephi 11.37|]][[3 Nephi 11.38|]][[3 Nephi 11.39|]]; [[3 Nephi 27.13|3 Nephi 27:13–21]][[3 Nephi 27.14|]][[3 Nephi 27.15|]][[3 Nephi 27.16|]][[3 Nephi 27.17|]][[3 Nephi 27.18|]][[3 Nephi 27.19|]][[3 Nephi 27.20|]][[3 Nephi 27.21|]]; and [[Moses 6.59|Moses 6:59–62]][[Moses 6.60|]][[Moses 6.61|]][[Moses 6.62|]].
+[^10]: *[Preach My Gospel: A Guide to Missionary Service](https://www.churchofjesuschrist.org/study/manual/preach-my-gospel-a-guide-to-missionary-service/what-is-my-purpose-as-a-missionary?lang=eng&id=figure2#figure2)* (2018), 1. The “missionary purpose” reflects the five elements of the doctrine of Christ. The teaching of [[2 Nephi 31.1|2 Nephi 31–32]][[2 Nephi 31.2|]][[2 Nephi 31.3|]][[2 Nephi 31.4|]][[2 Nephi 31.5|]][[2 Nephi 31.6|]][[2 Nephi 31.7|]][[2 Nephi 31.8|]][[2 Nephi 31.9|]][[2 Nephi 31.10|]][[2 Nephi 31.11|]][[2 Nephi 31.12|]][[2 Nephi 31.13|]][[2 Nephi 31.14|]][[2 Nephi 31.15|]][[2 Nephi 31.16|]][[2 Nephi 31.17|]][[2 Nephi 31.18|]][[2 Nephi 31.19|]][[2 Nephi 31.20|]][[2 Nephi 31.21|]] includes several other important elements that are part of the doctrine of Christ, such as holding fast to the word of Christ (see [[2 Nephi 31.19|2 Nephi 31:19–20]][[2 Nephi 31.20|]]; [[2 Nephi 32.3|32:3]]); keeping commandments (see [[2 Nephi 31.7|2 Nephi 31:7, 10, 18]][[2 Nephi 31.10|]][[2 Nephi 31.18|]]); prayer (see [[2 Nephi 32.8|2 Nephi 32:8–9]][[2 Nephi 32.9|]]); and at its very core, the doctrine that Christ’s atoning sacrifice is the only way whereby we can be saved (see [[2 Nephi 31.21|2 Nephi 31:21]]). Elements of the doctrine of Christ are found throughout the scriptures, although the most thorough discussions of the doctrine are found in [[2 Nephi 31.5|2 Nephi 31:5–21]][[2 Nephi 31.6|]][[2 Nephi 31.7|]][[2 Nephi 31.8|]][[2 Nephi 31.9|]][[2 Nephi 31.10|]][[2 Nephi 31.11|]][[2 Nephi 31.12|]][[2 Nephi 31.13|]][[2 Nephi 31.14|]][[2 Nephi 31.15|]][[2 Nephi 31.16|]][[2 Nephi 31.17|]][[2 Nephi 31.18|]][[2 Nephi 31.19|]][[2 Nephi 31.20|]][[2 Nephi 31.21|]]; [[3 Nephi 11.31|3 Nephi 11:31–39]][[3 Nephi 11.32|]][[3 Nephi 11.33|]][[3 Nephi 11.34|]][[3 Nephi 11.35|]][[3 Nephi 11.36|]][[3 Nephi 11.37|]][[3 Nephi 11.38|]][[3 Nephi 11.39|]]; [[3 Nephi 27.13|3 Nephi 27:13–21]][[3 Nephi 27.14|]][[3 Nephi 27.15|]][[3 Nephi 27.16|]][[3 Nephi 27.17|]][[3 Nephi 27.18|]][[3 Nephi 27.19|]][[3 Nephi 27.20|]][[3 Nephi 27.21|]]; and [[Moses 6.59|Moses 6:59–62]][[Moses 6.60|]][[Moses 6.61|]][[Moses 6.62|]].
 
 [^11]: [[2 Corinthians 3.3|2 Corinthians 3:3]].
 
@@ -139,7 +137,3 @@ With all my heart, I invite you to trust the doctrine of Christ and build your l
 
 [^37]: See [[John 16.20|John 16:20]].
 
-
-
-
-#Adversity #Church_Doctrine #Jesus_Christ #Repentance #Trust

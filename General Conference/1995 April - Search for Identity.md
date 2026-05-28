@@ -1,7 +1,5 @@
 # Search for Identity
 
-Thomas S. Monson
-
 By Elder Monte J. Brough - *Of the Presidency of the Seventy*
 
 *Given in the April session of the 1995 General Conference*
@@ -87,7 +85,3 @@ For our own families comes this magnificent promise:
 
 [^9]: [[D&C 86.8|D&C 86:8–10]][[D&C 86.9|]][[D&C 86.10|]].
 
-
-
-
-#Example #Family_History #Pioneers

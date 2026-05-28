@@ -1,7 +1,5 @@
 # Who’s Losing?
 
-Spencer W. Kimball
-
 By Elder Marvin J. Ashton - *Of the Council of the Twelve*
 
 *Given in the October session of the 1974 General Conference*
@@ -71,4 +69,3 @@ What a pleasure it is for me, brothers and sisters, to bear special witness to h
 
 
 
-#Attitude #Self-Esteem

@@ -1,7 +1,5 @@
 # Easter Reflections
 
-Thomas S. Monson
-
 By Elder Andrew W. Peterson - *Of the Seventy*
 
 *Given in the April session of the 1995 General Conference*
@@ -53,4 +51,3 @@ Jesus is my light. In the name of Jesus Christ, amen.
 
 
 
-#Atonement #Children #Family #Howard_W._Hunter #Resurrection

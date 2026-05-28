@@ -1,7 +1,5 @@
 # Your Mission Will Change Everything
 
-Robert D. Hales
-
 By Elder David F. Evans - *Of the Seventy*
 
 *Given in the April session of the 2006 General Conference*
@@ -45,4 +43,3 @@ This is the work of the Lord. Our Father in Heaven lives, and His Son, Jesus Chr
 
 
 
-#Joy #Missionary_Work #Service

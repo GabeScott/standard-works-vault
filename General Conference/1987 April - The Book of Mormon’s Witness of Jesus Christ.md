@@ -1,7 +1,5 @@
 # The Book of Mormon’s Witness of Jesus Christ
 
-Ezra Taft Benson
-
 By Elder J. Thomas Fyans - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1987 General Conference*
@@ -42,7 +40,7 @@ What was Lehi’s reaction to this heaven-sent scene? “He testified that the t
 
 We were still in the first chapter of 1 Nephi, having barely begun our quest. As we continued, verse after verse, chapter after chapter bore witness of his reality.
 
-Still in 1 Nephi, but in [[1 Nephi 13.1|chapter 13]], we discovered, in just sixteen verses, twenty-two references to the Lamb, another name for the Lord, the Redeemer, the Messiah, Jesus the Christ.
+Still in 1 Nephi, but in [[1 Nephi 13.1|chapter 13]][[1 Nephi 13.2|]][[1 Nephi 13.3|]][[1 Nephi 13.4|]][[1 Nephi 13.5|]][[1 Nephi 13.6|]][[1 Nephi 13.7|]][[1 Nephi 13.8|]][[1 Nephi 13.9|]][[1 Nephi 13.10|]][[1 Nephi 13.11|]][[1 Nephi 13.12|]][[1 Nephi 13.13|]][[1 Nephi 13.14|]][[1 Nephi 13.15|]][[1 Nephi 13.16|]][[1 Nephi 13.17|]][[1 Nephi 13.18|]][[1 Nephi 13.19|]][[1 Nephi 13.20|]][[1 Nephi 13.21|]][[1 Nephi 13.22|]][[1 Nephi 13.23|]][[1 Nephi 13.24|]][[1 Nephi 13.25|]][[1 Nephi 13.26|]][[1 Nephi 13.27|]][[1 Nephi 13.28|]][[1 Nephi 13.29|]][[1 Nephi 13.30|]][[1 Nephi 13.31|]][[1 Nephi 13.32|]][[1 Nephi 13.33|]][[1 Nephi 13.34|]][[1 Nephi 13.35|]][[1 Nephi 13.36|]][[1 Nephi 13.37|]][[1 Nephi 13.38|]][[1 Nephi 13.39|]][[1 Nephi 13.40|]][[1 Nephi 13.41|]][[1 Nephi 13.42|]], we discovered, in just sixteen verses, twenty-two references to the Lamb, another name for the Lord, the Redeemer, the Messiah, Jesus the Christ.
 
 Time dictates that we must now pass by dozens, yes hundreds of references to this Savior of mankind found in this sacred record. Six hundred years escape us. Now we hold time still. We stop to drink deeply and spiritually meditate as we study this scene:
 
@@ -93,4 +91,3 @@ The Savior lives today. This I witness to you in the very sacred name of Jesus C
 
 
 
-#Book_Of_Mormon #Jesus_Christ

@@ -1,7 +1,5 @@
 # Are You a Saint?
 
-Gordon B. Hinckley
-
 By Elder Quentin L. Cook - *Of the Seventy*
 
 *Given in the October session of the 2003 General Conference*
@@ -85,7 +83,3 @@ I testify that avoiding evil and destructive pursuits and sacrificing in order t
 
 [^13]: [[D&C 59.23|D&C 59:23]].
 
-
-
-
-#Honesty #Obedience #Sacrifice #Worldliness #Worthiness

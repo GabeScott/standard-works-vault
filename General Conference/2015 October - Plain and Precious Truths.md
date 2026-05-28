@@ -1,7 +1,5 @@
 # Plain and Precious Truths
 
-Rosemary M. Wixom
-
 By Elder Gary E. Stevenson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2015 General Conference*
@@ -51,7 +49,3 @@ Heavenly Father sent His Son to the earth to atone for the sins of all mankind. 
 
 [^5]: *Preach My Gospel: A Guide to Missionary Service* (2004), 31–32.
 
-
-
-
-#Church_Callings #Faith #Family #Jesus_Christ #Testimony

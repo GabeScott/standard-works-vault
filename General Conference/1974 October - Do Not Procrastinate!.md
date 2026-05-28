@@ -1,7 +1,5 @@
 # Do Not Procrastinate!
 
-Spencer W. Kimball
-
 By Elder Eldred G. Smith - *Patriarch to the Church*
 
 *Given in the October session of the 1974 General Conference*
@@ -55,4 +53,3 @@ I testify that this is the gospel of Jesus Christ, restored in these the latter 
 
 
 
-#Family_History #Temple_Work

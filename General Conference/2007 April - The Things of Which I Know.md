@@ -1,7 +1,5 @@
 # The Things of Which I Know
 
-Thomas S. Monson
-
 By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the April session of the 2007 General Conference*
@@ -67,4 +65,3 @@ God bless you, every one, you faithful Latter-day Saints. May there be peace and
 
 
 
-#Godhead #Restoration #Testimony

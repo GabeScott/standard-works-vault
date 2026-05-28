@@ -1,7 +1,5 @@
 # “Lead, Kindly Light”
 
-Gordon B. Hinckley
-
 By Virginia U. Jensen - *First Counselor in the Relief Society General Presidency*
 
 *Given in the October session of the 2000 General Conference*
@@ -47,4 +45,3 @@ I know from my own experience, just as surely as Josh knows from his, of the rea
 
 
 
-#Agency #Commandments #Covenants #Faith #Jesus_Christ #Loneliness #Sin #Truth

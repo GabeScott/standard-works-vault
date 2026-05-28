@@ -1,7 +1,5 @@
 # Who Honors God, God Honors
 
-Gordon B. Hinckley
-
 By President Thomas S. Monson - *First Counselor in the First Presidency*
 
 *Given in the October session of the 1995 General Conference*
@@ -124,7 +122,3 @@ May we ever remember the truth, “Who honors God, God honors.” In the name of
 
 [^6]: [[3 Nephi 5.13|3 Ne. 5:13]].
 
-
-
-
-#Character #God_The_Father #Jesus_Christ #Missionary_Work #Priesthood #Youth

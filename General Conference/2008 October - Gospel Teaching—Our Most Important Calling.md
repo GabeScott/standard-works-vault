@@ -1,7 +1,5 @@
 # Gospel Teaching—Our Most Important Calling
 
-Thomas S. Monson
-
 By William D. Oswald - *Second Counselor in the Sunday School General Presidency*
 
 *Given in the October session of the 2008 General Conference*
@@ -121,7 +119,3 @@ I testify that teaching the gospel is a sacred and holy calling. When you love y
 
 [^28]: [[John 3.2|John 3:2]].
 
-
-
-
-#Love #Scriptures #Spirituality #Teaching

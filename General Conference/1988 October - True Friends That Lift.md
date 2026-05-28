@@ -1,7 +1,5 @@
 # True Friends That Lift
 
-Ezra Taft Benson
-
 By Elder Richard G. Scott - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1988 General Conference*
@@ -83,4 +81,3 @@ He is your Father; pray to him. If your life is in disarray and you feel uncomfo
 
 
 
-#Book_Of_Mormon #Jesus_Christ

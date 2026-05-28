@@ -1,7 +1,5 @@
 # Be Peaceable Followers of Christ
 
-David A. Bednar
-
 By Elder Quentin L. Cook - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2023 General Conference*
@@ -151,7 +149,3 @@ As an Apostle of the Lord Jesus Christ, I testify that “peaceable followers of
 
 [^30]: “Come, Ye Disconsolate,” *Hymns*, no. 115.
 
-
-
-
-#Adversity #Atonement #Discipleship #Jesus_Christ #Joy #Peacemaking #Preparation

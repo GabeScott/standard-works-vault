@@ -1,7 +1,5 @@
 # “He Is Risen”
 
-Gordon B. Hinckley
-
 By Elder Thomas S. Monson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1981 General Conference*
@@ -105,4 +103,3 @@ As the least of His disciples, I declare my personal witness that death has been
 
 
 
-#Death #Peace #Resurrection #Sacrifice

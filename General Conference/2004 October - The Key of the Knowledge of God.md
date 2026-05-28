@@ -1,7 +1,5 @@
 # The Key of the Knowledge of God
 
-Gordon B. Hinckley
-
 By President James E. Faust - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 2004 General Conference*
@@ -145,7 +143,3 @@ We can all expect to face trials. But great eternal promises are extended to tho
 
 [^36]: [[D&C 84.80|D&C 84:80]].
 
-
-
-
-#Covenants #Priesthood #Service #Worthiness

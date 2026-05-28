@@ -1,7 +1,5 @@
 # “I Will … Pour You Out a Blessing”
 
-Spencer W. Kimball
-
 By Elder Henry D. Taylor - *Assistant to the Council of the Twelve*
 
 *Given in the April session of the 1974 General Conference*
@@ -55,4 +53,3 @@ And to this I testify in the name of our Lord and Savior, Jesus Christ. Amen.
 
 
 
-#Tithing

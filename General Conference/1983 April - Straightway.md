@@ -1,7 +1,5 @@
 # Straightway
 
-Ezra Taft Benson
-
 By Elder Marvin J. Ashton - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1983 General Conference*
@@ -113,4 +111,3 @@ The gospel of Jesus Christ is true. Jesus Christ is our Redeemer and Savior. Hap
 
 
 
-#Repentance #Self-Control #Time_Management

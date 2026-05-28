@@ -1,7 +1,5 @@
 # Be Not Moved!
 
-Thomas S. Monson
-
 By Elaine S. Dalton - *Young Women General President*
 
 *Given in the April session of the 2013 General Conference*
@@ -97,7 +95,3 @@ I testify that the Savior lives! He will be with you. He will enable you. And in
 
 [^22]: [[D&C 84.88|Doctrine and Covenants 84:88]].
 
-
-
-
-#Atonement #Morality #Temples

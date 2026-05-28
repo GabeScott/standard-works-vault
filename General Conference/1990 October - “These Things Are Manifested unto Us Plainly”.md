@@ -1,7 +1,5 @@
 # “These Things Are Manifested unto Us Plainly”
 
-Gordon B. Hinckley
-
 By Elaine L. Jack - *Relief Society General President*
 
 *Given in the October session of the 1990 General Conference*
@@ -103,4 +101,3 @@ I pray for the blessings of our Father in Heaven, who loves us, to continue to b
 
 
 
-#Compassion #Family #Individual_Worth #Jesus_Christ #Testimony #Women

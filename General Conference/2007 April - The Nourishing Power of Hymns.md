@@ -1,7 +1,5 @@
 # The Nourishing Power of Hymns
 
-Thomas S. Monson
-
 By Elder Jay E. Jensen - *Of the Seventy*
 
 *Given in the April session of the 2007 General Conference*
@@ -109,7 +107,3 @@ I pray that we may eliminate any inappropriate music from our lives and follow t
 
 [^18]: *Hymns,* x.
 
-
-
-
-#Conversion #Missionary_Work #Music #Reverence #Worship

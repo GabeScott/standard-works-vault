@@ -1,7 +1,5 @@
 # They Pray and They Go
 
-Gordon B. Hinckley
-
 By President Thomas S. Monson - *First Counselor in the First Presidency*
 
 *Given in the April session of the 2002 General Conference*
@@ -117,7 +115,3 @@ In the name of Jesus Christ, amen.
 
 [^11]: [[James 1.22|James 1:22]].
 
-
-
-
-#Blessings #Faith #Missionary_Work #Prayer #Work

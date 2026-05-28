@@ -1,7 +1,5 @@
 # The Blessings of a Proper Fast
 
-Gordon B. Hinckley
-
 By Elder Carl B. Pratt - *Of the Seventy*
 
 *Given in the October session of the 2004 General Conference*
@@ -63,4 +61,3 @@ It is my prayer that we can improve our fasts so that we can enjoy these beautif
 
 
 
-#Fasting #Prayer #Testimony

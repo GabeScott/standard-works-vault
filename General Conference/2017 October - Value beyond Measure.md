@@ -1,7 +1,5 @@
 # Value beyond Measure
 
-Sharon Eubank
-
 By Joy D. Jones - *Primary General President*
 
 *Given in the October session of the 2017 General Conference*
@@ -89,7 +87,3 @@ Sisters, let’s not be confused about who we are! While it is often easier to b
 
 [^14]: [[Moroni 9.25|Moroni 9:25]].
 
-
-
-
-#Atonement #Divine_Nature #Holy_Ghost #Individual_Worth #Jesus_Christ #Worthiness

@@ -1,7 +1,5 @@
 # An Ensign to the Nations, a Light to the World
 
-Gordon B. Hinckley
-
 By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the October session of the 2003 General Conference*
@@ -119,4 +117,3 @@ The Lord has said to us:
 
 
 
-#Example #Media #Morality #Priesthood #Women #Youth

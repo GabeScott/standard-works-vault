@@ -1,7 +1,5 @@
 # Adversity and Prayer
 
-Harold B. Lee
-
 By Bishop H. Burke Peterson - *First Counselor in the Presiding Bishopric*
 
 *Given in the October session of the 1973 General Conference*
@@ -63,4 +61,3 @@ I testify he is ready and waiting to help us. For our own good we must take the 
 
 
 
-#Adversity #Prayer

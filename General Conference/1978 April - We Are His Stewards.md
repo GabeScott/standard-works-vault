@@ -1,7 +1,5 @@
 # We Are His Stewards
 
-Spencer W. Kimball
-
 By President N. Eldon Tanner - *First Counselor in the First Presidency*
 
 *Given in the April session of the 1978 General Conference*
@@ -25,4 +23,3 @@ I humbly pray, my brothers and sisters, that we will do this as we represent the
 
 
 
-#Accountability #Fasting

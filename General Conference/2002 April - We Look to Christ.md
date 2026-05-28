@@ -1,7 +1,5 @@
 # We Look to Christ
 
-Gordon B. Hinckley
-
 By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the April session of the 2002 General Conference*
@@ -59,4 +57,3 @@ Of these things I testify in solemnity as I leave with you, my beloved associate
 
 
 
-#Faith #Jesus_Christ #Testimony

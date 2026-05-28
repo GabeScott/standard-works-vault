@@ -1,7 +1,5 @@
 # The Royal Law
 
-Thomas S. Monson
-
 By Elder Marion D. Hanks - *Of the Presidency of the Seventy*
 
 *Given in the April session of the 1992 General Conference*
@@ -77,4 +75,3 @@ I thank God for the Holy Savior, for the compassionate Christ, in the name of Je
 
 
 
-#Jesus_Christ #Love #Service

@@ -1,7 +1,5 @@
 # Our Kindred Family—Expression of Eternal Love
 
-Ezra Taft Benson
-
 By Elder J. Richard Clarke - *Of the Presidency of the Seventy*
 
 *Given in the April session of the 1989 General Conference*
@@ -67,4 +65,3 @@ I bear witness that this work is true. I testify that we may anticipate a glorio
 
 
 
-#Family #Temple_Work

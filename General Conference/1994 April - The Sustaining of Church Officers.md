@@ -1,7 +1,5 @@
 # The Sustaining of Church Officers
 
-James E. Faust
-
 By President Thomas S. Monson - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 1994 General Conference*

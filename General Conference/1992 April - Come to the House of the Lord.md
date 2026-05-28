@@ -1,7 +1,5 @@
 # Come to the House of the Lord
 
-Thomas S. Monson
-
 By Elder David B. Haight - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1992 General Conference*
@@ -97,4 +95,3 @@ I pray that we will take full advantage of every opportunity to regularly come t
 
 
 
-#Marriage #Temple_Work #Worthiness

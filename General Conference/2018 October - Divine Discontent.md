@@ -1,7 +1,5 @@
 # Divine Discontent
 
-Russell M. Nelson
-
 By Michelle D. Craig - *First Counselor in the Young Women General Presidency*
 
 *Given in the October session of the 2018 General Conference*
@@ -109,7 +107,3 @@ Because of our Savior’s atoning sacrifice, we can be made equal to the tasks t
 
 [^19]: C. S. Lewis, *Mere Christianity* (1960), 160.
 
-
-
-
-#Faith #Humility #Service

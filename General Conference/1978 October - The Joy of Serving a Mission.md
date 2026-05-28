@@ -1,7 +1,5 @@
 # The Joy of Serving a Mission
 
-Spencer W. Kimball
-
 By Elder LeGrand Richards - *Of the Council of the Twelve*
 
 *Given in the October session of the 1978 General Conference*
@@ -49,4 +47,3 @@ God bless you all, and may we not disappoint our great leader in sending all of 
 
 
 
-#Activation #Conversion #Love #Missionary_Work

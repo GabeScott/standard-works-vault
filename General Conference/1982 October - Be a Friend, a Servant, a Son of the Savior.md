@@ -1,7 +1,5 @@
 # Be a Friend, a Servant, a Son of the Savior
 
-Spencer W. Kimball
-
 By Elder Robert E. Wells - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1982 General Conference*
@@ -69,4 +67,3 @@ To this I testify humbly and with love, in the name of Jesus Christ, our Master 
 
 
 
-#Jesus_Christ #Service

@@ -1,7 +1,5 @@
 # The Church Goes Forward
 
-Gordon B. Hinckley
-
 By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the April session of the 2002 General Conference*
@@ -67,4 +65,3 @@ May the Lord bless you, and each of us, as we rejoice in our opportunity to be a
 
 
 
-#Church_Growth #Church_History #Education #Generosity #Media

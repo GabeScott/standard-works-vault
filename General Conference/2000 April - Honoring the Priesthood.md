@@ -1,7 +1,5 @@
 # Honoring the Priesthood
 
-Gordon B. Hinckley
-
 By Bishop H. David Burton - *Presiding Bishop*
 
 *Given in the April session of the 2000 General Conference*
@@ -49,4 +47,3 @@ I testify we are on the Lord’s errand. He is our Savior. He is our Redeemer. H
 
 
 
-#Communication #Covenants #Example #Family #General_Conference #Media #Missionary_Work #Priesthood #Profanity #Responsibility #Standards #Teaching #Word_Of_Wisdom

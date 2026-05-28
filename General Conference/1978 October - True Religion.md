@@ -1,7 +1,5 @@
 # True Religion
 
-Spencer W. Kimball
-
 By Elder Howard W. Hunter - *Of the Council of the Twelve*
 
 *Given in the October session of the 1978 General Conference*
@@ -83,4 +81,3 @@ I pray we may serve our fellowmen and remain unspotted from worldly influences, 
 
 
 
-#Spirituality

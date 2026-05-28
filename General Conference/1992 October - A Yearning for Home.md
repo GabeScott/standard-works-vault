@@ -1,7 +1,5 @@
 # A Yearning for Home
 
-Gordon B. Hinckley
-
 By Elder Marvin J. Ashton - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1992 General Conference*
@@ -75,4 +73,3 @@ May our yearning for home be the motivation we need to so live that we can retur
 
 
 
-#Endurance #Home #Safety

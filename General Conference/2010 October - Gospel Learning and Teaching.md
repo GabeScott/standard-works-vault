@@ -1,7 +1,5 @@
 # Gospel Learning and Teaching
 
-Thomas S. Monson
-
 By David M. McConkie - *First Counselor in the Sunday School General Presidency*
 
 *Given in the October session of the 2010 General Conference*
@@ -101,7 +99,3 @@ Dear teachers, you are one of the great miracles of this Church. You have a sacr
 
 [^16]: Thomas S. Monson, “The Spirit Giveth Life,” *Liahona* and *Ensign,* June 1997, 4.
 
-
-
-
-#Holy_Ghost #Learning #Scripture_Study #Teaching

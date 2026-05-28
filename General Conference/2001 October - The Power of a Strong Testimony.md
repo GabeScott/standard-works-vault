@@ -1,7 +1,5 @@
 # The Power of a Strong Testimony
 
-Gordon B. Hinckley
-
 By Elder Richard G. Scott - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2001 General Conference*
@@ -83,7 +81,3 @@ As one of His Apostles authorized to bear witness of Him, I solemnly testify tha
 
 [^11]: See [[D&C 43.16|D&C 43:16]].
 
-
-
-
-#Courage #Death #Faith #Fasting #God_The_Father #Holy_Ghost #Love #Obedience #Peace #Prayer #Satan #Spirituality #Testimony #Truth

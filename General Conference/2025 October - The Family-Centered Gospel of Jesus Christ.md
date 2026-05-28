@@ -1,7 +1,5 @@
 # The Family-Centered Gospel of Jesus Christ
 
-Dallin H. Oaks
-
 By President Dallin H. Oaks - *President of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2025 General Conference*
@@ -75,7 +73,3 @@ I testify of the Lord Jesus Christ, who is the Only Begotten Son of God, our Ete
 
 [^4]: Spencer W. Kimball, “[Therefore I Was Taught,](https://www.churchofjesuschrist.org/study/ensign/1982/01/therefore-i-was-taught?lang=eng&id=p17#p17)” *Ensign*, Jan. 1982, 4.
 
-
-
-
-#Children #Family #Marriage #Parents

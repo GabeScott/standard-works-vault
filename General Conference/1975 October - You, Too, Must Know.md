@@ -1,7 +1,5 @@
 # You, Too, Must Know
 
-Spencer W. Kimball
-
 By Elder Marion D. Hanks - *Assistant to the Council of the Twelve*
 
 *Given in the October session of the 1975 General Conference*
@@ -18,7 +16,7 @@ Those familiar with the scriptures are aware that many of the most powerful and 
 
 It has been particularly vital to me, since I did not have the blessing of knowing my own father before he died in my infancy, to discover what it was that parents, fathers especially, were anxious to have their sons learn, to feel the deep intensity of their desire to make known in thought and feelings to their own children what had become so greatly important to them.
 
-One powerful and motivating example of a father’s instructions to his children is the series of chapters in which Alma shares with his sons the profoundest lessons of his own life. From his experiences, good and bad (for he had both, like the rest of us), there were certain crucial convictions which he was anxious to teach. Of three such matters this humble man speaks in a strong and tender testimony to his son Helaman ([[Alma 36.1|Alma 36]]), and repeats the witness to his other children.
+One powerful and motivating example of a father’s instructions to his children is the series of chapters in which Alma shares with his sons the profoundest lessons of his own life. From his experiences, good and bad (for he had both, like the rest of us), there were certain crucial convictions which he was anxious to teach. Of three such matters this humble man speaks in a strong and tender testimony to his son Helaman ([[Alma 36.1|Alma 36]][[Alma 36.2|]][[Alma 36.3|]][[Alma 36.4|]][[Alma 36.5|]][[Alma 36.6|]][[Alma 36.7|]][[Alma 36.8|]][[Alma 36.9|]][[Alma 36.10|]][[Alma 36.11|]][[Alma 36.12|]][[Alma 36.13|]][[Alma 36.14|]][[Alma 36.15|]][[Alma 36.16|]][[Alma 36.17|]][[Alma 36.18|]][[Alma 36.19|]][[Alma 36.20|]][[Alma 36.21|]][[Alma 36.22|]][[Alma 36.23|]][[Alma 36.24|]][[Alma 36.25|]][[Alma 36.26|]][[Alma 36.27|]][[Alma 36.28|]][[Alma 36.29|]][[Alma 36.30|]]), and repeats the witness to his other children.
 
 “My son,” he said, “thou art in thy youth, and therefore, I beseech of thee that thou wilt hear my words and learn of me; for I do know that whosoever shall put their trust in God shall be supported in their trials, and their troubles, and their afflictions, and shall be lifted up at the last day.
 
@@ -97,4 +95,3 @@ I testify that God lives, and Jesus is the Christ, and this is his work. In the 
 
 
 
-#Fatherhood #Youth

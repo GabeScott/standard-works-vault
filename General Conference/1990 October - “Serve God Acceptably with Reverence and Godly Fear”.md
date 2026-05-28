@@ -1,7 +1,5 @@
 # “Serve God Acceptably with Reverence and Godly Fear”
 
-Gordon B. Hinckley
-
 By Elder L. Tom Perry - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1990 General Conference*
@@ -65,4 +63,3 @@ Let us never depreciate the value of our own personal example of being a living 
 
 
 
-#Example #Prophets #Reverence

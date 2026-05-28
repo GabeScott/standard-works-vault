@@ -1,7 +1,5 @@
 # Keep the Lines of Communication Strong
 
-Wilford G. Edling
-
 By President Spencer W. Kimball - *Acting President of the Council of the Twelve*
 
 *Given in the April session of the 1972 General Conference*
@@ -117,4 +115,3 @@ May we always repair our sagging lines and fulfill our total obligations and thu
 
 
 
-#Communication #Obedience #Resurrection

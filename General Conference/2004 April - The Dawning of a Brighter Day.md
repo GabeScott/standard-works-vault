@@ -1,7 +1,5 @@
 # The Dawning of a Brighter Day
 
-Gordon B. Hinckley
-
 By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the April session of the 2004 General Conference*
@@ -120,4 +118,3 @@ May we live worthy of the glorious endowment of light and understanding and eter
 
 
 
-#Hope #Kindness #Responsibility #Restoration

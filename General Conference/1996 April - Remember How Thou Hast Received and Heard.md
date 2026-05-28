@@ -1,7 +1,5 @@
 # Remember How Thou Hast Received and Heard
 
-James E. Faust
-
 By Susan L. Warner - *Second Counselor in the Primary General Presidency*
 
 *Given in the April session of the 1996 General Conference*
@@ -58,4 +56,3 @@ In the name of Jesus Christ, amen.
 
 
 
-#Children #Commandments #Family #Family_Home_Evening #Jesus_Christ #Parents #Prophets #Repentance #Responsibility #Sacrament #Scripture_Study #Sin #Spirituality

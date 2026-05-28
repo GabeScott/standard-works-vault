@@ -1,7 +1,5 @@
 # A Report on the Church’s Participation in America’s Bicentennial Celebration
 
-Spencer W. Kimball
-
 By Elder L. Tom Perry - *Of the Council of the Twelve*
 
 *Given in the October session of the 1976 General Conference*
@@ -51,4 +49,3 @@ As we start a new century, may it be a new beginning of governing with righteous
 
 
 
-#Patriotism

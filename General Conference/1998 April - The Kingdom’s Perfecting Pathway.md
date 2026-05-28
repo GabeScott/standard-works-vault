@@ -1,7 +1,5 @@
 # The Kingdom’s Perfecting Pathway
 
-Gordon B. Hinckley
-
 By Elder Dale E. Miller - *Of the Seventy*
 
 *Given in the April session of the 1998 General Conference*
@@ -59,4 +57,3 @@ Gratefully and joyfully, I am a witness that this is the great kingdom of God on
 
 
 
-#Church_Organization #Consecration #Family #Home #Jesus_Christ #Obedience #Parenthood #Plan_Of_Salvation #Pride #Priorities #Sin #Unity #Zion

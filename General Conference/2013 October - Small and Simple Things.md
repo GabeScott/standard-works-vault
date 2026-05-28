@@ -1,7 +1,5 @@
 # Small and Simple Things
 
-Thomas S. Monson
-
 By Elder Arnulfo Valenzuela - *Of the Seventy*
 
 *Given in the October session of the 2013 General Conference*
@@ -55,4 +53,3 @@ I bear witness of the love of the Lord toward all His children. I know He lives 
 
 
 
-#Activation #Missionary_Work

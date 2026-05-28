@@ -1,7 +1,5 @@
 # World Peace
 
-Thomas S. Monson
-
 By Elder Dallin H. Oaks - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1990 General Conference*
@@ -139,4 +137,3 @@ May God bless all of us in that great effort, I pray, in the name of Jesus Chris
 
 
 
-#Faith #Peace #Spirituality

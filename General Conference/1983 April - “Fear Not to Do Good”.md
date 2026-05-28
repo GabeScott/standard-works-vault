@@ -1,7 +1,5 @@
 # “Fear Not to Do Good”
 
-Ezra Taft Benson
-
 By President Gordon B. Hinckley - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 1983 General Conference*
@@ -43,4 +41,3 @@ In closing I give to you the love and blessing of President Spencer W. Kimball, 
 
 
 
-#Brotherhood #Obedience

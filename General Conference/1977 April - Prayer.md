@@ -1,7 +1,5 @@
 # Prayer
 
-Spencer W. Kimball
-
 By President Ezra Taft Benson - *Of the Council of the Twelve*
 
 *Given in the April session of the 1977 General Conference*
@@ -97,4 +95,3 @@ I bear witness to you, my beloved brethren and sisters, that God lives. He is no
 
 
 
-#Prayer #Welfare

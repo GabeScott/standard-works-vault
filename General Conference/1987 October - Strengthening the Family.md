@@ -1,7 +1,5 @@
 # Strengthening the Family
 
-Ezra Taft Benson
-
 By Joanne B. Doxey - *Second Counselor in the Relief Society General Presidency*
 
 *Given in the October session of the 1987 General Conference*
@@ -81,4 +79,3 @@ I bear you my witness that the Lord lives, and I pray that we may eagerly fulfil
 
 
 
-#Family #Motherhood #Teaching #Women

@@ -1,7 +1,5 @@
 # The Gift of Love
 
-Spencer W. Kimball
-
 By Elder Rex D. Pinegar - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1978 General Conference*
@@ -45,4 +43,3 @@ Now, may we as members of The Church of Jesus Christ of Latter-day Saints rememb
 
 
 
-#Love #Spirituality

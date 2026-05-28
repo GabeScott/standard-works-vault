@@ -1,7 +1,5 @@
 # The Holy Ghost as Your Companion
 
-Rosemary M. Wixom
-
 By President Henry B. Eyring - *First Counselor in the First Presidency*
 
 *Given in the October session of the 2015 General Conference*
@@ -111,7 +109,3 @@ I further testify to you that these wonderful men who have today been speaking t
 
 [^2]: See George Q. Cannon, in “Minutes of a Conference,” *Millennial Star,* May 2, 1863, 275–76.
 
-
-
-
-#Death #Holy_Ghost #Revelation #Sacrament #Truth

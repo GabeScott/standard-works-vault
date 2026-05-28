@@ -1,7 +1,5 @@
 # Come and Partake
 
-Ezra Taft Benson
-
 By President Gordon B. Hinckley - *First Counselor in the First Presidency*
 
 *Given in the April session of the 1986 General Conference*
@@ -105,4 +103,3 @@ God be thanked for this glorious work, for this day of restored truth and light,
 
 
 
-#Atonement #Education #Prophets

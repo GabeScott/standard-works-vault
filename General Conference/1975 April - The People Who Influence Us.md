@@ -1,7 +1,5 @@
 # The People Who Influence Us
 
-Spencer W. Kimball
-
 By Elder William Grant Bangerter - *Assistant to the Council of the Twelve*
 
 *Given in the April session of the 1975 General Conference*
@@ -47,4 +45,3 @@ I do testify to the truth of these things in the name of Jesus Christ. Amen.
 
 
 
-#Testimony

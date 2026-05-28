@@ -1,7 +1,5 @@
 # You Are Not Alone
 
-Thomas S. Monson
-
 By Janette C. Hales - *Young Women General President*
 
 *Given in the April session of the 1992 General Conference*
@@ -29,4 +27,3 @@ Now, to every adult member of the Church, may I suggest that you learn the names
 
 
 
-#Service #Youth

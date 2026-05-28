@@ -1,7 +1,5 @@
 # Looking to the Savior
 
-Ezra Taft Benson
-
 By Elder Adney Y. Komatsu - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1987 General Conference*
@@ -81,4 +79,3 @@ The Lord, who suffered much for the sins of all mankind and was crucified and re
 
 
 
-#Adversity #Atonement #Jesus_Christ #Obedience

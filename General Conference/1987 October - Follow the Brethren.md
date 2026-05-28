@@ -1,7 +1,5 @@
 # Follow the Brethren
 
-Ezra Taft Benson
-
 By Elder L. Aldin Porter - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1987 General Conference*
@@ -77,4 +75,3 @@ You will find that you will “enjoy the words of eternal life in this world, an
 
 
 
-#Church_Leaders #Obedience #Prophets

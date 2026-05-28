@@ -1,7 +1,5 @@
 # “Brightness of Hope”
 
-Gordon B. Hinckley
-
 By Elder Neal A. Maxwell - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1994 General Conference*
@@ -81,4 +79,3 @@ Of this I testify in the name of Jesus Christ, amen.
 
 
 
-#Atonement #Faith #Hope #Jesus_Christ #Sin

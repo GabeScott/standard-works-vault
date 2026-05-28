@@ -1,7 +1,5 @@
 # “This Thing Was Not Done in a Corner”
 
-Gordon B. Hinckley
-
 By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the October session of the 1996 General Conference*
@@ -153,4 +151,3 @@ Well, brethren, that’s enough for this occasion. Needless to say, we were bles
 
 
 
-#Abuse #Agency #Example #Family #Home #Media #Missionary_Work #Morality #Parenthood #Prophets #Tithing #Welfare #Word_Of_Wisdom

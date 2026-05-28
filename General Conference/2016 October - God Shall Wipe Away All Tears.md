@@ -1,7 +1,5 @@
 # God Shall Wipe Away All Tears
 
-Jean B. Bingham
-
 By Elder Evan A. Schmutz - *Of the Seventy*
 
 *Given in the October session of the 2016 General Conference*
@@ -105,7 +103,3 @@ I testify that God our Father and His Son, Jesus Christ, live and that They are 
 
 [^21]: [[Revelation 7.17|Revelation 7:17]]; see also [[Revelation 21.4|Revelation 21:4]].
 
-
-
-
-#Adversity #Discipleship #Endurance #Faith #Jesus_Christ #Joy #Plan_Of_Salvation

@@ -1,7 +1,5 @@
 # Striving Together: Transforming Our Beliefs into Action
 
-Gordon B. Hinckley
-
 By Barbara W. Winder - *Relief Society General President*
 
 *Given in the October session of the 1984 General Conference*
@@ -73,4 +71,3 @@ I bear witness of these things in the name of Jesus Christ, amen.
 
 
 
-#Covenants #Service

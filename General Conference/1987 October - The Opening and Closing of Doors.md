@@ -1,7 +1,5 @@
 # The Opening and Closing of Doors
 
-Ezra Taft Benson
-
 By President Howard W. Hunter - *Acting President of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1987 General Conference*
@@ -85,4 +83,3 @@ May God bless us in the ups and downs of life, in the opening and closing of doo
 
 
 
-#Adversity #Faith

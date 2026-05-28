@@ -1,7 +1,5 @@
 # The Message of the Restoration
 
-Joseph Fielding Smith
-
 By President A. Theodore Tuttle - *Of the First Council of the Seventy*
 
 *Given in the April session of the 1971 General Conference*
@@ -67,4 +65,3 @@ Now, what is the destiny of this church? It will go forward. It cannot fail. It 
 
 
 
-#Church_Organization #Restoration

@@ -1,7 +1,5 @@
 # Our Father’s Glorious Plan
 
-Bonnie H. Cordon
-
 By Elder Weatherford T. Clayton - *Of the Seventy*
 
 *Given in the April session of the 2017 General Conference*
@@ -151,7 +149,3 @@ For those who have experienced these truths and for whatever reason have wandere
 
 [^33]: [[D&C 59.23|Doctrine and Covenants 59:23]].
 
-
-
-
-#Agency #Atonement #Commandments #Creation #Death #Fall #Jesus_Christ #Plan_Of_Salvation #Premortal_Existence #Resurrection

@@ -1,7 +1,5 @@
 # “The Oath and Covenant Which Belongeth to the Priesthood”
 
-Spencer W. Kimball
-
 By President Marion G. Romney - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 1980 General Conference*
@@ -97,4 +95,3 @@ Such men are magnifying their callings, and they shall obtain the rewards promis
 
 
 
-#Covenants #Priesthood #Service

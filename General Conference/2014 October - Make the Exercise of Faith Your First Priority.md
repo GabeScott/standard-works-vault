@@ -1,7 +1,5 @@
 # Make the Exercise of Faith Your First Priority
 
-Thomas S. Monson
-
 By Elder Richard G. Scott - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2014 General Conference*
@@ -85,7 +83,3 @@ I am not suggesting that all of life’s struggles will disappear as you do thes
 
 [^10]: See [[2 Nephi 2.2|2 Nephi 2:2]].
 
-
-
-
-#Family_Home_Evening #Prayer #Scripture_Study #Temple_Work

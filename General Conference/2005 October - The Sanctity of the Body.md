@@ -1,7 +1,5 @@
 # The Sanctity of the Body
 
-Gordon B. Hinckley
-
 By Susan W. Tanner - *Young Women General President*
 
 *Given in the October session of the 2005 General Conference*
@@ -55,4 +53,3 @@ Our bodies are our temples. We are not less but *more* like Heavenly Father beca
 
 
 
-#Morality #Plan_Of_Salvation #Self-Esteem #Temples #Word_Of_Wisdom

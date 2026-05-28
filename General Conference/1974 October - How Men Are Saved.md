@@ -1,7 +1,5 @@
 # How Men Are Saved
 
-Spencer W. Kimball
-
 By President Marion G. Romney - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 1974 General Conference*
@@ -129,4 +127,3 @@ In all humility, kindness, love, and sincerity, we invite you to carefully liste
 
 
 
-#Atonement #Plan_Of_Salvation

@@ -1,7 +1,5 @@
 # Employment Challenges in the 1980s
 
-Spencer W. Kimball
-
 By Elder J. Thomas Fyans - *Of the Presidency of the First Quorum of the Seventy*
 
 *Given in the April session of the 1982 General Conference*
@@ -61,4 +59,3 @@ May we be committed and involved in this modern-day response to the Savior’s c
 
 
 
-#Employment #Welfare

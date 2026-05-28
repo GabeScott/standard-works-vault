@@ -1,7 +1,5 @@
 # Our Heavenly Guidance System
 
-Dallin H. Oaks
-
 By Elder Sergio R. Vargas - *Of the Seventy*
 
 *Given in the April session of the 2025 General Conference*
@@ -115,7 +113,3 @@ I invite all of us today to center our lives on Jesus Christ and His teachings. 
 
 [^23]: See [[Hebrews 3.6|Hebrews 3:6]].
 
-
-
-
-#Divine_Nature #Endurance #Eternal_Life #Jesus_Christ

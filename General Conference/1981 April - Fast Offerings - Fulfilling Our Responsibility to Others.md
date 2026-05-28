@@ -1,7 +1,5 @@
 # Fast Offerings: Fulfilling Our Responsibility to Others
 
-Marion G. Romney
-
 By Bishop Victor L. Brown - *Presiding Bishop*
 
 *Given in the April session of the 1981 General Conference*
@@ -137,4 +135,3 @@ May the Lord bless us to be wise and sound stewards in blessing the people with 
 
 
 
-#Fasting

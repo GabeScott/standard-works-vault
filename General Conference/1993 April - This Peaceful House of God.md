@@ -1,7 +1,5 @@
 # This Peaceful House of God
 
-Thomas S. Monson
-
 By President Gordon B. Hinckley - *First Counselor in the First Presidency*
 
 *Given in the April session of the 1993 General Conference*
@@ -125,4 +123,3 @@ I hope that as we do so, there will be stirred within each of us a flaming testi
 
 
 
-#Faith #Temples

@@ -1,7 +1,5 @@
 # The Correct Name of the Church
 
-Russell M. Nelson
-
 By President Russell M. Nelson - *President of the Church*
 
 *Given in the October session of the 2018 General Conference*
@@ -121,7 +119,3 @@ I know that God lives. Jesus is the Christ. He leads His Church today. I so test
 
 [^17]: See [[D&C 121.33|Doctrine and Covenants 121:33]].
 
-
-
-
-#Atonement #Jesus_Christ #Name_Of_Church #Restoration

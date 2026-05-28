@@ -1,7 +1,5 @@
 # The Book of Mormon: Another Testament of Jesus Christ—Plain and Precious Things
 
-Gordon B. Hinckley
-
 By President Boyd K. Packer - *Acting President of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2005 General Conference*
@@ -145,4 +143,3 @@ And I join the millions of others who have that testimony, and bear it to you in
 
 
 
-#Book_Of_Mormon #Faith #Holy_Ghost #Jesus_Christ #Plan_Of_Salvation #Prayer #Scripture_Study

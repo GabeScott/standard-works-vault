@@ -1,7 +1,5 @@
 # The Eternal Principle of Love
 
-Dallin H. Oaks
-
 By Elder Hugo Montoya - *Of the Seventy*
 
 *Given in the October session of the 2022 General Conference*
@@ -109,7 +107,3 @@ Jesus is the Christ, the Son of the living God. He lives, and because He lives, 
 
 [^12]: [[Matthew 26.39|Matthew 26:39]].
 
-
-
-
-#Adversity #Jesus_Christ #Love

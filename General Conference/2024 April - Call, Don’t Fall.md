@@ -1,7 +1,5 @@
 # Call, Don’t Fall
 
-Dallin H. Oaks
-
 By Elder Taylor G. Godoy - *Of the Seventy*
 
 *Given in the April session of the 2024 General Conference*
@@ -113,7 +111,3 @@ As we pray we can feel the embrace of our Heavenly Father, who sent His Only Beg
 
 [^9]: “Did You Think to Pray?,” *Hymns*, no. 140.
 
-
-
-
-#Adversity #Faith #Prayer #Revelation

@@ -1,7 +1,5 @@
 # Making Faith a Reality
 
-Gordon B. Hinckley
-
 By Janette Hales Beckham - *Recently Released Young Women General President*
 
 *Given in the October session of the 1997 General Conference*
@@ -55,4 +53,3 @@ May I, in concluding my service, express my love and appreciation to the many wh
 
 
 
-#Atonement #Evil #Faith #Family #Holy_Ghost #Home #Repentance #Scriptures #Young_Women

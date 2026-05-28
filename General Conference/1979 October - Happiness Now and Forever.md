@@ -1,7 +1,5 @@
 # Happiness Now and Forever
 
-Spencer W. Kimball
-
 By Elder Richard G. Scott - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1979 General Conference*
@@ -55,4 +53,3 @@ With all the sincerity of my soul, in deep humility, I solemnly testify that God
 
 
 
-#Holy_Ghost

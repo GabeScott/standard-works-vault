@@ -1,7 +1,5 @@
 # Repentance: A Joyful Choice
 
-Jean B. Bingham
-
 By Elder Dale G. Renlund - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2016 General Conference*
@@ -133,7 +131,3 @@ Brothers and sisters, as we conclude this conference, I invite you to feel more 
 
 [^28]: See [[Mosiah 26.29|Mosiah 26:29–30]][[Mosiah 26.30|]]. While God promises to freely forgive, willfully sinning and counting on the Savior’s mercy to allow easy repentance is abhorrent to God (see [[Hebrews 6.4|Hebrews 6:4–6]][[Hebrews 6.5|]][[Hebrews 6.6|]]; [[Hebrews 10.26|10:26–27]][[Hebrews 10.27|]]). Elder Richard G. Scott said: “The joyful news for anyone who desires to be rid of the consequences of past poor choices is that the Lord sees weaknesses differently than He does rebellion. Whereas the Lord warns that unrepented rebellion will bring punishment, when the Lord speaks of weaknesses, it is always with mercy” (“[[2013 October - Personal Strength through the Atonement of Jesus Christ.md|Personal Strength through the Atonement of Jesus Christ]],” *Ensign* or *Liahona,* Nov. 2013, 83).
 
-
-
-
-#Atonement #Jesus_Christ #Joy #Repentance

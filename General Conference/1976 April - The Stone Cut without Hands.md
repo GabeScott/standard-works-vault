@@ -1,7 +1,5 @@
 # The Stone Cut without Hands
 
-Spencer W. Kimball
-
 By President Spencer W. Kimball - *President of the Church*
 
 *Given in the April session of the 1976 General Conference*
@@ -273,4 +271,3 @@ I know it is true. I know it is divine. I know it is the little stone that was c
 
 
 
-#Church_Growth #Financial_Management #Restoration #Work

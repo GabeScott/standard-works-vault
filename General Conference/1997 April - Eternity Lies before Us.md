@@ -1,7 +1,5 @@
 # Eternity Lies before Us
 
-Gordon B. Hinckley
-
 By President James E. Faust - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 1997 General Conference*
@@ -105,7 +103,3 @@ This I humbly pray in the name of the Lord Jesus Christ, amen.
 
 [^12]: *Teachings of the Prophet Joseph Smith,* sel. Joseph Fielding Smith (1976), 356.
 
-
-
-
-#Covenants #Death #Family #Jesus_Christ #Joseph_Smith #Parenthood #Pioneers #Plan_Of_Salvation #Resurrection #Spirituality #Temples

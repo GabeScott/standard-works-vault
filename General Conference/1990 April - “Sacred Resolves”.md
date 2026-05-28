@@ -1,7 +1,5 @@
 # “Sacred Resolves”
 
-Thomas S. Monson
-
 By President Gordon B. Hinckley - *First Counselor in the First Presidency*
 
 *Given in the April session of the 1990 General Conference*
@@ -51,4 +49,3 @@ To these words of his I add my own testimony that God our Eternal Father lives; 
 
 
 
-#Jesus_Christ

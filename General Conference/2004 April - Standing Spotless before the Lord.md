@@ -1,7 +1,5 @@
 # Standing Spotless before the Lord
 
-Gordon B. Hinckley
-
 By Elder Clate W. Mask Jr. - *Of the Seventy*
 
 *Given in the April session of the 2004 General Conference*
@@ -71,4 +69,3 @@ I bear witness that He lives and He loves us. He is our Savior and our Redeemer.
 
 
 
-#Atonement #Jesus_Christ #Love #Repentance

@@ -1,7 +1,5 @@
 # Revealed Truths of the Gospel
 
-Harold B. Lee
-
 By Elder LeGrand Richards - *Of the Council of the Twelve*
 
 *Given in the October session of the 1973 General Conference*
@@ -79,4 +77,3 @@ Brethren and sisters, I thank God for this great truth that has come to us in th
 
 
 
-#Family #Marriage

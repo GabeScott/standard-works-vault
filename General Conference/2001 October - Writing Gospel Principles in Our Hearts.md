@@ -1,7 +1,5 @@
 # Writing Gospel Principles in Our Hearts
 
-Gordon B. Hinckley
-
 By Elder Walter F. González - *Of the Seventy*
 
 *Given in the October session of the 2001 General Conference*
@@ -29,4 +27,3 @@ Making time in our lives to learn, to ponder, and especially to practice gospel 
 
 
 
-#Book_Of_Mormon #Discipleship #Education #Gratitude #Joy #Missionary_Work #Peace #Prayer #Priorities

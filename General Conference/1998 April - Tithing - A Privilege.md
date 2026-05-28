@@ -1,7 +1,5 @@
 # Tithing: A Privilege
 
-Gordon B. Hinckley
-
 By Elder Ronald E. Poelman - *Of the Seventy*
 
 *Given in the April session of the 1998 General Conference*
@@ -58,7 +56,7 @@ The gift filled a temporal need but is still a poignant reminder of the spiritua
 
 The really serious challenges in life require not so much temporal resources but the gifts of the Spirit. Among such challenges might be the sickness, suffering, or death of a loved one; a rebellious and disobedient family member; false accusations; and other severe disappointments. During such trials we need increased faith, inspiration, comfort, courage, patience, and the ability to forgive. These blessings can be poured out of the windows of heaven.
 
-There comes to mind those good and faithful people who believed the teachings of Alma the Elder and came into the fold of God. The Book of Mormon records that they were obedient and righteous (see [[Mosiah 18.1|Mosiah 18]]). Notwithstanding their goodness, they suffered great afflictions at the hands of their enemies. When they poured out their hearts to God, He answered them with words of comfort, assuring them that He would visit them in their afflictions (see [[Mosiah 24.14|Mosiah 24:14]]).
+There comes to mind those good and faithful people who believed the teachings of Alma the Elder and came into the fold of God. The Book of Mormon records that they were obedient and righteous (see [[Mosiah 18.1|Mosiah 18]][[Mosiah 18.2|]][[Mosiah 18.3|]][[Mosiah 18.4|]][[Mosiah 18.5|]][[Mosiah 18.6|]][[Mosiah 18.7|]][[Mosiah 18.8|]][[Mosiah 18.9|]][[Mosiah 18.10|]][[Mosiah 18.11|]][[Mosiah 18.12|]][[Mosiah 18.13|]][[Mosiah 18.14|]][[Mosiah 18.15|]][[Mosiah 18.16|]][[Mosiah 18.17|]][[Mosiah 18.18|]][[Mosiah 18.19|]][[Mosiah 18.20|]][[Mosiah 18.21|]][[Mosiah 18.22|]][[Mosiah 18.23|]][[Mosiah 18.24|]][[Mosiah 18.25|]][[Mosiah 18.26|]][[Mosiah 18.27|]][[Mosiah 18.28|]][[Mosiah 18.29|]][[Mosiah 18.30|]][[Mosiah 18.31|]][[Mosiah 18.32|]][[Mosiah 18.33|]][[Mosiah 18.34|]][[Mosiah 18.35|]]). Notwithstanding their goodness, they suffered great afflictions at the hands of their enemies. When they poured out their hearts to God, He answered them with words of comfort, assuring them that He would visit them in their afflictions (see [[Mosiah 24.14|Mosiah 24:14]]).
 
 Then we read, “The Lord did strengthen them that they could bear up their burdens with ease, and they did submit cheerfully and with patience to all the will of the Lord” ([[Mosiah 24.15|Mosiah 24:15]]).
 
@@ -75,4 +73,3 @@ Finally, and most importantly, I testify that I know that God lives, is our Fath
 
 
 
-#Adversity #Blessings #Obedience #Sacrifice #Temples #Tithing

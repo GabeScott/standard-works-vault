@@ -1,7 +1,5 @@
 # Fulfilling the Purpose of Relief Society
 
-Thomas S. Monson
-
 By Julie B. Beck - *Relief Society General President*
 
 *Given in the October session of the 2008 General Conference*
@@ -125,7 +123,3 @@ The only way we can accomplish this is by seeking, receiving, and acting on pers
 
 [^21]: Spencer W. Kimball, “Relief Society—Its Promise and Potential,” *Ensign,* Mar. 1976, 4.
 
-
-
-
-#Faith #Family #Relief_Society #Service #Women

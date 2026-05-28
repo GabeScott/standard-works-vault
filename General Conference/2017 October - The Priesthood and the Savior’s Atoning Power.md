@@ -1,7 +1,5 @@
 # The Priesthood and the Savior’s Atoning Power
 
-Sharon Eubank
-
 By Elder Dale G. Renlund - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2017 General Conference*
@@ -111,7 +109,3 @@ In addition to obeying the laws and ordinances of the gospel yourself, I invite 
 
 [^24]: [[Mosiah 4.2|Mosiah 4:2]].
 
-
-
-
-#Aaronic_Priesthood #Atonement #Covenants #Jesus_Christ #Melchizedek_Priesthood #Priesthood

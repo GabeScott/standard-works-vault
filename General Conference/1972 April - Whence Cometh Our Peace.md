@@ -1,7 +1,5 @@
 # Whence Cometh Our Peace?
 
-Wilford G. Edling
-
 By Elder John H. Vandenberg - *Assistant to the Council of the Twelve*
 
 *Given in the April session of the 1972 General Conference*
@@ -115,4 +113,3 @@ God be with you and bless you as we go forth to carry out our assignments, whate
 
 
 
-#Peace

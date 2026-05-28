@@ -1,7 +1,5 @@
 # The Challenge to Become
 
-Gordon B. Hinckley
-
 By Elder Dallin H. Oaks - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2000 General Conference*
@@ -83,4 +81,3 @@ I testify of Jesus Christ, our Savior and our Redeemer, whose Church this is. I 
 
 
 
-#Adversity #Charity #Conversion #Family #Goals #Holy_Ghost #Ordinances #Spirituality

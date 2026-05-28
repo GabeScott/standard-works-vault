@@ -1,7 +1,5 @@
 # Look to the Book, Look to the Lord
 
-Jean B. Bingham
-
 By Elder Gary E. Stevenson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2016 General Conference*
@@ -95,7 +93,3 @@ Within the book’s pages, you will discover the infinite love and incomprehensi
 
 [^10]: [[Moroni 10.4|Moroni 10:4]]; see also [[Moroni 10.3|verses 3, 5]][[Moroni 10.5|]].
 
-
-
-
-#Book_Of_Mormon #Church_History #Holy_Ghost #Joseph_Smith #Testimony

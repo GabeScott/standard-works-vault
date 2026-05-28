@@ -1,7 +1,5 @@
 # “I Will Never Be the Same Again”
 
-Spencer W. Kimball
-
 By Bishop J. Richard Clarke - *Second Counselor in the Presiding Bishopric*
 
 *Given in the October session of the 1976 General Conference*
@@ -31,4 +29,3 @@ Now I pray for the Lord’s blessings upon all of us, that we may fulfill the ri
 
 
 
-#Testimony

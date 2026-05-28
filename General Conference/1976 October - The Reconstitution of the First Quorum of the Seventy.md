@@ -1,7 +1,5 @@
 # The Reconstitution of the First Quorum of the Seventy
 
-Spencer W. Kimball
-
 By President Spencer W. Kimball - *President of the Church*
 
 *Given in the October session of the 1976 General Conference*
@@ -25,4 +23,3 @@ President N. Eldon Tanner, first counselor in the First Presidency of the Church
 
 
 
-#Quorums_Of_Seventy

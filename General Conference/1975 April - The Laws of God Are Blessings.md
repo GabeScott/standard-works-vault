@@ -1,7 +1,5 @@
 # The Laws of God Are Blessings
 
-Spencer W. Kimball
-
 By Elder ElRay L. Christiansen - *Assistant to the Council of the Twelve*
 
 *Given in the April session of the 1975 General Conference*
@@ -65,4 +63,3 @@ May the world take heed while the day yet lasts, for when the night cometh, no m
 
 
 
-#Commandments #Laws #Obedience

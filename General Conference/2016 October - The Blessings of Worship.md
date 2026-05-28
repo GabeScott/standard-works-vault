@@ -1,7 +1,5 @@
 # The Blessings of Worship
 
-Jean B. Bingham
-
 By Bishop Dean M. Davies - *First Counselor in the Presiding Bishopric*
 
 *Given in the October session of the 2016 General Conference*
@@ -163,7 +161,3 @@ That is the blessing of worship in our lives. Of this I humbly testify in the sa
 
 [^11]: [[Psalms 100.4|Psalm 100:4–5]][[Psalms 100.5|]].
 
-
-
-
-#Charity #Discipleship #Faith #Hope #Sabbath #Worship

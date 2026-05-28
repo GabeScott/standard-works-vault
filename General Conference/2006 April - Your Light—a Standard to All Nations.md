@@ -1,7 +1,5 @@
 # Your Light—a Standard to All Nations
 
-Robert D. Hales
-
 By President James E. Faust - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 2006 General Conference*
@@ -93,7 +91,3 @@ I hope and pray that the Lord’s choicest blessings will be with you wonderful 
 
 [^9]: See [[2 Peter 1.4|2 Peter 1:4]].
 
-
-
-
-#Conscience #Divine_Nature #Preparation #Spirituality

@@ -1,7 +1,5 @@
 # “Watchmen on the Tower”
 
-Thomas S. Monson
-
 By Elder Helvécio Martins - *Of the Seventy*
 
 *Given in the April session of the 1995 General Conference*
@@ -75,4 +73,3 @@ I bear this testimony in the sacred name of Jesus Christ, amen.
 
 
 
-#Ezra_Taft_Benson #Home_Teaching #Priesthood

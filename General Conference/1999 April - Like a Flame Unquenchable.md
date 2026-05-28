@@ -1,7 +1,5 @@
 # Like a Flame Unquenchable
 
-Gordon B. Hinckley
-
 By Elder M. Russell Ballard - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1999 General Conference*
@@ -61,4 +59,3 @@ My brothers and sisters, may God bless every one of us that the fire of our cove
 
 
 
-#Atonement #Bishops #Children #Commandments #Communication #Covenants #Evil #Example #Family #God_The_Father #Jesus_Christ #Marriage #Media #Morality #Parenthood #Prayer #Satan #Scripture_Study

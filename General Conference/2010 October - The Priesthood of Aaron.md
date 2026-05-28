@@ -1,7 +1,5 @@
 # The Priesthood of Aaron
 
-Thomas S. Monson
-
 By Elder L. Tom Perry - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2010 General Conference*
@@ -69,4 +67,3 @@ I also challenge you to determine today that you will honor this great blessing 
 
 
 
-#Aaronic_Priesthood #Priesthood #Restoration #Service

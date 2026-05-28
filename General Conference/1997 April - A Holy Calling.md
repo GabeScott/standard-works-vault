@@ -1,7 +1,5 @@
 # A Holy Calling
 
-Gordon B. Hinckley
-
 By Elder Monte J. Brough - *Of the Presidency of the Seventy*
 
 *Given in the April session of the 1997 General Conference*
@@ -67,4 +65,3 @@ That personal and prophetic revelation is the foundation upon which our Church s
 
 
 
-#Church_Callings #Jesus_Christ #Missionary_Work #Testimony

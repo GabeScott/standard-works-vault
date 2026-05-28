@@ -1,7 +1,5 @@
 # The Power of Righteousness
 
-Gordon B. Hinckley
-
 By Elder Richard G. Scott - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1998 General Conference*
@@ -57,4 +55,3 @@ I bear witness that the Savior lives. He loves you. He will guide you through th
 
 
 
-#Agency #Dedication #Example #Holy_Ghost #Honesty #Love #Media #Morality #Obedience #Repentance #Satan #Youth

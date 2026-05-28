@@ -1,7 +1,5 @@
 # The Lord’s People Receive Revelation
 
-Joseph Fielding Smith
-
 By President Bruce R. McConkie - *Of the First Council of the Seventy*
 
 *Given in the April session of the 1971 General Conference*
@@ -83,4 +81,3 @@ I bear testimony of these things because I have received revelation—revelation
 
 
 
-#Holy_Ghost #Religion #Spirituality

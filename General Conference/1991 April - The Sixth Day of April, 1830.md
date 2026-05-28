@@ -1,7 +1,5 @@
 # The Sixth Day of April, 1830
 
-Thomas S. Monson
-
 By President Howard W. Hunter - *President of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1991 General Conference*
@@ -55,4 +53,3 @@ I testify that the boy prophet, who in so many ways remains the central miracle 
 
 
 
-#Joseph_Smith #Restoration

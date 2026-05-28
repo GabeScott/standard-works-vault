@@ -1,7 +1,5 @@
 # The Phenomenon That Is You
 
-Gordon B. Hinckley
-
 By President James E. Faust - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 2003 General Conference*
@@ -95,7 +93,3 @@ I further testify that the Lord directs and inspires President Hinckley as he le
 
 [^14]: Wilford Woodruff, *The Discourses of Wilford Woodruff,* sel. G. Homer Durham (1946), 149.
 
-
-
-
-#Family #Family_History #Service #Temple_Work

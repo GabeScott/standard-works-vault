@@ -1,7 +1,5 @@
 # The Gospel of Jesus Christ
 
-Dieter F. Uchtdorf
-
 By Elder L. Tom Perry - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2008 General Conference*
@@ -63,4 +61,3 @@ I love the gospel of Jesus Christ, for it defines the way we can partake of the 
 
 
 
-#Endurance #Ordinances #Plan_Of_Salvation #Repentance

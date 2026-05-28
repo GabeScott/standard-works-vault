@@ -1,7 +1,5 @@
 # Ye Shall Be Free
 
-Russell M. Nelson
-
 By Elder Thierry K. Mutombo - *Of the Seventy*
 
 *Given in the April session of the 2021 General Conference*
@@ -59,4 +57,3 @@ I testify of Him who died, was buried, and rose again the third day and ascended
 
 
 
-#Adversity #Conversion #Gospel #Jesus_Christ #Joseph_Smith #Truth

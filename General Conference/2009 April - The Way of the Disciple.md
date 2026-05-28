@@ -1,7 +1,5 @@
 # The Way of the Disciple
 
-Thomas S. Monson
-
 By President Dieter F. Uchtdorf - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 2009 General Conference*
@@ -123,7 +121,3 @@ I bear my solemn witness that Jesus the Christ lives. He is the Savior and Redee
 
 [^12]: Joseph B. Wirthlin, in Conference Report, Oct. 2007, [[2007 October - The Great Commandment.md|29]]; or *Ensign,* Nov. 2007, 29–30.
 
-
-
-
-#Discipleship #Hope #Jesus_Christ #Patience

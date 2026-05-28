@@ -1,7 +1,5 @@
 # A Handful of Meal and a Little Oil
 
-James E. Faust
-
 By Elder Jeffrey R. Holland - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1996 General Conference*
@@ -113,7 +111,3 @@ May God, who has blessed all of us so mercifully and many of us so abundantly, b
 
 [^17]: Drusilla Dorris Hendricks, “Historical Sketch of James Hendricks and Drusilla Dorris Hendricks,” Historical Department, Archives Division, The Church of Jesus Christ of Latter-day Saints, Salt Lake City, typescript, 19–23.
 
-
-
-
-#Atonement #Faith #Generosity #Holy_Ghost #Jesus_Christ #Neighbors

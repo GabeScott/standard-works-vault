@@ -1,7 +1,5 @@
 # Ocean Currents and Family Influences
 
-Spencer W. Kimball
-
 By President Spencer W. Kimball - *President of the Church*
 
 *Given in the October session of the 1974 General Conference*
@@ -83,4 +81,3 @@ I know that Jesus is the Christ, the Son of the living God. I know that. I know 
 
 
 
-#Commitment #Family

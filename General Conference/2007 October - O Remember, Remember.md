@@ -1,7 +1,5 @@
 # O Remember, Remember
 
-Gordon B. Hinckley
-
 By President Henry B. Eyring - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 2007 General Conference*
@@ -85,7 +83,3 @@ Tonight, and tomorrow night, you might pray and ponder, asking the questions: Di
 
 [^7]: [[Moroni 7.16|Moroni 7:16–17, 19]][[Moroni 7.17|]][[Moroni 7.19|]].
 
-
-
-
-#Blessings #Family_History #Gratitude #Holy_Ghost #Testimony

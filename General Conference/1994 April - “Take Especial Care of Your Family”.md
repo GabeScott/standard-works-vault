@@ -1,7 +1,5 @@
 # “Take Especial Care of Your Family”
 
-James E. Faust
-
 By Elder Neal A. Maxwell - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1994 General Conference*
@@ -115,7 +113,3 @@ Praise be to Jesus for bearing the sins and pains of all “the family of Adam�
 
 [^13]: In Neal A. Maxwell, *That My Family Should Partake* (Salt Lake City: Deseret Book Co., 1974), p. 56.
 
-
-
-
-#Accountability #Authority #Children #Family #Love #Parenthood #Perspective #Priorities #Violence

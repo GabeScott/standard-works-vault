@@ -1,7 +1,5 @@
 # Little Children
 
-Ezra Taft Benson
-
 By Elder Boyd K. Packer - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1986 General Conference*
@@ -183,4 +181,3 @@ God grant that all little children will be safe with every one of us because the
 
 
 
-#Abuse #Children #Marriage #Parenthood #Repentance

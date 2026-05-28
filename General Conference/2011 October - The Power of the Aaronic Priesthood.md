@@ -1,7 +1,5 @@
 # The Power of the Aaronic Priesthood
 
-Richard G. Scott
-
 By Bishop Keith B. McMullin - *Second Counselor in the Presiding Bishopric*
 
 *Given in the October session of the 2011 General Conference*
@@ -145,7 +143,3 @@ I bear witness, God is our Eternal Father and dwells in yonder heavens. Jesus th
 
 [^26]: Thomas S. Monson, General Authority training meeting, Apr. 2010.
 
-
-
-
-#Holy_Ghost #Priesthood #Service #Spirituality #Youth

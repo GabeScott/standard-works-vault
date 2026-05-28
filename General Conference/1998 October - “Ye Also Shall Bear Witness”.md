@@ -1,7 +1,5 @@
 # “Ye Also Shall Bear Witness”
 
-Gordon B. Hinckley
-
 By Elder Ronald T. Halverson - *Of the Seventy*
 
 *Given in the October session of the 1998 General Conference*
@@ -71,7 +69,3 @@ To this I bear my humble witness in the name of Jesus Christ, amen.
 
 [^9]: [[D&C 123.12|D&C 123:12]].
 
-
-
-
-#Jesus_Christ #Joy #Obedience #Peace #Testimony

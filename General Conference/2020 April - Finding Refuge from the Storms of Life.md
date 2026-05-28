@@ -1,7 +1,5 @@
 # Finding Refuge from the Storms of Life
 
-Russell M. Nelson
-
 By Elder Ricardo P. Giménez - *Of the Seventy*
 
 *Given in the April session of the 2020 General Conference*
@@ -83,4 +81,3 @@ As we face the storms of life, I know that if we make our best effort and rely u
 
 
 
-#Adversity #Faith #Jesus_Christ

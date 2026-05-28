@@ -1,7 +1,5 @@
 # Gifts of the Spirit
 
-Spencer W. Kimball
-
 By Elder James A. Cullimore - *Assistant to the Council of the Twelve*
 
 *Given in the October session of the 1974 General Conference*
@@ -131,4 +129,3 @@ May we so live that we may always have the companionship of the Holy Spirit and 
 
 
 
-#Healing #Spirituality

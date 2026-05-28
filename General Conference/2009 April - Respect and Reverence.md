@@ -1,7 +1,5 @@
 # Respect and Reverence
 
-Thomas S. Monson
-
 By Margaret S. Lifferth - *First Counselor in the Primary General Presidency*
 
 *Given in the April session of the 2009 General Conference*
@@ -81,7 +79,3 @@ I believe the promises of a prophet. I know that I have a loving Heavenly Father
 
 [^9]: Boyd K. Packer, in Conference Report, Oct. 1991, [[1991 October - Reverence Invites Revelation.md|29–30]]; or *Ensign,* Nov. 1991, 23.
 
-
-
-
-#Example #Respect #Reverence #Teaching

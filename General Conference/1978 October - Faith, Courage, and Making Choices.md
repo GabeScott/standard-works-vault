@@ -1,7 +1,5 @@
 # Faith, Courage, and Making Choices
 
-Spencer W. Kimball
-
 By Elder Dean L. Larsen - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1978 General Conference*
@@ -49,4 +47,3 @@ May God help each of us to “pay the price” so that we may one day be qualifi
 
 
 
-#Agency #Loyalty #Youth

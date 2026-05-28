@@ -1,7 +1,5 @@
 # Divine Authority, Sublime Young Men
 
-Dallin H. Oaks
-
 By President Steven J. Lund - *Young Men General President*
 
 *Given in the April session of the 2025 General Conference*
@@ -111,7 +109,3 @@ I am forever grateful that holders of the Aaronic Priesthood, with its powers, o
 
 [^2]: In his seminal general conference address “[[2024 October - Welcome to the Church of Joy.md|Welcome to the Church of Joy]],” Elder Kearon directed us in footnote 10 to President Gordon B. Hinckley’s teaching: “When you, as a priest, kneel at the sacrament table and offer up the prayer, which came by revelation, you place the entire congregation under covenant with the Lord. Is this a small thing? It is a most important and remarkable thing” (“[[1988 April - The Aaronic Priesthood—a Gift from God.md|The Aaronic Priesthood—a Gift from God]],” *Ensign*, May 1988, 46).
 
-
-
-
-#Aaronic_Priesthood #Priesthood_Authority #Sacrament #Service #Youth

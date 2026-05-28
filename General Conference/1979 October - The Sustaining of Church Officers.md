@@ -1,7 +1,5 @@
 # The Sustaining of Church Officers
 
-Spencer W. Kimball
-
 By President N. Eldon Tanner - *First Counselor in the First Presidency*
 
 *Given in the October session of the 1979 General Conference*

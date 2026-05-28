@@ -1,7 +1,5 @@
 # Be Slow to Anger
 
-Joseph Fielding Smith
-
 By Elder ElRay L. Christiansen - *Assistant to the Council of the Twelve*
 
 *Given in the April session of the 1971 General Conference*
@@ -83,4 +81,3 @@ If we will do this, we will be more greatly blessed as individuals and our homes
 
 
 
-#Anger #Forgiveness

@@ -1,7 +1,5 @@
 # “Her Children Arise Up, and Call Her Blessed”
 
-Spencer W. Kimball
-
 By Barbara B. Smith - *Relief Society General President*
 
 *Given in the April session of the 1982 General Conference*
@@ -109,4 +107,3 @@ In the end it is you wonderful, wonderful mothers—you who have put your famili
 
 
 
-#Employment #Motherhood

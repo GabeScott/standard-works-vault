@@ -1,7 +1,5 @@
 # Can There Any Good Thing Come Out of Nazareth?
 
-Gordon B. Hinckley
-
 By Elder George P. Lee - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1985 General Conference*
@@ -75,4 +73,3 @@ May the Lord bless all the Saints of God throughout the world. May He bless all 
 
 
 
-#Adversity #Jesus_Christ

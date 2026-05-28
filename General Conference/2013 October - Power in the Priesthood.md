@@ -1,7 +1,5 @@
 # Power in the Priesthood
 
-Thomas S. Monson
-
 By Elder Neil L. Andersen - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2013 General Conference*
@@ -167,7 +165,3 @@ As men and women, sisters and brothers, sons and daughters of God, we move forwa
 
 [^25]: M. Russell Ballard, “Strength in Counsel,” *Ensign,* Nov. 1993, 76.
 
-
-
-
-#Priesthood

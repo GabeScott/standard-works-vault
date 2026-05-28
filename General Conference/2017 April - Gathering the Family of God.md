@@ -1,7 +1,5 @@
 # Gathering the Family of God
 
-Bonnie H. Cordon
-
 By President Henry B. Eyring - *First Counselor in the First Presidency*
 
 *Given in the April session of the 2017 General Conference*
@@ -77,4 +75,3 @@ I testify that God the Father wants His children home again, in families and in 
 
 
 
-#Family #Family_History #Holy_Ghost #Jesus_Christ #Ordinances #Plan_Of_Salvation #Temple_Work #Youth

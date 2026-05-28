@@ -1,7 +1,5 @@
 # Gratitude
 
-James E. Faust
-
 By Elder Lloyd P. George - *Of the Seventy*
 
 *Given in the April session of the 1994 General Conference*
@@ -75,4 +73,3 @@ This testimony, and with a love unfeigned to all the special children of our Hea
 
 
 
-#Adversity #Godhead #Gratitude #Prayer

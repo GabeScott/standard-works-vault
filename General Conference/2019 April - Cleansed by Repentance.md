@@ -1,7 +1,5 @@
 # Cleansed by Repentance
 
-Ulisses Soares
-
 By President Dallin H. Oaks - *First Counselor in the First Presidency*
 
 *Given in the April session of the 2019 General Conference*
@@ -83,7 +81,3 @@ Because of God’s plan and the Atonement of Jesus Christ, I testify with a “p
 
 [^7]: See Tad R. Callister, *The Infinite Atonement* (2000), 27–29.
 
-
-
-
-#Atonement #Plan_Of_Salvation #Repentance

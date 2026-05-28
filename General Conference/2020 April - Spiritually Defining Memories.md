@@ -1,7 +1,5 @@
 # Spiritually Defining Memories
 
-Russell M. Nelson
-
 By Elder Neil L. Andersen - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2020 General Conference*
@@ -161,7 +159,3 @@ Jesus is the Christ, His gospel has been restored, and as we remain faithful, I 
 
 [^25]: One of President Thomas S. Monson’s favorite quotes is from the Scottish poet James M. Barrie: “God gave us memories, that we might have June roses in the December of our lives” (in Thomas S. Monson, “[[1998 October - Think to Thank.md|Think to Thank]],” *Ensign,* Nov. 1998, 19; *Liahona,* Jan. 1999, 22). The same is true with spiritual memories. They may be most helpful in the cold, trying times of our lives when we need those “June” spiritual memories.
 
-
-
-
-#Blessings #Joseph_Smith #Testimony

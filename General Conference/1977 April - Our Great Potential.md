@@ -1,7 +1,5 @@
 # Our Great Potential
 
-Spencer W. Kimball
-
 By President Spencer W. Kimball - *President of the Church*
 
 *Given in the April session of the 1977 General Conference*
@@ -104,4 +102,3 @@ I ask the Lord to bless us as we go to our homes, as we train our children, as w
 
 
 
-#Ordinances #Priesthood #Resurrection

@@ -1,7 +1,5 @@
 # “To Be Learned Is Good If …”
 
-Gordon B. Hinckley
-
 By Elder Boyd K. Packer - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1992 General Conference*
@@ -149,4 +147,3 @@ God grant that as a church and as families and as individuals we can bring up ou
 
 
 
-#Education #Institute #Seminary

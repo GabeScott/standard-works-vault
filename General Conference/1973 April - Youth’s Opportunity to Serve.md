@@ -1,7 +1,5 @@
 # Youth’s Opportunity to Serve
 
-Harold B. Lee
-
 By Robert L. Backman - *President, Aaronic Priesthood MIA Young Men*
 
 *Given in the April session of the 1973 General Conference*
@@ -53,4 +51,3 @@ I bear my witness to you that God is our Father, that he loves you. He has given
 
 
 
-#Leadership #Priesthood #Youth

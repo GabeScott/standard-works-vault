@@ -1,7 +1,5 @@
 # The Grand Key-Words for the Relief Society
 
-Gordon B. Hinckley
-
 By President James E. Faust - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 1996 General Conference*
@@ -83,7 +81,3 @@ May God bless each of you, my dear sisters, for all you are and all you do. May 
 
 [^8]: As told by Erma Adams Kunzler, former missionary in Portugal.
 
-
-
-
-#Adversity #Councils #Jesus_Christ #Prayer #Relief_Society #Service #Spirituality #Women

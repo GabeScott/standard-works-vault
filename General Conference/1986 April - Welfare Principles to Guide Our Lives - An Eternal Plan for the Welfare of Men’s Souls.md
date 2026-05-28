@@ -1,7 +1,5 @@
 # Welfare Principles to Guide Our Lives: An Eternal Plan for the Welfare of Men’s Souls
 
-Ezra Taft Benson
-
 By Bishop Robert D. Hales - *Presiding Bishop*
 
 *Given in the April session of the 1986 General Conference*
@@ -66,4 +64,3 @@ That you and I might realize that we have the power and responsibility to help t
 
 
 
-#Love #Service #Welfare

@@ -1,7 +1,5 @@
 # Touching the Hearts of Less-Active Members
 
-Ezra Taft Benson
-
 By Elder Gardner H. Russell - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1986 General Conference*
@@ -53,4 +51,3 @@ I bear my humble witness that our leaders are inspired and receive revelation fo
 
 
 
-#Activation #Forgiveness #Love #Missionary_Work #Repentance

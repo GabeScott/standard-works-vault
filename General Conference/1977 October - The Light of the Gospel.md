@@ -1,7 +1,5 @@
 # The Light of the Gospel
 
-Spencer W. Kimball
-
 By President N. Eldon Tanner - *First Counselor in the First Presidency*
 
 *Given in the October session of the 1977 General Conference*
@@ -158,4 +156,3 @@ May each of us so live that through our works of righteousness, and with the lig
 
 
 
-#Example #Restoration #Spirituality

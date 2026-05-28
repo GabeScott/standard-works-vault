@@ -1,7 +1,5 @@
 # The Principle of Work
 
-Thomas S. Monson
-
 By Elder F. David Stanley - *Of the Seventy*
 
 *Given in the April session of the 1993 General Conference*
@@ -55,4 +53,3 @@ God lives, and I know it. This is his work, and he expects each of us to do it. 
 
 
 
-#Missionary_Work #Service #Work

@@ -1,7 +1,5 @@
 # The Redemption of the Dead and the Testimony of Jesus
 
-Gordon B. Hinckley
-
 By Elder D. Todd Christofferson - *Of the Presidency of the Seventy*
 
 *Given in the October session of the 2000 General Conference*
@@ -165,7 +163,3 @@ Our charge extends as far and as deep as the love of God to encompass His childr
 
 [^41]: [[D&C 128.22|D&C 128:22]].
 
-
-
-
-#Agency #Atonement #Death #Family_History #Jesus_Christ #Obedience #Ordinances #Plan_Of_Salvation #Priesthood #Repentance #Service #Temple_Work #Temples #Testimony

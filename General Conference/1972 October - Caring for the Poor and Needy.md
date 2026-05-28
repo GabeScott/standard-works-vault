@@ -1,7 +1,5 @@
 # Caring for the Poor and Needy
 
-N. Eldon Tanner
-
 By President Marion G. Romney - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 1972 General Conference*
@@ -135,4 +133,3 @@ In the light of these scriptural teachings, it seems to me, brethren, that we sh
 
 
 
-#Welfare

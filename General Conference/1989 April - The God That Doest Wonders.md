@@ -1,7 +1,5 @@
 # The God That Doest Wonders
 
-Ezra Taft Benson
-
 By President Howard W. Hunter - *President of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1989 General Conference*
@@ -81,4 +79,3 @@ I say of our Father as the Psalmist said, “Thou art the God that doest wonders
 
 
 
-#Faith #Miracles

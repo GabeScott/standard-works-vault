@@ -1,7 +1,5 @@
 # The Greatest Generation of Missionaries
 
-Gordon B. Hinckley
-
 By Elder M. Russell Ballard - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2002 General Conference*
@@ -85,4 +83,3 @@ My brethren, I have spoken plainly tonight. I hope you can feel the love and the
 
 
 
-#Fatherhood #Missionary_Work #Preparation #Worthiness

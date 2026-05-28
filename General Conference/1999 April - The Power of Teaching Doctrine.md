@@ -1,7 +1,5 @@
 # The Power of Teaching Doctrine
 
-Gordon B. Hinckley
-
 By Elder Henry B. Eyring - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1999 General Conference*
@@ -91,4 +89,3 @@ I am grateful to live in a time when we and our families have the fulness of the
 
 
 
-#Church_Doctrine #Faith #God_The_Father #Jesus_Christ #Parenthood #Priesthood #Resurrection #Satan #Teaching

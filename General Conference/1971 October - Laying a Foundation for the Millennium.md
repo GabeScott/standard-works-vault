@@ -1,7 +1,5 @@
 # Laying a Foundation for the Millennium
 
-Joseph Fielding Smith
-
 By Elder LeGrand Richards - *Of the Council of the Twelve*
 
 *Given in the October session of the 1971 General Conference*
@@ -105,4 +103,3 @@ No wonder we ought to want to lay a foundation comparable to that foundation upo
 
 
 
-#Articles_Of_Faith #Jesus_Christ #Restoration #Spirituality

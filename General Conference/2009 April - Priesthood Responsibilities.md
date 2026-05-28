@@ -1,7 +1,5 @@
 # Priesthood Responsibilities
 
-Thomas S. Monson
-
 By Elder Claudio R. M. Costa - *Of the Presidency of the Seventy*
 
 *Given in the April session of the 2009 General Conference*
@@ -103,7 +101,3 @@ I know that the Church is true. I know that Joseph Smith is a prophet of God. I 
 
 [^15]: [[Matthew 11.29|Matthew 11:29–30]][[Matthew 11.30|]].
 
-
-
-
-#Family_Home_Evening #Priesthood #Responsibility

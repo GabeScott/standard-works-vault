@@ -1,7 +1,5 @@
 # Prayer
 
-Thomas S. Monson
-
 By Elder David E. Sorensen - *Of the Seventy*
 
 *Given in the April session of the 1993 General Conference*
@@ -61,4 +59,3 @@ I testify that God lives, that Jesus is the Christ, that Joseph Smith was the Pr
 
 
 
-#Communication #Faith #Prayer

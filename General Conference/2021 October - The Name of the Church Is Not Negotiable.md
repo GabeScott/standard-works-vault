@@ -1,7 +1,5 @@
 # The Name of the Church Is Not Negotiable
 
-Russell M. Nelson
-
 By Elder Neil L. Andersen - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2021 General Conference*
@@ -149,7 +147,3 @@ I witness that Jesus is the Christ, the Son of God. In the name of Jesus Christ,
 
 [^21]: See [[D&C 84.88|Doctrine and Covenants 84:88]].
 
-
-
-
-#Jesus_Christ #Name_Of_Church #Revelation

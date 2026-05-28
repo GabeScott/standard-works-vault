@@ -1,7 +1,5 @@
 # Standing in Holy Places
 
-Gordon B. Hinckley
-
 By President James E. Faust - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 2005 General Conference*
@@ -75,7 +73,3 @@ As President Brigham Young taught, “Every moment of \[our lives\] must be holi
 
 [^12]: [[Helaman 10.5|Helaman 10:5]].
 
-
-
-
-#Home #Obedience #Peace #Temple_Work

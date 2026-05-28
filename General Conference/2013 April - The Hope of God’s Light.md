@@ -1,7 +1,5 @@
 # The Hope of God’s Light
 
-Thomas S. Monson
-
 By President Dieter F. Uchtdorf - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 2013 General Conference*
@@ -139,7 +137,3 @@ As you walk toward the hope of God’s light, you will discover the compassion, 
 
 [^9]: [[1 John 1.5|1 John 1:5]].
 
-
-
-
-#Adversity #Healing #Hope #Jesus_Christ

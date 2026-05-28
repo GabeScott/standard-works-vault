@@ -1,7 +1,5 @@
 # The Sustaining of Church Officers
 
-Gordon B. Hinckley
-
 By Presented by President Thomas S. Monson - *First Counselor in the First Presidency*
 
 *Given in the April session of the 2002 General Conference*

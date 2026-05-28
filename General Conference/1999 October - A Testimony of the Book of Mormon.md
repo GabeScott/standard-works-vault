@@ -1,7 +1,5 @@
 # A Testimony of the Book of Mormon
 
-Gordon B. Hinckley
-
 By Elder Russell M. Nelson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1999 General Conference*
@@ -151,7 +149,7 @@ The Book of Mormon is true! I so testify in the name of Jesus Christ, amen.
 
 [^26]: See [[D&C 84.57|D&C 84:57]].
 
-[^27]: See [[3 Nephi 21.1|3 Ne. 21:1]]; [[3 Nephi 29.1|29]]: chapter heading.
+[^27]: See [[3 Nephi 21.1|3 Ne. 21:1]]; [[3 Nephi 29.1|29]][[3 Nephi 29.2|]][[3 Nephi 29.3|]][[3 Nephi 29.4|]][[3 Nephi 29.5|]][[3 Nephi 29.6|]][[3 Nephi 29.7|]][[3 Nephi 29.8|]][[3 Nephi 29.9|]]: chapter heading.
 
 [^28]: *Covenant* comes from the Latin *convenire,* which means “to come with,” “to agree.”
 
@@ -195,7 +193,3 @@ The Book of Mormon is true! I so testify in the name of Jesus Christ, amen.
 
 [^48]: [[D&C 20.14|D&C 20:14]].
 
-
-
-
-#Atonement #Book_Of_Mormon #Covenants #Family #Jesus_Christ #Joseph_Smith #Prophets #Testimony

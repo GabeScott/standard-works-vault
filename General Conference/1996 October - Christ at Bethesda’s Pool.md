@@ -1,7 +1,5 @@
 # Christ at Bethesda’s Pool
 
-Gordon B. Hinckley
-
 By President Thomas S. Monson - *First Counselor in the First Presidency*
 
 *Given in the October session of the 1996 General Conference*
@@ -203,7 +201,3 @@ This expression describes Bethesda’s blessing. Of this divine truth I testify.
 
 [^18]: *Ye Are the Light of the World* (1974), 292; emphasis added.
 
-
-
-
-#Blessings #Jesus_Christ #Service

@@ -1,7 +1,5 @@
 # Let Him Do It with Simplicity
 
-Thomas S. Monson
-
 By Elder L. Tom Perry - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2008 General Conference*
@@ -67,4 +65,3 @@ In our search to obtain relief from the stresses of life, may we earnestly seek 
 
 
 
-#Adversity #Financial_Management #Morality #Preparation #Priorities #Word_Of_Wisdom

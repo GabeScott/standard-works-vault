@@ -1,7 +1,5 @@
 # Be Thou Humble
 
-Cheryl A. Esplin
-
 By Elder Steven E. Snow - *Of the Seventy*
 
 *Given in the April session of the 2016 General Conference*
@@ -81,7 +79,3 @@ I testify of the importance of humility in our lives. I am grateful for the indi
 
 [^12]: Dallin H. Oaks, “[[1994 October - Worship through Music.md|Worship through Music]],” *Ensign,* Nov. 1994, 10.
 
-
-
-
-#Adversity #Children #Humility #Music #Prophets

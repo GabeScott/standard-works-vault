@@ -1,7 +1,5 @@
 # The Coming Tests and Trials and Glory
 
-Spencer W. Kimball
-
 By Elder Bruce R. McConkie - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1980 General Conference*
@@ -133,4 +131,3 @@ In the name of the Lord Jesus Christ, amen.
 
 
 
-#Adversity #Last_Days

@@ -1,7 +1,5 @@
 # Strengthening Families: Our Sacred Duty
 
-Gordon B. Hinckley
-
 By Elder Robert D. Hales - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1999 General Conference*
@@ -125,4 +123,3 @@ May we be able to welcome and maintain the Spirit of the Lord in our homes to st
 
 
 
-#Adversity #Anger #Children #Councils #Family #Family_History #Family_Home_Evening #Home #Parenthood #Prophets #Scripture_Study #Teaching #Testimony

@@ -1,7 +1,5 @@
 # Gratitude and Thanksgiving
 
-Spencer W. Kimball
-
 By President Marion G. Romney - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 1982 General Conference*
@@ -101,4 +99,3 @@ Now, brethren and sisters, I bear my testimony to you that the Lord wants us to 
 
 
 
-#Gratitude

@@ -1,7 +1,5 @@
 # Family Research
 
-Spencer W. Kimball
-
 By Elder Eldred G. Smith - *Patriarch to the Church*
 
 *Given in the October session of the 1975 General Conference*
@@ -61,4 +59,3 @@ May His blessings be upon all those who are diligent in this work, that we may p
 
 
 
-#Family_History #Temple_Work

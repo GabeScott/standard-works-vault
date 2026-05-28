@@ -1,7 +1,5 @@
 # The Angel Moroni Came!
 
-Gordon B. Hinckley
-
 By Elder Mark E. Petersen - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1983 General Conference*
@@ -121,4 +119,3 @@ And most solemnly we testify that Jesus Christ of Nazareth is the Son of God, ou
 
 
 
-#Angels

@@ -1,7 +1,5 @@
 # A 12-Year-Old Deacon
 
-Dieter F. Uchtdorf
-
 By Elder John M. Madsen - *Of the Seventy*
 
 *Given in the April session of the 2008 General Conference*
@@ -95,7 +93,3 @@ I so testify, as I also bear my witness that President Thomas S. Monson is indee
 
 [^23]: [[D&C 93.1|D&C 93:1, 19]][[D&C 93.19|]]; see also [[John 14.6|John 14:6]]; [[2 Nephi 31.7|2 Nephi 31:7–16]][[2 Nephi 31.8|]][[2 Nephi 31.9|]][[2 Nephi 31.10|]][[2 Nephi 31.11|]][[2 Nephi 31.12|]][[2 Nephi 31.13|]][[2 Nephi 31.14|]][[2 Nephi 31.15|]][[2 Nephi 31.16|]]; [[3 Nephi 12.48|3 Nephi 12:48]]; [[3 Nephi 27.27|27:27]]; [[Moroni 10.32|Moroni 10:32–33]][[Moroni 10.33|]]; [[D&C 76.92|D&C 76:92–95]][[D&C 76.93|]][[D&C 76.94|]][[D&C 76.95|]].
 
-
-
-
-#Individual_Worth #Jesus_Christ #Priesthood

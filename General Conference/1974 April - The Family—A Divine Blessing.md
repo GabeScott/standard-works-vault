@@ -1,7 +1,5 @@
 # The Family—A Divine Blessing
 
-Spencer W. Kimball
-
 By Elder Rex D. Pinegar - *Of the First Council of the Seventy*
 
 *Given in the April session of the 1974 General Conference*
@@ -79,4 +77,3 @@ The Lord has blessed us with families that we might maintain our eternal relatio
 
 
 
-#Family

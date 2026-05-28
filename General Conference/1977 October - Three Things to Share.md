@@ -1,7 +1,5 @@
 # Three Things to Share
 
-Spencer W. Kimball
-
 By Elder Hugh W. Pinnock - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1977 General Conference*
@@ -21,4 +19,3 @@ Henry Van Dyke said a number of years ago: “There is only one way to get ready
 
 
 
-#Testimony

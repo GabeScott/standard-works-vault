@@ -1,7 +1,5 @@
 # “Fear Not: For They That Be with Us Are More”
 
-Gordon B. Hinckley
-
 By Sharon G. Larsen - *Second Counselor in the Young Women General Presidency*
 
 *Given in the October session of the 2001 General Conference*
@@ -59,4 +57,3 @@ I close with my testimony that we are not alone in this sacred trust of parentin
 
 
 
-#Evil #Example #Family #Leadership #Listening #Love #Parents #Spirituality #Temples #Young_Women #Youth

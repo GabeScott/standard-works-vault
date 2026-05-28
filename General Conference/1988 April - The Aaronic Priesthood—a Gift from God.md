@@ -1,7 +1,5 @@
 # The Aaronic Priesthood—a Gift from God
 
-Ezra Taft Benson
-
 By President Gordon B. Hinckley - *First Counselor in the First Presidency*
 
 *Given in the April session of the 1988 General Conference*
@@ -91,4 +89,3 @@ I bear my witness and testimony of these things as I invoke the blessings of the
 
 
 
-#Priesthood #Youth

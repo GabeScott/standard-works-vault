@@ -1,7 +1,5 @@
 # Statistical Report 1974
 
-Spencer W. Kimball
-
 By Presented by Francis M. Gibbons
 
 *Given in the April session of the 1975 General Conference*

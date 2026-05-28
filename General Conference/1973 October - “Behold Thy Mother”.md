@@ -1,7 +1,5 @@
 # “Behold Thy Mother”
 
-Harold B. Lee
-
 By Elder Thomas S. Monson - *Of the Council of the Twelve*
 
 *Given in the October session of the 1973 General Conference*
@@ -125,4 +123,3 @@ May we, by our thoughts and our actions, honor God and mother, I pray humbly yet
 
 
 
-#Love #Motherhood #Respect

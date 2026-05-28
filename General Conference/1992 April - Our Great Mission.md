@@ -1,7 +1,5 @@
 # Our Great Mission
 
-Thomas S. Monson
-
 By President Gordon B. Hinckley - *First Counselor in the First Presidency*
 
 *Given in the April session of the 1992 General Conference*
@@ -27,4 +25,3 @@ In behalf of President Benson and all of my Brethren, I invoke upon you, whereve
 
 
 
-#Jesus_Christ #Testimony

@@ -1,7 +1,5 @@
 # “He Is Not Here, but Is Risen”
 
-Gordon B. Hinckley
-
 By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the April session of the 1999 General Conference*
@@ -103,4 +101,3 @@ As an Apostle of the Lord Jesus Christ, I bear witness and testimony of these th
 
 
 
-#Adversity #Atonement #Death #Jesus_Christ #Resurrection

@@ -1,7 +1,5 @@
 # “Be of Good Cheer”
 
-Gordon B. Hinckley
-
 By Jeanne Inouye - *Provo Sixteenth Ward, Provo Utah Edgemont Stake*
 
 *Given in the October session of the 1993 General Conference*
@@ -51,4 +49,3 @@ I bear testimony of his love and interest in helping us, of the accessibility of
 
 
 
-#Family #Motherhood #Prayer

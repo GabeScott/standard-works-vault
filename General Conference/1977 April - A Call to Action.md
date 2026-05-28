@@ -1,7 +1,5 @@
 # A Call to Action
 
-Spencer W. Kimball
-
 By Barbara B. Smith - *Relief Society General President*
 
 *Given in the April session of the 1977 General Conference*
@@ -87,4 +85,3 @@ In the name of Jesus Christ, amen.
 
 
 
-#Relief_Society #Welfare

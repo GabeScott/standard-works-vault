@@ -1,7 +1,5 @@
 # Are We Not All Mothers?
 
-Gordon B. Hinckley
-
 By Sheri L. Dew - *Second Counselor in the Relief Society General Presidency*
 
 *Given in the October session of the 2001 General Conference*
@@ -77,7 +75,3 @@ I know, I absolutely know, that these doctrines about our divine role are true, 
 
 [^12]: See [[Job 38.7|Job 38:7]].
 
-
-
-
-#Children #Example #Faith #Holy_Ghost #Joy #Leadership #Love #Motherhood #Peace #Premortal_Existence #Priesthood #Relief_Society #Respect #Responsibility #Safety #Satan #Scriptures #Service #Talents #Truth #Women #Work

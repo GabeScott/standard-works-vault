@@ -1,7 +1,5 @@
 # Overcoming the Stench of Sin
 
-Gordon B. Hinckley
-
 By Elder Spencer V. Jones - *Of the Seventy*
 
 *Given in the April session of the 2003 General Conference*
@@ -55,4 +53,3 @@ I lovingly plead, “Do not procrastinate the day of your repentance” ([[Alma 
 
 
 
-#Atonement #Conscience #Repentance #Sin

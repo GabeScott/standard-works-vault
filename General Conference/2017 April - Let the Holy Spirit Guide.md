@@ -1,7 +1,5 @@
 # Let the Holy Spirit Guide
 
-Bonnie H. Cordon
-
 By Elder Ronald A. Rasband - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2017 General Conference*
@@ -133,7 +131,3 @@ May we take seriously the Lord’s call to “be of good cheer, for I will lead 
 
 [^21]: [[D&C 78.18|Doctrine and Covenants 78:18]].
 
-
-
-
-#God_The_Father #Godhead #Holy_Ghost #Jesus_Christ #Promptings #Worthiness

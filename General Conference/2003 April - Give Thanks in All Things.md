@@ -1,7 +1,5 @@
 # Give Thanks in All Things
 
-Gordon B. Hinckley
-
 By Elder Dallin H. Oaks - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2003 General Conference*
@@ -85,4 +83,3 @@ I pray that we will be blessed to understand the truth and purpose of the doctri
 
 
 
-#Adversity #Gratitude #Jesus_Christ #Plan_Of_Salvation #Teaching

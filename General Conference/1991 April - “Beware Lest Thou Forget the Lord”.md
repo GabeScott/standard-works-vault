@@ -1,7 +1,5 @@
 # “Beware Lest Thou Forget the Lord”
 
-Thomas S. Monson
-
 By Elder Dean L. Larsen - *Of the Presidency of the Seventy*
 
 *Given in the April session of the 1991 General Conference*
@@ -111,4 +109,3 @@ And “when thou hast eaten and art full, then thou shalt bless the Lord thy God
 
 
 
-#Faith #Pride #Priorities #Wealth

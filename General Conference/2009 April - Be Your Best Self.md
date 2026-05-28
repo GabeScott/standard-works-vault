@@ -1,7 +1,5 @@
 # Be Your Best Self
 
-Thomas S. Monson
-
 By President Thomas S. Monson - *President of the Church*
 
 *Given in the April session of the 2009 General Conference*
@@ -117,7 +115,3 @@ The strength which we earnestly seek in order to meet the challenges of a comple
 
 [^10]: [[Joshua 24.15|Joshua 24:15]].
 
-
-
-
-#Blessings #Prayer #Priesthood #Scripture_Study

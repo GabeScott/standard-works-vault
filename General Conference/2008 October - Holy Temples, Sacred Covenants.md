@@ -1,7 +1,5 @@
 # Holy Temples, Sacred Covenants
 
-Thomas S. Monson
-
 By Silvia H. Allred - *First Counselor in the Relief Society General Presidency*
 
 *Given in the October session of the 2008 General Conference*
@@ -99,7 +97,3 @@ I testify to you that the temples are sacred, holy places. They are a source of 
 
 [^9]: See [[D&C 109.20|D&C 109:20]].
 
-
-
-
-#Covenants #Temples #Worthiness

@@ -1,7 +1,5 @@
 # “Teach Us Tolerance and Love”
 
-James E. Faust
-
 By Elder Russell M. Nelson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1994 General Conference*
@@ -169,7 +167,3 @@ That pronouncement is a contemporary confirmation of the Prophet Joseph’s earl
 
 [^25]: “Church Exhorts Ethnic, Religious Tolerance,” *Church News,* 24 Oct. 1992, p. 4.
 
-
-
-
-#Children #Commandments #God_The_Father #Love #Missionary_Work #Neighbors #Temples #Tolerance #Truth

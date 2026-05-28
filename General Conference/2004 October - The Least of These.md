@@ -1,7 +1,5 @@
 # The Least of These
 
-Gordon B. Hinckley
-
 By President Boyd K. Packer - *Acting President of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2004 General Conference*
@@ -121,4 +119,3 @@ Of this I bear an apostolic witness, in the name of Jesus Christ, amen.
 
 
 
-#Faith #Priesthood #Worthiness #Youth

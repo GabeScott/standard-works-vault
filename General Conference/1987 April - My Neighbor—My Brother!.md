@@ -1,7 +1,5 @@
 # My Neighbor—My Brother!
 
-Ezra Taft Benson
-
 By Elder David B. Haight - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1987 General Conference*
@@ -119,4 +117,3 @@ This work is divinely directed. God lives. Jesus is the Son of God. I so testify
 
 
 
-#Brotherhood #Missionary_Work #Service #Testimony

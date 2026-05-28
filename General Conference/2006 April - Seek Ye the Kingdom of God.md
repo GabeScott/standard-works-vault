@@ -1,7 +1,5 @@
 # Seek Ye the Kingdom of God
 
-Robert D. Hales
-
 By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the April session of the 2006 General Conference*
@@ -96,4 +94,3 @@ I leave you my testimony, my witness, and my love for each of you, in the name o
 
 
 
-#Agency #Gratitude #Testimony

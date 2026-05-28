@@ -1,7 +1,5 @@
 # No Greater Joy Than to Know That They Know
 
-Jean B. Bingham
-
 By Elder K. Brett Nattress - *Of the Seventy*
 
 *Given in the October session of the 2016 General Conference*
@@ -71,7 +69,3 @@ It is my prayer that we will devote our hearts and our hands to helping all of H
 
 [^2]: Boyd K. Packer, “[[1995 October - The Brilliant Morning of Forgiveness.md|The Brilliant Morning of Forgiveness]],” *Ensign,* Nov. 1995, 20.
 
-
-
-
-#Atonement #Book_Of_Mormon #Divine_Nature #Family #Jesus_Christ #Motherhood #Parenthood #Scripture_Study

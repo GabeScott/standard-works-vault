@@ -1,7 +1,5 @@
 # The Love of God
 
-Dallin H. Oaks
-
 By Elder Benjamin M. Z. Tai - *Of the Seventy*
 
 *Given in the April session of the 2025 General Conference*
@@ -113,7 +111,3 @@ Dear friends, as one who has experienced God’s love, I joyfully witness that t
 
 [^26]: See [[Psalms 40.11|Psalm 40:11]]; [[John 15.4|John 15:4–12]][[John 15.5|]][[John 15.6|]][[John 15.7|]][[John 15.8|]][[John 15.9|]][[John 15.10|]][[John 15.11|]][[John 15.12|]]; [[1 John 4.16|1 John 4:16]].
 
-
-
-
-#Faith #God_The_Father #Jesus_Christ #Love #Prayer #Service

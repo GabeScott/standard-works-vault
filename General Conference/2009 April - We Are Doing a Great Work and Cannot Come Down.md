@@ -1,7 +1,5 @@
 # We Are Doing a Great Work and Cannot Come Down
 
-Thomas S. Monson
-
 By President Dieter F. Uchtdorf - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 2009 General Conference*
@@ -129,7 +127,3 @@ I pray that we may be worthy of the holy priesthood of Almighty God and, to a ma
 
 [^13]: [[1 Corinthians 13.11|1 Corinthians 13:11]].
 
-
-
-
-#Commitment #Priorities #Time_Management

@@ -1,7 +1,5 @@
 # Essential Truths—Our Need to Act
 
-Sharon Eubank
-
 By Elder Adilson de Paula Parrella - *Of the Seventy*
 
 *Given in the October session of the 2017 General Conference*
@@ -91,7 +89,3 @@ May we all continue to act upon these essential truths and knowledge, offering o
 
 [^13]: [[2 Nephi 9.10|2 Nephi 9:10]].
 
-
-
-
-#Conversion #Family #God_The_Father #Jesus_Christ #Joseph_Smith #Plan_Of_Salvation #Prophets

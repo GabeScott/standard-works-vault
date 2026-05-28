@@ -1,7 +1,5 @@
 # The Preparatory Priesthood
 
-Thomas S. Monson
-
 By President Henry B. Eyring - *First Counselor in the First Presidency*
 
 *Given in the October session of the 2014 General Conference*
@@ -105,7 +103,3 @@ I testify that all who serve together in the priesthood are preparing a people f
 
 [^8]: See [[D&C 107.14|Doctrine and Covenants 107:14]].
 
-
-
-
-#Aaronic_Priesthood #Preparation #Service

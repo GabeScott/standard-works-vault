@@ -1,7 +1,5 @@
 # Sustainable Societies
 
-Russell M. Nelson
-
 By Elder D. Todd Christofferson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2020 General Conference*
@@ -137,7 +135,3 @@ This we declare “in solemnity of heart, in the spirit of meekness,”[^25] and
 
 [^25]: [[D&C 100.7|Doctrine and Covenants 100:7]].
 
-
-
-
-#Light_Of_Christ #Morality #Religion #Spirituality #Truth

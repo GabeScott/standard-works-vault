@@ -1,7 +1,5 @@
 # “Overcome … Even As I Also Overcame”
 
-Ezra Taft Benson
-
 By Elder Neal A. Maxwell - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1987 General Conference*
@@ -98,4 +96,3 @@ In this unsettled world, may we settle in our hearts on this determination, I pr
 
 
 
-#Adversity #Atonement #Commitment

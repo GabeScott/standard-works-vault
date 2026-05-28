@@ -1,7 +1,5 @@
 # Let Love Be the Lodestar of Your Life
 
-Ezra Taft Benson
-
 By President Gordon B. Hinckley - *First Counselor in the First Presidency*
 
 *Given in the April session of the 1989 General Conference*
@@ -99,4 +97,3 @@ I leave with you my love and extend my blessing and pray that there may be peace
 
 
 
-#Church_Growth #Love

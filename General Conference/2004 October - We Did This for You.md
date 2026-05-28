@@ -1,7 +1,5 @@
 # We Did This for You
 
-Gordon B. Hinckley
-
 By Elaine S. Dalton - *Second Counselor in the Young Women General Presidency*
 
 *Given in the October session of the 2004 General Conference*
@@ -87,7 +85,3 @@ Zina Baker Huntington, along with so many other faithful Saints, sacrificed *eve
 
 [^17]: [[D&C 87.8|D&C 87:8]].
 
-
-
-
-#Family_History #Sacrifice #Temples #Youth

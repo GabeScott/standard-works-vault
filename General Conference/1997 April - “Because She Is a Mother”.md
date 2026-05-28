@@ -1,7 +1,5 @@
 # “Because She Is a Mother”
 
-Gordon B. Hinckley
-
 By Elder Jeffrey R. Holland - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1997 General Conference*
@@ -81,7 +79,3 @@ In the sacred and holy name of the Lord Jesus Christ, amen.
 
 [^12]: [[Matthew 9.22|Matt. 9:22]].
 
-
-
-
-#Atonement #Children #Family #Fatherhood #Holy_Ghost #Jesus_Christ #Motherhood #Pioneers #Prayer

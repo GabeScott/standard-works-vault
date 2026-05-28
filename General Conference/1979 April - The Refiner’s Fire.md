@@ -1,7 +1,5 @@
 # The Refiner’s Fire
 
-Spencer W. Kimball
-
 By Elder James E. Faust - *Of the Council of the Twelve*
 
 *Given in the April session of the 1979 General Conference*
@@ -85,4 +83,3 @@ I now wish to conclude by testifying concerning Jesus as the Christ and the Divi
 
 
 
-#Adversity #Endurance #Faith #Jesus_Christ #Pioneers #Spirituality

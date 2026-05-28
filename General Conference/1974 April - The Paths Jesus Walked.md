@@ -1,7 +1,5 @@
 # The Paths Jesus Walked
 
-Spencer W. Kimball
-
 By Elder Thomas S. Monson - *Of the Council of the Twelve*
 
 *Given in the April session of the 1974 General Conference*
@@ -126,4 +124,3 @@ To his testimony I add my witness: He lives. His prophet this day has been susta
 
 
 
-#Jesus_Christ

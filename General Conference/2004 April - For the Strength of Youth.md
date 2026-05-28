@@ -1,7 +1,5 @@
 # For the Strength of Youth
 
-Gordon B. Hinckley
-
 By Elder Earl C. Tingey - *Of the Presidency of the Seventy*
 
 *Given in the April session of the 2004 General Conference*
@@ -111,7 +109,3 @@ May you be blessed as you keep the standards of the Church. In the name of Jesus
 
 [^9]: [[D&C 45.32|D&C 45:32]].
 
-
-
-
-#Endurance #Standards #Youth

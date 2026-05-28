@@ -1,7 +1,5 @@
 # One in Christ
 
-Russell M. Nelson
-
 By Elder Ulisses Soares - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2018 General Conference*
@@ -91,7 +89,3 @@ I invite you to seek the Lord’s help in loving others as He has loved you. Let
 
 [^17]: [[Moroni 7.48|Moroni 7:48]].
 
-
-
-
-#Church_Callings #Conversion #Convert_Retention #Friendship #Love #Scripture_Study

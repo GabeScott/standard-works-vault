@@ -1,7 +1,5 @@
 # Receiving a Testimony of Light and Truth
 
-Thomas S. Monson
-
 By President Dieter F. Uchtdorf - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 2014 General Conference*
@@ -149,7 +147,3 @@ Your personal testimony of light and truth will not only bless you and your post
 
 [^17]: See [[D&C 88.63|Doctrine and Covenants 88:63]].
 
-
-
-
-#God_The_Father #Holy_Ghost #Jesus_Christ #Testimony

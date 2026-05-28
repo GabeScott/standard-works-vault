@@ -1,7 +1,5 @@
 # Alive in Christ
 
-Dallin H. Oaks
-
 By President Dallin H. Oaks - *President of The Church of Jesus Christ of Latter-day Saints*
 
 *Given in the April session of the 2026 General Conference*
@@ -83,5 +81,3 @@ My brothers and sisters, as followers of Christ, let us follow Him by forgoing c
 
 [^4]: Russell M. Nelson, “[[2023 April - Peacemakers Needed.md|Peacemakers Needed]],” *Liahona*, May 2023, 100.
 
-
-#Easter #Jesus_Christ #Love #Peacemaking #Resurrection

@@ -1,7 +1,5 @@
 # Return and Receive
 
-Bonnie H. Cordon
-
 By Elder M. Russell Ballard - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2017 General Conference*
@@ -44,7 +42,7 @@ I have found that to stay focused on *returning* and *receiving* the promised bl
 
 It’s kind of like having a personal, private interview with yourself. And if that sounds unusual, think about it: who in this world knows you better than you know yourself? You know your thoughts, your private actions, your desires, and your dreams, goals, and plans. And you know better than anyone how you are progressing along the road to *returning* and *receiving.*
 
-As a guide for me during this private, personal review, I like to read and ponder the introspective words found in the [[Alma 5.1|fifth chapter of Alma]], wherein Alma asks: “Have ye spiritually been born of God? Have ye received his image in your countenances? Have ye experienced this mighty change in your hearts?”[^8] Alma’s questions are a reminder of what our goals and plans ought to include in order to *return* and *receive*.
+As a guide for me during this private, personal review, I like to read and ponder the introspective words found in the [[Alma 5.1|fifth chapter of Alma]][[Alma 5.2|]][[Alma 5.3|]][[Alma 5.4|]][[Alma 5.5|]][[Alma 5.6|]][[Alma 5.7|]][[Alma 5.8|]][[Alma 5.9|]][[Alma 5.10|]][[Alma 5.11|]][[Alma 5.12|]][[Alma 5.13|]][[Alma 5.14|]][[Alma 5.15|]][[Alma 5.16|]][[Alma 5.17|]][[Alma 5.18|]][[Alma 5.19|]][[Alma 5.20|]][[Alma 5.21|]][[Alma 5.22|]][[Alma 5.23|]][[Alma 5.24|]][[Alma 5.25|]][[Alma 5.26|]][[Alma 5.27|]][[Alma 5.28|]][[Alma 5.29|]][[Alma 5.30|]][[Alma 5.31|]][[Alma 5.32|]][[Alma 5.33|]][[Alma 5.34|]][[Alma 5.35|]][[Alma 5.36|]][[Alma 5.37|]][[Alma 5.38|]][[Alma 5.39|]][[Alma 5.40|]][[Alma 5.41|]][[Alma 5.42|]][[Alma 5.43|]][[Alma 5.44|]][[Alma 5.45|]][[Alma 5.46|]][[Alma 5.47|]][[Alma 5.48|]][[Alma 5.49|]][[Alma 5.50|]][[Alma 5.51|]][[Alma 5.52|]][[Alma 5.53|]][[Alma 5.54|]][[Alma 5.55|]][[Alma 5.56|]][[Alma 5.57|]][[Alma 5.58|]][[Alma 5.59|]][[Alma 5.60|]][[Alma 5.61|]][[Alma 5.62|]], wherein Alma asks: “Have ye spiritually been born of God? Have ye received his image in your countenances? Have ye experienced this mighty change in your hearts?”[^8] Alma’s questions are a reminder of what our goals and plans ought to include in order to *return* and *receive*.
 
 Remember the Savior’s invitation to “come unto me, all ye that labour and are heavy laden, and I will give you rest.
 
@@ -109,7 +107,3 @@ As we focus our attention on the Savior during these two special Sundays, let us
 
 [^15]: See [[D&C 84.38|Doctrine and Covenants 84:38]].
 
-
-
-
-#Goals #Jesus_Christ #Plan_Of_Salvation

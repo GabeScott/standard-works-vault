@@ -1,7 +1,5 @@
 # He Means Me
 
-Spencer W. Kimball
-
 By Elder Marion D. Hanks - *Of the Presidency of the First Quorum of the Seventy*
 
 *Given in the April session of the 1979 General Conference*
@@ -91,4 +89,3 @@ My child at first did not understand that my invitation was meant for her. She t
 
 
 
-#Forgiveness #Love #Repentance

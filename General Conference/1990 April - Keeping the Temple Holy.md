@@ -1,7 +1,5 @@
 # Keeping the Temple Holy
 
-Thomas S. Monson
-
 By President Gordon B. Hinckley - *First Counselor in the First Presidency*
 
 *Given in the April session of the 1990 General Conference*
@@ -111,4 +109,3 @@ To young men who are here who have not yet been to the temple, may I suggest tha
 
 
 
-#Honesty #Temples #Worthiness

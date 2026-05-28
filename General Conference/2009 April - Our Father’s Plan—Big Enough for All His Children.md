@@ -1,7 +1,5 @@
 # Our Father’s Plan—Big Enough for All His Children
 
-Thomas S. Monson
-
 By Elder Quentin L. Cook - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2009 General Conference*
@@ -163,7 +161,3 @@ I rejoice in the great plan of salvation that is big enough for all of our Fathe
 
 [^35]: Orson F. Whitney, *Saturday Night Thoughts* (1921), 323.
 
-
-
-
-#Atonement #Church_Doctrine #Judging #Plan_Of_Salvation #Respect

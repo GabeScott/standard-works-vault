@@ -1,7 +1,5 @@
 # The Blessings of Sacrifice
 
-Thomas S. Monson
-
 By Elder M. Russell Ballard - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1992 General Conference*
@@ -55,4 +53,3 @@ God bless you, brothers and sisters, to know as I know that God lives, that Jesu
 
 
 
-#Humility #Obedience #Sacrifice

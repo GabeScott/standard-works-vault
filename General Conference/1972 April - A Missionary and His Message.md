@@ -1,7 +1,5 @@
 # A Missionary and His Message
 
-Wilford G. Edling
-
 By Elder Hugh B. Brown - *Of the Council of the Twelve*
 
 *Given in the April session of the 1972 General Conference*
@@ -35,4 +33,3 @@ I leave this testimony and this message and this prayer with you, humbly, in the
 
 
 
-#Missionary_Work #Testimony

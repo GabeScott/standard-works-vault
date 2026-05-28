@@ -1,7 +1,5 @@
 # Because My Father Read the Book of Mormon
 
-Thomas S. Monson
-
 By Elder Marcos A. Aidukaitis - *Of the Seventy*
 
 *Given in the October session of the 2008 General Conference*
@@ -57,4 +55,3 @@ I bear my testimony that the Book of Mormon is the word of God. Because of this,
 
 
 
-#Book_Of_Mormon #Conversion #Testimony

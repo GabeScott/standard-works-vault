@@ -1,7 +1,5 @@
 # The Prophet and the Prison
 
-Spencer W. Kimball
-
 By Elder Marvin J. Ashton - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1980 General Conference*
@@ -71,4 +69,3 @@ It is my hope and prayer that we will have the courage in our lives, homes, and 
 
 
 
-#Joseph_Smith #Kindness #Service

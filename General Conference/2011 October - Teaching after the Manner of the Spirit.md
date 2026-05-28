@@ -1,7 +1,5 @@
 # Teaching after the Manner of the Spirit
 
-Richard G. Scott
-
 By Matthew O. Richardson - *Second Counselor in the Sunday School General Presidency*
 
 *Given in the October session of the 2011 General Conference*
@@ -59,7 +57,3 @@ My life has been blessed by *real teachers,* who have taught with the Spirit and
 
 [^9]: See [[2 Nephi 32.1|2 Nephi 32:1–5]][[2 Nephi 32.2|]][[2 Nephi 32.3|]][[2 Nephi 32.4|]][[2 Nephi 32.5|]].
 
-
-
-
-#Holy_Ghost #Teaching

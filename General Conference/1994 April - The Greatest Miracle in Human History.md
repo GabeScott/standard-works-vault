@@ -1,7 +1,5 @@
 # The Greatest Miracle in Human History
 
-James E. Faust
-
 By President Gordon B. Hinckley - *First Counselor in the First Presidency*
 
 *Given in the April session of the 1994 General Conference*
@@ -109,4 +107,3 @@ And so, on this Easter Sabbath, we bear testimony of the Redeemer of the world, 
 
 
 
-#Book_Of_Mormon #Death #Jesus_Christ #Joseph_Smith #Resurrection

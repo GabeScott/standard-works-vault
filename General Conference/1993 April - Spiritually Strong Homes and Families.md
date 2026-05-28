@@ -1,7 +1,5 @@
 # Spiritually Strong Homes and Families
 
-Thomas S. Monson
-
 By Elder Joseph B. Wirthlin - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1993 General Conference*
@@ -109,7 +107,3 @@ I testify of the divinity of the Savior, Jesus Christ, the Son of God. We are th
 
 [^7]: Joseph L. Wirthlin, *A Heritage of Faith,* comp. Richard B. Wirthlin (Salt Lake City: Deseret Book Co., 1964), pp. 41–43.
 
-
-
-
-#Family #Family_Home_Evening #Home

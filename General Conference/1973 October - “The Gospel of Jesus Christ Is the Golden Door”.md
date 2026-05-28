@@ -1,7 +1,5 @@
 # “The Gospel of Jesus Christ Is the Golden Door”
 
-Harold B. Lee
-
 By Bishop Vaughn J. Featherstone - *Second Counselor in the Presiding Bishopric*
 
 *Given in the October session of the 1973 General Conference*
@@ -191,4 +189,3 @@ The gospel of Jesus Christ is the golden door, in the name of Jesus Christ, Amen
 
 
 
-#Welfare #Work

@@ -1,7 +1,5 @@
 # Turn to Him and Answers Will Come
 
-Rosemary M. Wixom
-
 By Elder James B. Martino - *Of the Seventy*
 
 *Given in the October session of the 2015 General Conference*
@@ -115,7 +113,3 @@ I hope as you have listened this morning that the Spirit has impressed on your m
 
 [^21]: See [[Alma 32.27|Alma 32:27–28]][[Alma 32.28|]].
 
-
-
-
-#Adversity #Conversion #Faith #Fasting #Obedience #Prayer #Revelation #Scriptures

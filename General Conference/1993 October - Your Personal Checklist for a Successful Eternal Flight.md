@@ -1,7 +1,5 @@
 # Your Personal Checklist for a Successful Eternal Flight
 
-Gordon B. Hinckley
-
 By Elder Hugh W. Pinnock - *Of the Seventy*
 
 *Given in the October session of the 1993 General Conference*
@@ -55,4 +53,3 @@ So there you have it: a checklist that can keep you flying in the right directio
 
 
 
-#Preparation #Priesthood #Responsibility

@@ -1,7 +1,5 @@
 # Welfare Principles in Relief Society
 
-Spencer W. Kimball
-
 By Shirley W. Thomas - *Second Counselor in the Relief Society General Presidency*
 
 *Given in the April session of the 1980 General Conference*
@@ -43,4 +41,3 @@ That we may each fulfill our stewardship and earn this great reward I pray in th
 
 
 
-#Welfare

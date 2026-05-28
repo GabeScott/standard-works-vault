@@ -1,7 +1,5 @@
 # Tears, Trials, Trust, Testimony
 
-Ezra Taft Benson
-
 By President Thomas S. Monson - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 1987 General Conference*
@@ -91,4 +89,3 @@ May we respond affirmatively to the Prophet Joseph, who urged: “Brethren, shal
 
 
 
-#Faith #Missionary_Work

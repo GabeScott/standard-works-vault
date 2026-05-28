@@ -1,7 +1,5 @@
 # A Principle with a Promise
 
-Ezra Taft Benson
-
 By President Ezra Taft Benson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1983 General Conference*
@@ -107,4 +105,3 @@ I further testify that obedience to all of God’s laws brings the precious prom
 
 
 
-#Obedience #Word_Of_Wisdom

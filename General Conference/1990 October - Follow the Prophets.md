@@ -1,7 +1,5 @@
 # Follow the Prophets
 
-Gordon B. Hinckley
-
 By Elder Waldo P. Call - *Of the Seventy*
 
 *Given in the October session of the 1990 General Conference*
@@ -95,4 +93,3 @@ I love my family; and I love you, my brothers and sisters; and I pray that we wi
 
 
 
-#Adversity #Faith #Obedience #Prophets

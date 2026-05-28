@@ -1,7 +1,5 @@
 # Young People—Learn Wisdom in Thy Youth
 
-Joseph Fielding Smith
-
 By President Paul H. Dunn - *Of the First Council of the Seventy*
 
 *Given in the April session of the 1971 General Conference*
@@ -97,4 +95,3 @@ I didn’t say that, young people. The Lord did. And our purpose here is to teac
 
 
 
-#Obedience #Youth

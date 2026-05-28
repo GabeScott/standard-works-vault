@@ -1,7 +1,5 @@
 # Special Witnesses for Christ
 
-Gordon B. Hinckley
-
 By President Gordon B. Hinckley - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 1984 General Conference*
@@ -91,4 +89,3 @@ May God bless each of you wherever you may be. May your faith strengthen as you 
 
 
 
-#Priesthood #Quorum_Of_The_Twelve_Apostles

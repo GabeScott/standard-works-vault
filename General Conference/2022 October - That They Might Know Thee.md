@@ -1,6 +1,6 @@
 # That They Might Know Thee
 
-Dallin H. Oaks
+([[John 17.3|John 17:3]])
 
 By Elder Jonathan S. Schmitt - *Of the Seventy*
 
@@ -157,7 +157,3 @@ With all my heart, I bear witness of Jesus Christ—that He lives, that He loves
 
 [^54]: See [[John 11.25|John 11:25]].
 
-
-
-
-#Discipleship #Holiness #Hope #Jesus_Christ

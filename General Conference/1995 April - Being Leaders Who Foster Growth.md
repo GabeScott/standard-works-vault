@@ -1,7 +1,5 @@
 # Being Leaders Who Foster Growth
 
-Thomas S. Monson
-
 By Karen Maxwell - *Monument Park Second Ward, Salt Lake Monument Park North Stake*
 
 *Given in the April session of the 1995 General Conference*
@@ -37,4 +35,3 @@ In the name of Jesus Christ, amen.
 
 
 
-#Dedication #Faith #Leadership #Prayer #Scriptures #Young_Women

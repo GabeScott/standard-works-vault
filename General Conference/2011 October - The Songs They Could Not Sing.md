@@ -1,7 +1,5 @@
 # The Songs They Could Not Sing
 
-Richard G. Scott
-
 By Elder Quentin L. Cook - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2011 General Conference*
@@ -143,7 +141,3 @@ The Savior said: “Therefore, let your hearts be comforted. … Be still and kn
 
 [^33]: [[D&C 101.18|Doctrine and Covenants 101:18]]; see also [[D&C 45.71|Doctrine and Covenants 45:71]].
 
-
-
-
-#Adversity #Faith #Plan_Of_Salvation

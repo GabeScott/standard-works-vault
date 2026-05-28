@@ -1,7 +1,5 @@
 # The Answer Is Jesus
 
-Dallin H. Oaks
-
 By Elder Ryan K. Olsen - *Of the Seventy*
 
 *Given in the October session of the 2022 General Conference*
@@ -115,7 +113,3 @@ I love the Savior. I bear witness of His name, even Jesus Christ. I testify that
 
 [^11]: [[Hebrews 12.2|Hebrews 12:2]].
 
-
-
-
-#Adversity #Jesus_Christ #Missionary_Work #Youth

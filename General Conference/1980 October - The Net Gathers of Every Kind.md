@@ -1,7 +1,5 @@
 # The Net Gathers of Every Kind
 
-Spencer W. Kimball
-
 By Elder Neal A. Maxwell - *Of the Presidency of the First Quorum of the Seventy*
 
 *Given in the October session of the 1980 General Conference*
@@ -71,4 +69,3 @@ Meanwhile, may God help us to receive more effectively all newcomers and returne
 
 
 
-#Fellowshipping

@@ -1,7 +1,5 @@
 # “A Chosen Generation”
 
-Thomas S. Monson
-
 By President Gordon B. Hinckley - *First Counselor in the First Presidency*
 
 *Given in the April session of the 1992 General Conference*
@@ -107,4 +105,3 @@ God bless you, I humbly pray, as I bear witness and testimony of these things in
 
 
 
-#Accountability #Commandments #Joy #Morality #Obedience #Spirituality #Word_Of_Wisdom #Youth

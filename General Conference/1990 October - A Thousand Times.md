@@ -1,7 +1,5 @@
 # A Thousand Times
 
-Gordon B. Hinckley
-
 By Bishop Glenn L. Pace - *Second Counselor in the Presiding Bishopric*
 
 *Given in the October session of the 1990 General Conference*
@@ -87,4 +85,3 @@ As the last days unfold, we will see all the prophecies fulfilled. We will see t
 
 
 
-#Compassion #Missionary_Work #Prophets #Service

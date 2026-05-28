@@ -1,7 +1,5 @@
 # Jesus Christ Is the Strength of Youth
 
-Dallin H. Oaks
-
 By Elder Dieter F. Uchtdorf - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2022 General Conference*
@@ -177,7 +175,3 @@ Of this I bear my solemn witness as an Apostle of the Lord Jesus Christ and leav
 
 [^24]: [[Luke 18.22|Luke 18:22]].
 
-
-
-
-#Choices #Jesus_Christ #Standards #Truth #Youth

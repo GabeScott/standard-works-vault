@@ -1,7 +1,5 @@
 # Counseling with Our Councils
 
-James E. Faust
-
 By Elder M. Russell Ballard - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1994 General Conference*
@@ -73,4 +71,3 @@ Brothers and sisters, let us work together as never before in our stewardships t
 
 
 
-#Bishops #Church_Meetings #Councils #Family #Fellowshipping #Priesthood #Reverence #Welfare #Work

@@ -1,7 +1,5 @@
 # The Book of Mormon, the Instrument to Gather Scattered Israel
 
-Gordon B. Hinckley
-
 By Elder C. Scott Grow - *Of the Seventy*
 
 *Given in the October session of the 2005 General Conference*
@@ -79,7 +77,3 @@ I testify that Joseph Smith is the prophet of the Restoration. The Book of Mormo
 
 [^7]: [[3 Nephi 21.7|3 Nephi 21:7]]; emphasis added.
 
-
-
-
-#Book_Of_Mormon #Covenants #Example #Missionary_Work #Testimony

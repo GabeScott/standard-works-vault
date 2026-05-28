@@ -1,7 +1,5 @@
 # The Savior’s Healing Power upon the Isles of the Sea
 
-David A. Bednar
-
 By Elder J. Kimo Esplin - *Of the Seventy*
 
 *Given in the October session of the 2023 General Conference*
@@ -107,7 +105,3 @@ With unwavering conviction, I declare these truths in the name of Jesus Christ, 
 
 [^18]: [[2 Nephi 29.7|2 Nephi 29:7]].
 
-
-
-
-#Conversion #Covenants #Healing #Temple_Work #Temples

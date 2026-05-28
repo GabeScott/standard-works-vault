@@ -1,7 +1,5 @@
 # Hanging On
 
-Spencer W. Kimball
-
 By President Loren C. Dunn - *Of the First Council of the Seventy*
 
 *Given in the April session of the 1974 General Conference*
@@ -73,4 +71,3 @@ And finally this promise from the Master: “And again, be patient in tribulatio
 
 
 
-#Adversity #Dedication

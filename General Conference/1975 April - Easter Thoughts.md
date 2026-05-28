@@ -1,7 +1,5 @@
 # Easter Thoughts
 
-Spencer W. Kimball
-
 By President Marion G. Romney - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 1975 General Conference*
@@ -171,4 +169,3 @@ I know that through his suffering in Gethsemane and during his crucifixion he br
 
 
 
-#Atonement #Resurrection

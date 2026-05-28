@@ -1,7 +1,5 @@
 # The Purpose of Life: To Be Proved
 
-Joseph Fielding Smith
-
 By Elder Franklin D. Richards - *Assistant to the Council of the Twelve*
 
 *Given in the October session of the 1971 General Conference*
@@ -87,4 +85,3 @@ Let us never forget the great lessons to be learned from Zion’s Camp and Liber
 
 
 
-#Adversity #Church_History

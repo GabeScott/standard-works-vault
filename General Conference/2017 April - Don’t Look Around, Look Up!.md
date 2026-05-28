@@ -1,7 +1,5 @@
 # Don’t Look Around, Look Up!
 
-Bonnie H. Cordon
-
 By Elder Yoon Hwan Choi - *Of the Seventy*
 
 *Given in the April session of the 2017 General Conference*
@@ -69,7 +67,3 @@ I bear witness of Jesus Christ, that He is our Savior and Redeemer. When we foll
 
 [^8]: [[D&C 100.15|Doctrine and Covenants 100:15]].
 
-
-
-
-#Adversity #Conversion #Family_History #Missionary_Work #Perspective #Temple_Work

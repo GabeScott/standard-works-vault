@@ -1,7 +1,5 @@
 # Alternate Voices
 
-Ezra Taft Benson
-
 By Elder Dallin H. Oaks - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1989 General Conference*
@@ -101,4 +99,3 @@ I testify of these things in the name of Jesus Christ, amen.
 
 
 
-#Agency #Contention #Education #False_Doctrines #Obedience

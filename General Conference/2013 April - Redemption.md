@@ -1,7 +1,5 @@
 # Redemption
 
-Thomas S. Monson
-
 By Elder D. Todd Christofferson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2013 General Conference*
@@ -77,7 +75,3 @@ As disciples of Jesus Christ, we ought to do all we can to redeem others from su
 
 [^6]: See Victor Hugo, *Les Misérables* (1992), 91–92.
 
-
-
-
-#Atonement #Jesus_Christ #Repentance #Service

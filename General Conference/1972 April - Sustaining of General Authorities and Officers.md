@@ -1,7 +1,5 @@
 # Sustaining of General Authorities and Officers
 
-Wilford G. Edling
-
 By 
 
 *Given in the April session of the 1972 General Conference*

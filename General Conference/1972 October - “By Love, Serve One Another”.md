@@ -1,7 +1,5 @@
 # “By Love, Serve One Another”
 
-N. Eldon Tanner
-
 By Bishop Victor L. Brown - *Presiding Bishop*
 
 *Given in the October session of the 1972 General Conference*
@@ -81,4 +79,3 @@ I bear my humble witness that this is the gospel of Jesus Christ, that he reigns
 
 
 
-#Health #Missionary_Work #Social_Services #Welfare

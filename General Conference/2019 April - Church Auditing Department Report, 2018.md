@@ -1,7 +1,5 @@
 # Church Auditing Department Report, 2018
 
-Ulisses Soares
-
 By Presented by Kevin R. Jergensen - *Managing Director, Church Auditing Department*
 
 *Given in the April session of the 2019 General Conference*
@@ -27,4 +25,3 @@ Managing Director
 
 
 
-#Financial_Management

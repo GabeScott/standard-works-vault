@@ -1,7 +1,5 @@
 # Proved and Strengthened in Christ
 
-Dallin H. Oaks
-
 By Elder Henry B. Eyring - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2025 General Conference*
@@ -99,7 +97,3 @@ I testify that God knows you. He knows the trials you face. He is with you. He w
 
 [^8]: [[2 Timothy 4.7|2 Timothy 4:7]].
 
-
-
-
-#Adversity #Atonement #Endurance #Jesus_Christ

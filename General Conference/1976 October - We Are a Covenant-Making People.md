@@ -1,7 +1,5 @@
 # We Are a Covenant-Making People
 
-Spencer W. Kimball
-
 By Elder Joseph Anderson - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1976 General Conference*
@@ -113,4 +111,3 @@ God lives, Jesus is the Christ, Spencer W. Kimball is His living prophet. The ev
 
 
 
-#Covenants #Priesthood

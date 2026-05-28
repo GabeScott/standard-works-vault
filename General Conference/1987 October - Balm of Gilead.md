@@ -1,7 +1,5 @@
 # Balm of Gilead
 
-Ezra Taft Benson
-
 By Elder Boyd K. Packer - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1987 General Conference*
@@ -161,4 +159,3 @@ I bear witness of Him who is that comfort, in the name of Jesus Christ, amen.
 
 
 
-#Adversity #Forgiveness #Repentance

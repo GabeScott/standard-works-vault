@@ -1,7 +1,5 @@
 # Come unto Christ
 
-Thomas S. Monson
-
 By Elder Lowell D. Wood - *Of the Seventy*
 
 *Given in the April session of the 1993 General Conference*
@@ -67,4 +65,3 @@ I testify that he lives, that he is the light and life of the world, that he is 
 
 
 
-#Humility #Jesus_Christ #Ordinances

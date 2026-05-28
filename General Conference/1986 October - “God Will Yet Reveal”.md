@@ -1,7 +1,5 @@
 # “God Will Yet Reveal”
 
-Ezra Taft Benson
-
 By Elder Neal A. Maxwell - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1986 General Conference*
@@ -99,4 +97,3 @@ In the name of Jesus Christ, amen.
 
 
 
-#Plan_Of_Salvation #Prophets #Scriptures #Spirituality

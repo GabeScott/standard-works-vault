@@ -1,7 +1,5 @@
 # Warmed by the Fires of Their Lives
 
-Gordon B. Hinckley
-
 By Barbara B. Smith - *Recently released as Relief Society General President*
 
 *Given in the April session of the 1984 General Conference*
@@ -53,4 +51,3 @@ May we all make the most of every moment of our lives, that somewhere beyond the
 
 
 
-#Relief_Society #Women

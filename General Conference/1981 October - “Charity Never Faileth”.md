@@ -1,7 +1,5 @@
 # “Charity Never Faileth”
 
-Gordon B. Hinckley
-
 By President Gordon B. Hinckley - *Counselor in the First Presidency*
 
 *Given in the October session of the 1981 General Conference*
@@ -63,4 +61,3 @@ God bless you each one, I humbly pray in the name of Jesus Christ, amen.
 
 
 
-#Charity

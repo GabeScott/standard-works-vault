@@ -1,7 +1,5 @@
 # Spiritual Power
 
-Gordon B. Hinckley
-
 By Elder Devere Harris - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1984 General Conference*
@@ -45,4 +43,3 @@ I bear witness he has planted those seeds, and I pledge all that I have for the 
 
 
 
-#Leadership #Prayer #Spirituality

@@ -1,7 +1,5 @@
 # Testimony
 
-Gordon B. Hinckley
-
 By Elder Charles Didier - *Of the Seventy*
 
 *Given in the October session of the 1991 General Conference*
@@ -65,4 +63,3 @@ A living prophet has spoken. It is now time for us to stand and be true to our t
 
 
 
-#Adversity #Education #Prayer #Spirituality #Testimony

@@ -1,7 +1,5 @@
 # To Young Women
 
-Gordon B. Hinckley
-
 By Elder Jeffrey R. Holland - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2005 General Conference*
@@ -73,7 +71,3 @@ To my granddaughter and to every other young person in this Church I bear my per
 
 [^14]: [[John 20.27|John 20:27]].
 
-
-
-
-#Divine_Nature #Morality #Plan_Of_Salvation #Self-Esteem #Testimony #Womanhood #Young_Women

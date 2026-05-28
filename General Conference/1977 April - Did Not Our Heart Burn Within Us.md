@@ -1,7 +1,5 @@
 # Did Not Our Heart Burn Within Us?
 
-Spencer W. Kimball
-
 By Elder Loren C. Dunn - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1977 General Conference*
@@ -63,4 +61,3 @@ I, too, have felt that Spirit; I, too, know that God lives and that Jesus the Ch
 
 
 
-#Holy_Ghost #Spirituality #Testimony

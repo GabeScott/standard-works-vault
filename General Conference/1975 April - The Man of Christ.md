@@ -1,7 +1,5 @@
 # The Man of Christ
 
-Spencer W. Kimball
-
 By Elder Neal A. Maxwell - *Assistant to the Council of the Twelve*
 
 *Given in the April session of the 1975 General Conference*
@@ -89,4 +87,3 @@ May each of us, brothers and sisters, navigate that straight and narrow way, lan
 
 
 
-#Christianity #Discipleship

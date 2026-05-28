@@ -1,7 +1,5 @@
 # The Tragic Cycle
 
-Spencer W. Kimball
-
 By President Marion G. Romney - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 1977 General Conference*
@@ -177,4 +175,3 @@ To all of these things which the Lord has spoken, I bear my solemn witness in th
 
 
 
-#Prophecy #Repentance

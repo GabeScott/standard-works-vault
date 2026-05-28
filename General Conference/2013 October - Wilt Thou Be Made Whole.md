@@ -1,7 +1,5 @@
 # Wilt Thou Be Made Whole?
 
-Thomas S. Monson
-
 By Elder Timothy J. Dyches - *Of the Seventy*
 
 *Given in the October session of the 2013 General Conference*
@@ -101,7 +99,3 @@ I have come to know that God lives. I know that we are all His children and that
 
 [^3]: *Preach My Gospel: A Guide to Missionary Service* (2004), 52.
 
-
-
-
-#Forgiveness #Healing #Jesus_Christ

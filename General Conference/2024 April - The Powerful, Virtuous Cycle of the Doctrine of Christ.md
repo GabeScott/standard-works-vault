@@ -1,7 +1,5 @@
 # The Powerful, Virtuous Cycle of the Doctrine of Christ
 
-Dallin H. Oaks
-
 By Elder Dale G. Renlund - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2024 General Conference*
@@ -109,7 +107,3 @@ I invite you to live the doctrine of Christ repeatedly, iteratively, and intenti
 
 [^29]: [[3 Nephi 18.32|3 Nephi 18:32]].
 
-
-
-
-#Baptism #Church_Doctrine #Covenants #Discipleship #Endurance #Faith #Holy_Ghost #Jesus_Christ #Repentance

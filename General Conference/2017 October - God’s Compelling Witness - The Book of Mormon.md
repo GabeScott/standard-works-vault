@@ -1,7 +1,5 @@
 # God’s Compelling Witness: The Book of Mormon
 
-Sharon Eubank
-
 By Tad R. Callister - *Sunday School General President*
 
 *Given in the October session of the 2017 General Conference*
@@ -22,7 +20,7 @@ But there is more. These arguments account only for the book’s historical cont
 
 For example, the Book of Mormon teaches, contrary to most Christian beliefs, that the Fall of Adam was a positive step forward. It reveals the covenants made at baptism, which are not addressed in the Bible.
 
-In addition, one might ask: where did Joseph get the powerful insight that because of Christ’s Atonement, He can not only cleanse us but also perfect us? Where did he get the stunning sermon on faith in [[Alma 32.1|Alma 32]]? Or King Benjamin’s sermon on the Savior’s Atonement, perhaps the most remarkable sermon on this subject in all scripture? Or the allegory of the olive tree with all its complexity and doctrinal richness? When I read this allegory, I have to map it out to follow its intricacies. Are we now supposed to believe that Joseph Smith just dictated these sermons off the top of his head with no notes whatsoever?
+In addition, one might ask: where did Joseph get the powerful insight that because of Christ’s Atonement, He can not only cleanse us but also perfect us? Where did he get the stunning sermon on faith in [[Alma 32.1|Alma 32]][[Alma 32.2|]][[Alma 32.3|]][[Alma 32.4|]][[Alma 32.5|]][[Alma 32.6|]][[Alma 32.7|]][[Alma 32.8|]][[Alma 32.9|]][[Alma 32.10|]][[Alma 32.11|]][[Alma 32.12|]][[Alma 32.13|]][[Alma 32.14|]][[Alma 32.15|]][[Alma 32.16|]][[Alma 32.17|]][[Alma 32.18|]][[Alma 32.19|]][[Alma 32.20|]][[Alma 32.21|]][[Alma 32.22|]][[Alma 32.23|]][[Alma 32.24|]][[Alma 32.25|]][[Alma 32.26|]][[Alma 32.27|]][[Alma 32.28|]][[Alma 32.29|]][[Alma 32.30|]][[Alma 32.31|]][[Alma 32.32|]][[Alma 32.33|]][[Alma 32.34|]][[Alma 32.35|]][[Alma 32.36|]][[Alma 32.37|]][[Alma 32.38|]][[Alma 32.39|]][[Alma 32.40|]][[Alma 32.41|]][[Alma 32.42|]][[Alma 32.43|]]? Or King Benjamin’s sermon on the Savior’s Atonement, perhaps the most remarkable sermon on this subject in all scripture? Or the allegory of the olive tree with all its complexity and doctrinal richness? When I read this allegory, I have to map it out to follow its intricacies. Are we now supposed to believe that Joseph Smith just dictated these sermons off the top of his head with no notes whatsoever?
 
 Contrary to such a conclusion, God’s fingerprints are all over the Book of Mormon, as evidenced by its majestic doctrinal truths, particularly its masterful sermons on the Atonement of Jesus Christ.
 
@@ -57,7 +55,3 @@ I bear my solemn testimony that the Book of Mormon was translated by the gift an
 
 [^3]: See “The Testimony of Three Witnesses” and “The Testimony of Eight Witnesses,” Book of Mormon.
 
-
-
-
-#Book_Of_Mormon #Joseph_Smith #Testimony

@@ -1,7 +1,5 @@
 # Address Given by President Marion G. Romney at Welfare Services Meeting Saturday, October 5, 1974
 
-Spencer W. Kimball
-
 By President Marion G. Romney - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 1974 General Conference*
@@ -240,4 +238,3 @@ If you here today would like to test this promise, double your fast offerings an
 
 
 
-#Welfare

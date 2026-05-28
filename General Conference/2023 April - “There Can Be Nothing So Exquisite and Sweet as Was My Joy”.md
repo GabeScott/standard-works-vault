@@ -1,7 +1,5 @@
 # “There Can Be Nothing So Exquisite and Sweet as Was My Joy”
 
-Gary E. Stevenson
-
 By Elder Craig C. Christensen - *Of the Seventy*
 
 *Given in the April session of the 2023 General Conference*
@@ -139,7 +137,3 @@ Brothers and sisters, I conclude by sharing my personal witness, which I conside
 
 [^30]: [[2 Nephi 31.21|2 Nephi 31:21]].
 
-
-
-
-#Atonement #Jesus_Christ #Joy #Repentance #Sin

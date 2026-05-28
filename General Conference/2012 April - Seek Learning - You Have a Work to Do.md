@@ -1,7 +1,5 @@
 # Seek Learning: You Have a Work to Do
 
-Thomas S. Monson
-
 By Mary N. Cook - *First Counselor in the Young Women General Presidency*
 
 *Given in the April session of the 2012 General Conference*
@@ -99,7 +97,3 @@ I testify that our Father in Heaven does know and love you. He has placed great 
 
 [^15]: M. Russell Ballard, “Preparing for the Future,” *Ensign,* Sept. 2011, 27.
 
-
-
-
-#Education #Holy_Ghost #Motherhood

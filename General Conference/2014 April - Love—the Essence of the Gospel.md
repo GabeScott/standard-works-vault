@@ -1,7 +1,5 @@
 # Love—the Essence of the Gospel
 
-Thomas S. Monson
-
 By President Thomas S. Monson - *President of the Church*
 
 *Given in the April session of the 2014 General Conference*
@@ -109,7 +107,3 @@ Beyond comprehension, my brothers and sisters, is the love of God for us. Becaus
 
 [^12]: Dale Carnegie, in, for example, Larry Chang, *Wisdom for the Soul* (2006), 54.
 
-
-
-
-#Forgiveness #Kindness #Love

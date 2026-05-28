@@ -1,7 +1,5 @@
 # Welcome to Conference
 
-Thomas S. Monson
-
 By President Thomas S. Monson - *President of the Church*
 
 *Given in the October session of the 2009 General Conference*
@@ -31,7 +29,3 @@ Now, my brothers and sisters, we are anxious to listen to the messages which wil
 
 [^1]: Joseph F. Smith, in Conference Report, Oct. 1916, 6.
 
-
-
-
-#Missionary_Work #Temples

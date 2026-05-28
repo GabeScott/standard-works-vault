@@ -1,7 +1,5 @@
 # The Sustaining of Church Officers
 
-Thomas S. Monson
-
 By President Thomas S. Monson - *First Counselor in the First Presidency*
 
 *Given in the April session of the 2007 General Conference*

@@ -1,7 +1,5 @@
 # The Faith of a Child
 
-Spencer W. Kimball
-
 By Elder Thomas S. Monson - *Of the Council of the Twelve*
 
 *Given in the October session of the 1975 General Conference*
@@ -87,4 +85,3 @@ To these truths I bear record, in the name of Jesus Christ. Amen.
 
 
 
-#Children #Faith

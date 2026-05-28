@@ -1,7 +1,5 @@
 # Heroes
 
-Thomas S. Monson
-
 By Bishop H. David Burton - *First Counselor in the Presiding Bishopric*
 
 *Given in the April session of the 1993 General Conference*
@@ -59,4 +57,3 @@ I know that our Father in Heaven lives and that His Son is our Savior and Redeem
 
 
 
-#Example #Heroes #Holy_Ghost

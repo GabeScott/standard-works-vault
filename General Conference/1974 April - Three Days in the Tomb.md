@@ -1,7 +1,5 @@
 # Three Days in the Tomb
 
-Spencer W. Kimball
-
 By Elder Eldred G. Smith - *Patriarch to the Church*
 
 *Given in the April session of the 1974 General Conference*
@@ -85,4 +83,3 @@ May God give us knowledge and understanding to know his will and give us the des
 
 
 
-#Resurrection

@@ -1,7 +1,5 @@
 # The Godhead and the Plan of Salvation
 
-Bonnie H. Cordon
-
 By Elder Dallin H. Oaks - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2017 General Conference*
@@ -111,7 +109,3 @@ I add my testimony to that of our beloved prophet-president. I testify that we h
 
 [^12]: Thomas S. Monson, “[[2016 October - The Perfect Path to Happiness.md|The Perfect Path to Happiness]],” *Ensign* or *Liahona,* Nov. 2016, 80–81.
 
-
-
-
-#Fall #God_The_Father #Godhead #Holy_Ghost #Jesus_Christ #Plan_Of_Salvation #Premortal_Existence

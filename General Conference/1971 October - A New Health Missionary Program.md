@@ -1,7 +1,5 @@
 # A New Health Missionary Program
 
-Joseph Fielding Smith
-
 By James O. Mason - *Commissioner, Health Services Corporation*
 
 *Given in the October session of the 1971 General Conference*
@@ -45,4 +43,3 @@ I pray that we might have the vision of this great program, that we might prepar
 
 
 
-#Health #Missionary_Work

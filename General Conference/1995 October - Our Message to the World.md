@@ -1,7 +1,5 @@
 # Our Message to the World
 
-Gordon B. Hinckley
-
 By Elder Robert E. Wells - *Of the Seventy*
 
 *Given in the October session of the 1995 General Conference*
@@ -55,4 +53,3 @@ I pray that we each will see how great the importance is to gain an understandin
 
 
 
-#Apostasy #Atonement #Book_Of_Mormon #Jesus_Christ #Joseph_Smith #Plan_Of_Salvation #Restoration

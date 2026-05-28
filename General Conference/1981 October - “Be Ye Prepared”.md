@@ -1,7 +1,5 @@
 # “Be Ye Prepared”
 
-Gordon B. Hinckley
-
 By Elder LeGrand Richards - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1981 General Conference*
@@ -103,4 +101,3 @@ Now, that is my testimony to you, and I pray God to keep you and your families w
 
 
 
-#Activation

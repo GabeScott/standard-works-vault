@@ -1,7 +1,5 @@
 # Worthy of Our Promised Blessings
 
-Rosemary M. Wixom
-
 By Linda S. Reeves - *Second Counselor in the Relief Society General Presidency*
 
 *Given in the October session of the 2015 General Conference*
@@ -89,7 +87,3 @@ si.lds.org
 
 [^11]: [[D&C 84.38|Doctrine and Covenants 84:38]].
 
-
-
-
-#Adversity #Children #Covenants #Morality #Plan_Of_Salvation #Repentance #Standards

@@ -1,7 +1,5 @@
 # How Has Relief Society Blessed Your Life?
 
-Gordon B. Hinckley
-
 By Bonnie D. Parkin - *Relief Society General President*
 
 *Given in the October session of the 2004 General Conference*
@@ -73,7 +71,3 @@ Because Relief Society is divinely designed, it blesses not only women but the f
 
 [^10]: Personal correspondence.
 
-
-
-
-#Charity #Family #Relief_Society #Women

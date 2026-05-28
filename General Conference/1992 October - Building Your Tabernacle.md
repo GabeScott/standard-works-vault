@@ -1,7 +1,5 @@
 # Building Your Tabernacle
 
-Gordon B. Hinckley
-
 By President Gordon B. Hinckley - *First Counselor in the First Presidency*
 
 *Given in the October session of the 1992 General Conference*
@@ -124,4 +122,3 @@ Brethren, *be strong in your testimony of Jesus Christ,* the Son of God. He is t
 
 
 
-#Faith #Priesthood

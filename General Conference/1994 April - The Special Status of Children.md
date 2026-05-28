@@ -1,7 +1,5 @@
 # The Special Status of Children
 
-James E. Faust
-
 By Elder Merlin R. Lybbert - *Of the Seventy*
 
 *Given in the April session of the 1994 General Conference*
@@ -43,4 +41,3 @@ It is my witness that our kind and loving Heavenly Father has made special allow
 
 
 
-#Children #Example #Family_Home_Evening #Parenthood #Primary #Satan

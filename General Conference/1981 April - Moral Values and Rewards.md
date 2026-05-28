@@ -1,7 +1,5 @@
 # Moral Values and Rewards
 
-Marion G. Romney
-
 By Elder Royden G. Derrick - *Of the Presidency of the First Quorum of the Seventy*
 
 *Given in the April session of the 1981 General Conference*
@@ -103,4 +101,3 @@ And so, when members of a society serve the Lord according to the commandments h
 
 
 
-#Family

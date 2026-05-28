@@ -1,7 +1,5 @@
 # Jesus Christ and Your New Beginning
 
-Dallin H. Oaks
-
 By Elder Patrick Kearon - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2025 General Conference*
@@ -143,7 +141,3 @@ Because He always did those things which pleased His Father,[^30] and because He
 
 [^32]: [[Psalms 23.6|Psalm 23:6]].
 
-
-
-
-#Healing #Jesus_Christ #Repentance

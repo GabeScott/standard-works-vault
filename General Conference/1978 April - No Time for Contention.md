@@ -1,7 +1,5 @@
 # No Time for Contention
 
-Spencer W. Kimball
-
 By Elder Marvin J. Ashton - *Of the Council of the Twelve*
 
 *Given in the April session of the 1978 General Conference*
@@ -75,4 +73,3 @@ There is no time for contention. We must have the will and discipline in our dai
 
 
 
-#Contention

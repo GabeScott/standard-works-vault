@@ -1,7 +1,5 @@
 # The Church and the Family in Welfare Services
 
-Spencer W. Kimball
-
 By Bishop Victor L. Brown - *Presiding Bishop*
 
 *Given in the April session of the 1976 General Conference*
@@ -101,4 +99,3 @@ In all that we have said regarding family and individual preparedness, we must n
 
 
 
-#Family #Self-Reliance #Welfare

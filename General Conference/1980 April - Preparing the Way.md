@@ -1,7 +1,5 @@
 # Preparing the Way
 
-Spencer W. Kimball
-
 By Elder Thomas S. Monson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1980 General Conference*
@@ -104,4 +102,3 @@ May we be motivated by his message. May we be inspired by his mission. May we be
 
 
 
-#Priesthood

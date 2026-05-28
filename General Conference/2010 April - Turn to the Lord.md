@@ -1,7 +1,5 @@
 # Turn to the Lord
 
-Thomas S. Monson
-
 By Elder Donald L. Hallstrom - *Of the Presidency of the Seventy*
 
 *Given in the April session of the 2010 General Conference*
@@ -39,4 +37,3 @@ As we commemorate this Easter morning, let us turn to the Lord, our “bright an
 
 
 
-#Adversity #Forgiveness #Jesus_Christ #Peace

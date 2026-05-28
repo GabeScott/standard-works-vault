@@ -1,7 +1,5 @@
 # In the Path of Their Duty
 
-David A. Bednar
-
 By Elder David A. Bednar - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2023 General Conference*
@@ -143,7 +141,3 @@ I joyfully witness that Heavenly Father and His Beloved Son live and Their promi
 
 [^25]: [[D&C 121.29|Doctrine and Covenants 121:29]].
 
-
-
-
-#Covenants #Discipleship #Duty #Endurance #Pioneers #Service

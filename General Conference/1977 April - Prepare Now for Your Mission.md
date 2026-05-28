@@ -1,7 +1,5 @@
 # Prepare Now for Your Mission
 
-Spencer W. Kimball
-
 By Elder J. Thomas Fyans - *Of the Presidency of the First Quorum of the Seventy*
 
 *Given in the April session of the 1977 General Conference*
@@ -77,4 +75,3 @@ As you make your decision, will you remember this? The Lord lives. Jesus is the 
 
 
 
-#Missionary_Work #Preparation

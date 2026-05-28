@@ -1,7 +1,5 @@
 # Am I Good Enough? Will I Make It?
 
-Jean B. Bingham
-
 By Elder J. Devn Cornish - *Of the Seventy*
 
 *Given in the October session of the 2016 General Conference*
@@ -97,7 +95,3 @@ I witness to you that if you will really try and will not rationalize or rebelâ€
 
 [^14]: See [[2 Nephi 2.6|2 Nephi 2:6â€“8]][[2 Nephi 2.7|]][[2 Nephi 2.8|]].
 
-
-
-
-#Atonement #Jesus_Christ #Repentance

@@ -1,7 +1,5 @@
 # Statistical Report 1972
 
-Harold B. Lee
-
 By Presented by Francis M. Gibbons
 
 *Given in the April session of the 1973 General Conference*

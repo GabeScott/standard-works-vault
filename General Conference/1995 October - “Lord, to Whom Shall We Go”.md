@@ -1,7 +1,5 @@
 # “Lord, to Whom Shall We Go?”
 
-Gordon B. Hinckley
-
 By Elder Hans B. Ringger - *Emeritus Member of the Seventy*
 
 *Given in the October session of the 1995 General Conference*
@@ -45,4 +43,3 @@ I testify to you that Joseph Smith saw the Father and the Son. They are real. Je
 
 
 
-#Authority #Commandments #God_The_Father #Jesus_Christ #Joy #Peace

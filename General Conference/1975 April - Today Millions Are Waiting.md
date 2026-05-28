@@ -1,7 +1,5 @@
 # Today Millions Are Waiting
 
-Spencer W. Kimball
-
 By Elder Bernard P. Brockbank - *Assistant to the Council of the Twelve*
 
 *Given in the April session of the 1975 General Conference*
@@ -97,4 +95,3 @@ I love and sustain President Spencer W. Kimball. He’s truly a prophet of God. 
 
 
 
-#Last_Days #Missionary_Work

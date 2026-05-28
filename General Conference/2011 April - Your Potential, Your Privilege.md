@@ -1,7 +1,5 @@
 # Your Potential, Your Privilege
 
-Thomas S. Monson
-
 By President Dieter F. Uchtdorf - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 2011 General Conference*
@@ -123,7 +121,3 @@ My dear brethren, may we diligently seek to learn the doctrine of the holy pries
 
 [^19]: [[Philippians 4.13|Philippians 4:13]].
 
-
-
-
-#Holy_Ghost #Priesthood #Service

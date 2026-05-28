@@ -1,7 +1,5 @@
 # “A Little Child Shall Lead Them”
 
-Thomas S. Monson
-
 By President Thomas S. Monson - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 1990 General Conference*
@@ -129,4 +127,3 @@ Peace will then be their blessing. It will be our blessing, also, as we remember
 
 
 
-#Abuse #Example #Love #Missionary_Work #Service

@@ -1,7 +1,5 @@
 # Home Teachers—Watchmen over the Church
 
-N. Eldon Tanner
-
 By Elder James A. Cullimore - *Assistant to the Council of the Twelve*
 
 *Given in the October session of the 1972 General Conference*
@@ -83,4 +81,3 @@ May we better fulfill our assignment as home teachers by becoming guardians and 
 
 
 
-#Home_Teaching

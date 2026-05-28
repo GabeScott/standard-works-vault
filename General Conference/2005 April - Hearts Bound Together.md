@@ -1,7 +1,5 @@
 # Hearts Bound Together
 
-Gordon B. Hinckley
-
 By Elder Henry B. Eyring - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2005 General Conference*
@@ -79,7 +77,3 @@ A few nights ago I had a dream. I saw a piece of white paper with a name on it I
 
 [^5]: See [[Luke 12.48|Luke 12:48]].
 
-
-
-
-#Conversion #Covenants #Family_History #Temple_Work

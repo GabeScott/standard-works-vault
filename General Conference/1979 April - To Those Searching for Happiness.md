@@ -1,7 +1,5 @@
 # To Those Searching for Happiness
 
-Spencer W. Kimball
-
 By President N. Eldon Tanner - *First Counselor in the First Presidency*
 
 *Given in the April session of the 1979 General Conference*
@@ -143,4 +141,3 @@ If you are searching for happiness in this life and eternal life with God the Fa
 
 
 
-#Conversion

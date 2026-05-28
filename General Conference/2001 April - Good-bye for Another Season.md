@@ -1,7 +1,5 @@
 # Good-bye for Another Season
 
-Gordon B. Hinckley
-
 By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the April session of the 2001 General Conference*
@@ -37,4 +35,3 @@ As we return to our homes, may we experience a strengthening of our faith in the
 
 
 
-#Church_Growth #Faith #General_Conference #Home #Jesus_Christ #Joseph_Smith #Loyalty #Obedience #Prayer #Spirituality #Testimony

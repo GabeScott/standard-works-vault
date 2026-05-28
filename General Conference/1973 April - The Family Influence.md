@@ -1,7 +1,5 @@
 # The Family Influence
 
-Harold B. Lee
-
 By President Spencer W. Kimball - *President of the Council of the Twelve*
 
 *Given in the April session of the 1973 General Conference*
@@ -194,4 +192,3 @@ I add my solemn witness that President Harold B. Lee is the Lord’s divinely ca
 
 
 
-#Prayer

@@ -1,7 +1,5 @@
 # Exceeding Great and Precious Promises
 
-Sharon Eubank
-
 By Elder David A. Bednar - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2017 General Conference*
@@ -163,7 +161,3 @@ I witness that our Heavenly Father lives and is the author of the plan of salvat
 
 [^31]: [[D&C 59.23|Doctrine and Covenants 59:23]].
 
-
-
-
-#Covenants #Divine_Nature #Home #Ordinances #Sabbath #Temples

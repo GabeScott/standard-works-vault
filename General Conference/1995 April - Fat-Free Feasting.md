@@ -1,7 +1,5 @@
 # Fat-Free Feasting
 
-Thomas S. Monson
-
 By Bonnie D. Parkin - *Second Counselor in the Young Women General Presidency*
 
 *Given in the April session of the 1995 General Conference*
@@ -37,4 +35,3 @@ I know that he lives, and that he loves us, and that his hand is outstretched st
 
 
 
-#Scripture_Study #Scriptures #Women #Young_Women

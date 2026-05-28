@@ -1,7 +1,5 @@
 # Because of Jesus Christ
 
-Dallin H. Oaks
-
 By Elder Dale G. Renlund - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2026 General Conference*
@@ -131,5 +129,3 @@ On this Easter morning, I add my witness of “the great and wonderful love made
 
 [^41]: “I Know That My Redeemer Lives,” *Hymns*, no. 136.
 
-
-#Atonement_Of_Jesus_Christ #Easter #Forgiveness #Jesus_Christ #Joy #Repentance

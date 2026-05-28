@@ -1,7 +1,5 @@
 # Giving Holiness to the Lord
 
-Russell M. Nelson
-
 By Bishop L. Todd Budge - *Second Counselor in the Presiding Bishopric*
 
 *Given in the October session of the 2021 General Conference*
@@ -105,7 +103,3 @@ I testify that God lives. “Man of Holiness is his name.”[^17] Jesus Christ i
 
 [^19]: See [[D&C 97.8|Doctrine and Covenants 97:8]].
 
-
-
-
-#Consecration #Holiness #Humanitarian_Aid #Sacrifice

@@ -1,7 +1,5 @@
 # We, The Church of Jesus Christ of Latter-day Saints
 
-Spencer W. Kimball
-
 By President Marion G. Romney - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 1979 General Conference*
@@ -141,4 +139,3 @@ To the truth of these great revelations, I bear my personal witness. In the name
 
 
 
-#Name_Of_Church

@@ -1,7 +1,5 @@
 # Overcoming Challenges along Life’s Way
 
-Ezra Taft Benson
-
 By Joy F. Evans - *First Counselor in the Relief Society General Presidency*
 
 *Given in the October session of the 1987 General Conference*
@@ -119,4 +117,3 @@ I bear you my testimony that the gospel is true, that we are led today by a prop
 
 
 
-#Adversity #Faith #Morality #Repentance #Women

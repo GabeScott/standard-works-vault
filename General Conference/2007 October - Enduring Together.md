@@ -1,7 +1,5 @@
 # Enduring Together
 
-Gordon B. Hinckley
-
 By Bishop Richard C. Edgley - *First Counselor in the Presiding Bishopric*
 
 *Given in the October session of the 2007 General Conference*
@@ -65,4 +63,3 @@ May we be an instrument in lightening the burden of others, I pray in the name o
 
 
 
-#Adversity #Endurance #Love #Service

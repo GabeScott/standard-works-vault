@@ -1,7 +1,5 @@
 # Divine Love in the Father’s Plan
 
-Russell M. Nelson
-
 By President Dallin H. Oaks - *First Counselor in the First Presidency*
 
 *Given in the April session of the 2022 General Conference*
@@ -117,7 +115,3 @@ May we all implement that sacred doctrine in our own lives, I pray in the name o
 
 [^23]: Russell M. Nelson, “[[2021 October - Pure Truth, Pure Doctrine, and Pure Revelation.md|Pure Truth, Pure Doctrine, and Pure Revelation]],” *Liahona*, Nov. 2021, 6.
 
-
-
-
-#Family #Laws #Love #Plan_Of_Salvation #Temples

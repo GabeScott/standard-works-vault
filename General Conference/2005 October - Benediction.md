@@ -1,7 +1,5 @@
 # Benediction
 
-Gordon B. Hinckley
-
 By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the October session of the 2005 General Conference*
@@ -37,4 +35,3 @@ God bless all of us, I humbly pray. May we strive to walk in righteousness befor
 
 
 
-#Joseph_Smith #Restoration

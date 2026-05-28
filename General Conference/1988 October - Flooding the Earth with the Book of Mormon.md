@@ -1,7 +1,5 @@
 # Flooding the Earth with the Book of Mormon
 
-Ezra Taft Benson
-
 By President Ezra Taft Benson - *President of the Church*
 
 *Given in the October session of the 1988 General Conference*
@@ -83,4 +81,3 @@ Moses never entered the promised land. Joseph Smith never saw Zion redeemed. Som
 
 
 
-#Book_Of_Mormon #Missionary_Work #Scripture_Study

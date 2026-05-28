@@ -1,7 +1,5 @@
 # Teachers, the Timeless Key
 
-Gordon B. Hinckley
-
 By Elder Harold G. Hillam - *Of the Presidency of the Seventy*
 
 *Given in the October session of the 1997 General Conference*
@@ -61,4 +59,3 @@ Technology will surely advance and methods will certainly change, but the person
 
 
 
-#Children #Media #Parenthood #Teaching

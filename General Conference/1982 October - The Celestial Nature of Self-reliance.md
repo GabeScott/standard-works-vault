@@ -1,7 +1,5 @@
 # The Celestial Nature of Self-reliance
 
-Spencer W. Kimball
-
 By President Marion G. Romney - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 1982 General Conference*
@@ -109,4 +107,3 @@ Again, I say the principle of self-reliance is spiritual, as are all the princip
 
 
 
-#Spirituality #Welfare

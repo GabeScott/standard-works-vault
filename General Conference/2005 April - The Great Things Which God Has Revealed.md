@@ -1,7 +1,5 @@
 # The Great Things Which God Has Revealed
 
-Gordon B. Hinckley
-
 By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the April session of the 2005 General Conference*
@@ -125,4 +123,3 @@ To this I add my solemn witness of the divinity of his calling, of the virtue of
 
 
 
-#Book_Of_Mormon #Church_History #God_The_Father #Joseph_Smith #Priesthood

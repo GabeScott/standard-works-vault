@@ -1,7 +1,5 @@
 # A Living Network
 
-Gordon B. Hinckley
-
 By Chieko N. Okazaki - *First Counselor in the Relief Society General Presidency*
 
 *Given in the October session of the 1995 General Conference*
@@ -57,4 +55,3 @@ So may it be, I pray in the name of Jesus Christ, amen.
 
 
 
-#Blessings #God_The_Father #Individual_Worth #Jesus_Christ #Relief_Society #Service #Women

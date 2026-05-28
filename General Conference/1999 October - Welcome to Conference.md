@@ -1,7 +1,5 @@
 # Welcome to Conference
 
-Gordon B. Hinckley
-
 By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the October session of the 1999 General Conference*
@@ -45,4 +43,3 @@ May we enjoy the blessings of the Lord as we go forward in this great work, whic
 
 
 
-#Church_Growth #Family_History #Obedience #Temples #Worship

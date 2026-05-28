@@ -1,7 +1,5 @@
 # Friendship: A Gospel Principle
 
-Gordon B. Hinckley
-
 By Elder Marlin K. Jensen - *Of the Presidency of the Seventy*
 
 *Given in the April session of the 1999 General Conference*
@@ -57,7 +55,3 @@ Our Savior, shortly before His Crucifixion, said to His disciples: “Greater lo
 
 [^6]: [[John 15.13|John 15:13–14]][[John 15.14|]].
 
-
-
-
-#Conversion #Family #Friendship #Jesus_Christ #Marriage #Missionary_Work

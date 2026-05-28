@@ -1,7 +1,5 @@
 # The Word of Wisdom
 
-Spencer W. Kimball
-
 By Elder Theodore M. Burton - *Assistant to the Council of the Twelve*
 
 *Given in the April session of the 1976 General Conference*
@@ -59,4 +57,3 @@ The Lord has spoken. Of this I bear my witness in the name of Jesus Christ. Amen
 
 
 
-#Word_Of_Wisdom

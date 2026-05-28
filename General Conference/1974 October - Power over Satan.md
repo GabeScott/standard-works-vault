@@ -1,7 +1,5 @@
 # Power over Satan
 
-Spencer W. Kimball
-
 By Elder ElRay L. Christiansen - *Assistant to the Council of the Twelve*
 
 *Given in the October session of the 1974 General Conference*
@@ -61,4 +59,3 @@ And every man receiveth wages of him whom he listeth to obey. (See [[D&C 29.45|D
 
 
 
-#Morality #Satan #Sin

@@ -1,7 +1,5 @@
 # Feasting upon the Words of Christ
 
-Ulisses Soares
-
 By Elder Takashi Wada - *Of the Seventy*
 
 *Given in the April session of the 2019 General Conference*
@@ -47,4 +45,3 @@ In conclusion, I bear testimony that feasting upon the words of Christ can happe
 
 
 
-#Jesus_Christ #Scriptures

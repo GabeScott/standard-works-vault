@@ -1,7 +1,5 @@
 # Gratitude
 
-Gordon B. Hinckley
-
 By Elder Steven E. Snow - *Of the Seventy*
 
 *Given in the October session of the 2001 General Conference*
@@ -59,4 +57,3 @@ Brethren, I pray that we might keep our hearts full of thanks and appreciation f
 
 
 
-#Blessings #Friendship #Gratitude #Joy #Love #Prayer

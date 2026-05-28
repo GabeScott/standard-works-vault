@@ -1,7 +1,5 @@
 # Rejoice in This Great Era of Temple Building
 
-Gordon B. Hinckley
-
 By President Gordon B. Hinckley - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 1985 General Conference*
@@ -101,4 +99,3 @@ There are those few who mock our temple work. They may mock the language, but th
 
 
 
-#Temples

@@ -1,7 +1,5 @@
 # Love of Christ
 
-Gordon B. Hinckley
-
 By Elder C. Max Caldwell - *Of the Seventy*
 
 *Given in the October session of the 1992 General Conference*
@@ -65,4 +63,3 @@ Individually and collectively, we can experience the peace and happiness enjoyed
 
 
 
-#Charity #Jesus_Christ #Love #Service

@@ -1,7 +1,5 @@
 # “From Such Turn Away”
 
-Gordon B. Hinckley
-
 By Elder Boyd K. Packer - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1985 General Conference*
@@ -147,4 +145,3 @@ I sustain President Spencer W. Kimball as the prophet of God. I know that he is 
 
 
 
-#Authority #Priesthood

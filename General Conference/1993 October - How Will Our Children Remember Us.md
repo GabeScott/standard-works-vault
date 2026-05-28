@@ -1,7 +1,5 @@
 # How Will Our Children Remember Us?
 
-Gordon B. Hinckley
-
 By Bishop Robert D. Hales - *Presiding Bishop*
 
 *Given in the October session of the 1993 General Conference*
@@ -107,4 +105,3 @@ Jesus was able to complete his mission of the Atonement on earth because of the 
 
 
 
-#Family #Parenthood #Priesthood

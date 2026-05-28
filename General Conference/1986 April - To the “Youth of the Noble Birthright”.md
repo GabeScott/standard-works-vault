@@ -1,7 +1,5 @@
 # To the “Youth of the Noble Birthright”
 
-Ezra Taft Benson
-
 By President Ezra Taft Benson - *President of the Church*
 
 *Given in the April session of the 1986 General Conference*
@@ -135,4 +133,3 @@ Live up to your godly potential. Remember who you are and the priesthood that yo
 
 
 
-#Missionary_Work #Morality #Priesthood

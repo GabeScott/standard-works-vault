@@ -1,7 +1,5 @@
 # The Future History of the Church
 
-Spencer W. Kimball
-
 By Elder G. Homer Durham - *Of the Presidency of the First Quorum of the Seventy*
 
 *Given in the April session of the 1982 General Conference*
@@ -59,4 +57,3 @@ We must prepare now to “abide the day of his coming.” The future history of 
 
 
 
-#Church_History #Obedience

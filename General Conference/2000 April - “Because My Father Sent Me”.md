@@ -1,7 +1,5 @@
 # “Because My Father Sent Me”
 
-Gordon B. Hinckley
-
 By Elder Loren C. Dunn - *Of the Seventy*
 
 *Given in the April session of the 2000 General Conference*
@@ -55,7 +53,3 @@ May I add at this point my own witness and testimony as to the truthfulness of t
 
 [^5]: “Old Man Green,” in *Collected Verse of Edgar A. Guest* (1934), 560.
 
-
-
-
-#Commitment #Example #Fatherhood #Joseph_Smith #Love

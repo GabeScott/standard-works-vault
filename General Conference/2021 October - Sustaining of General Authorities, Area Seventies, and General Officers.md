@@ -1,7 +1,5 @@
 # Sustaining of General Authorities, Area Seventies, and General Officers
 
-Russell M. Nelson
-
 By Presented by President Henry B. Eyring - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 2021 General Conference*
@@ -69,4 +67,3 @@ P. David Agazzani, Quilmer A. Agüero, Frederick O. Akinbo, Nelson Ardila, Richa
 
 
 
-#Sustaining

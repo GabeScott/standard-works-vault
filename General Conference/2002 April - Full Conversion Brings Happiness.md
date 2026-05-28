@@ -1,7 +1,5 @@
 # Full Conversion Brings Happiness
 
-Gordon B. Hinckley
-
 By Elder Richard G. Scott - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2002 General Conference*
@@ -87,7 +85,3 @@ I bear testimony that as you pray for guidance, the Holy Ghost will help identif
 
 [^12]: [[3 Nephi 9.13|3 Ne. 9:13–14]][[3 Nephi 9.14|]].
 
-
-
-
-#Conversion #Faith #Joy #Repentance

@@ -1,7 +1,5 @@
 # The Canker of Contention
 
-Ezra Taft Benson
-
 By Elder Russell M. Nelson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1989 General Conference*
@@ -145,4 +143,3 @@ Shun contention. Seek godliness. Be enlightened by eternal truth. Be like-minded
 
 
 
-#Contention #Family #Humility #Love #Peace

@@ -1,7 +1,5 @@
 # A New Normal
 
-Russell M. Nelson
-
 By President Russell M. Nelson - *President of The Church of Jesus Christ of Latter-day Saints*
 
 *Given in the October session of the 2020 General Conference*
@@ -45,7 +43,3 @@ May we go forward together to fulfill our divine mandate—that of preparing our
 
 [^6]: See [[Philippians 4.7|Philippians 4:7]].
 
-
-
-
-#Peace #Preparation #Spirituality #Temples

@@ -1,7 +1,5 @@
 # Freedom “from” or Freedom “to”
 
-Gordon B. Hinckley
-
 By Elder F. Enzio Busche - *Emeritus Member of the Seventy*
 
 *Given in the October session of the 2000 General Conference*
@@ -53,4 +51,3 @@ In this freedom that we have received in our time, through our understanding of 
 
 
 
-#Agency #Covenants #Faith #Freedom #Humility #Jesus_Christ #Plan_Of_Salvation #Priesthood #Responsibility #Restoration

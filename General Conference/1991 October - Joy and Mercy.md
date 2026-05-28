@@ -1,7 +1,5 @@
 # Joy and Mercy
 
-Gordon B. Hinckley
-
 By Elder Dallin H. Oaks - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1991 General Conference*
@@ -91,4 +89,3 @@ I testify to the truth of God’s promise that the faithful “shall enter into 
 
 
 
-#Joy #Mercy #Repentance #Resurrection

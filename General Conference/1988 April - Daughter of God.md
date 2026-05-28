@@ -1,7 +1,5 @@
 # Daughter of God
 
-Ezra Taft Benson
-
 By Elder Yoshihiko Kikuchi - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1988 General Conference*
@@ -58,7 +56,7 @@ In 1850, Brigham Young sent ten missionaries to the Hawaiian Islands. Without un
 
 As he approached this town, two ladies went screaming into a nearby house and brought out a local gentleman. The previous night, this man had had a dream that a messenger of God was coming to his town and that he must feed him. Elder Cannon was invited to stay and preach in the home of this man, Jonathon H. Napela, who was a very well-educated man and the magistrate of that district (see [[Alma 10.4|Alma 10:4]]).
 
-Subsequently, Elder Cannon and Jonathon Napela became very close friends, like Alma and Amulek in the Book of Mormon (see [[Alma 10.1|Alma 10–15]]). Because of the guiding hand of God and Brother Napela’s great help, along with the hospitality and kindness of the Hawaiian Saints, the missionary work began to excel in Hawaii, and the foundation was laid.
+Subsequently, Elder Cannon and Jonathon Napela became very close friends, like Alma and Amulek in the Book of Mormon (see [[Alma 10.1|Alma 10–15]][[Alma 10.2|]][[Alma 10.3|]][[Alma 10.4|]][[Alma 10.5|]][[Alma 10.6|]][[Alma 10.7|]][[Alma 10.8|]][[Alma 10.9|]][[Alma 10.10|]][[Alma 10.11|]][[Alma 10.12|]][[Alma 10.13|]][[Alma 10.14|]][[Alma 10.15|]][[Alma 10.16|]][[Alma 10.17|]][[Alma 10.18|]][[Alma 10.19|]][[Alma 10.20|]][[Alma 10.21|]][[Alma 10.22|]][[Alma 10.23|]][[Alma 10.24|]][[Alma 10.25|]][[Alma 10.26|]][[Alma 10.27|]][[Alma 10.28|]][[Alma 10.29|]][[Alma 10.30|]][[Alma 10.31|]][[Alma 10.32|]]). Because of the guiding hand of God and Brother Napela’s great help, along with the hospitality and kindness of the Hawaiian Saints, the missionary work began to excel in Hawaii, and the foundation was laid.
 
 ## His Great and Deep Love
 
@@ -77,4 +75,3 @@ I know that God lives! This is his church. I know that the Savior lives! I know 
 
 
 
-#Love #Marriage #Women

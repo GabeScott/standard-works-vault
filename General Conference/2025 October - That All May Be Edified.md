@@ -1,7 +1,5 @@
 # That All May Be Edified
 
-Dallin H. Oaks
-
 By Brother Chad H Webb - *First Counselor in the Sunday School General Presidency*
 
 *Given in the October session of the 2025 General Conference*
@@ -131,7 +129,3 @@ I’m grateful for the teachers in my life, from goodly parents and local leader
 
 [^36]: See [[Ether 12.41|Ether 12:41]].
 
-
-
-
-#Holy_Ghost #Jesus_Christ #Learning #Scripture_Study #Teaching

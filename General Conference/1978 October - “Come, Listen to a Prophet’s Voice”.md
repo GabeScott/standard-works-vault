@@ -1,7 +1,5 @@
 # “Come, Listen to a Prophet’s Voice”
 
-Spencer W. Kimball
-
 By Ruth H. Funk - *Former Young Women General President*
 
 *Given in the October session of the 1978 General Conference*
@@ -35,4 +33,3 @@ To these truths I bear solemn witness, for I know this is God’s church. I know
 
 
 
-#Jesus_Christ #Prophets #Women

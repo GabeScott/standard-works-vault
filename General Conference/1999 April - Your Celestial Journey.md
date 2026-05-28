@@ -1,7 +1,5 @@
 # Your Celestial Journey
 
-Gordon B. Hinckley
-
 By President Thomas S. Monson - *First Counselor in the First Presidency*
 
 *Given in the April session of the 1999 General Conference*
@@ -151,7 +149,3 @@ I bear to you, my beloved sisters, my witness that Heavenly Father lives, that J
 
 [^10]: See [[D&C 76.6|D&C 76:6]].
 
-
-
-
-#Goals #Jesus_Christ #Parents #Patriarchal_Blessings #Prayer #Service #Young_Women

@@ -1,7 +1,5 @@
 # Standing with God
 
-Gordon B. Hinckley
-
 By Sharon G. Larsen - *Second Counselor in the Young Women General Presidency*
 
 *Given in the April session of the 2000 General Conference*
@@ -65,4 +63,3 @@ I know with all my being that there is no one in all time or eternity to take yo
 
 
 
-#Commitment #Courage #Family #Love #Prayer #Sacrament #Scripture_Study #Standards #Testimony

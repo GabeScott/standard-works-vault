@@ -1,7 +1,5 @@
 # “For I Will Lead You Along”
 
-Ezra Taft Benson
-
 By Elder Neal A. Maxwell - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1988 General Conference*
@@ -87,4 +85,3 @@ I thank the Savior personally for bearing all which I added to his hemorrhaging 
 
 
 
-#Jesus_Christ #Prophecy

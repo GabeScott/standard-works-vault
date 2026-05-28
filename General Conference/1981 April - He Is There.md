@@ -1,7 +1,5 @@
 # He Is There
 
-Marion G. Romney
-
 By President N. Eldon Tanner - *First Counselor in the First Presidency*
 
 *Given in the April session of the 1981 General Conference*
@@ -29,4 +27,3 @@ I love you people out there and humbly pray we may always realize that when we p
 
 
 
-#Prayer

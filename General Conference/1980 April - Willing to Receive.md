@@ -1,7 +1,5 @@
 # Willing to Receive
 
-Spencer W. Kimball
-
 By Elder Marion D. Hanks - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1980 General Conference*
@@ -132,4 +130,3 @@ God bless us that we may meet the test, in the name of Jesus Christ, amen.
 
 
 
-#Charity #Love

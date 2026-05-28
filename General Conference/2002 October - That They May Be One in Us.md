@@ -1,7 +1,5 @@
 # That They May Be One in Us
 
-Gordon B. Hinckley
-
 By Elder D. Todd Christofferson - *Of the Seventy*
 
 *Given in the October session of the 2002 General Conference*
@@ -79,4 +77,3 @@ May God hear the Savior’s prayer and lead us all to be one with Them is my pra
 
 
 
-#Atonement #Holy_Ghost #Humility #Unity

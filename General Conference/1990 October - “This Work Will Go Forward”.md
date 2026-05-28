@@ -1,7 +1,5 @@
 # “This Work Will Go Forward”
 
-Gordon B. Hinckley
-
 By President Gordon B. Hinckley - *First Counselor in the First Presidency*
 
 *Given in the October session of the 1990 General Conference*
@@ -25,4 +23,3 @@ Such are the words of our beloved leader Ezra Taft Benson. I am confident that I
 
 
 
-#Faith #Obedience #Prophets #Testimony

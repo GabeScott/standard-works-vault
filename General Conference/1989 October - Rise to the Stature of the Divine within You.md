@@ -1,7 +1,5 @@
 # Rise to the Stature of the Divine within You
 
-Ezra Taft Benson
-
 By President Gordon B. Hinckley - *First Counselor in the First Presidency*
 
 *Given in the October session of the 1989 General Conference*
@@ -99,4 +97,3 @@ Yes, there are adversities to be overcome, not a few of them. There are trials t
 
 
 
-#Faith #Marriage #Women

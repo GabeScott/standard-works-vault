@@ -1,7 +1,5 @@
 # “He Maketh Me to Lie Down in Green Pastures”
 
-Thomas S. Monson
-
 By Elder Kwok Yuen Tai - *Of the Seventy*
 
 *Given in the April session of the 1993 General Conference*
@@ -47,4 +45,3 @@ The twenty-third Psalm says in part: “The Lord is my shepherd. … He maketh m
 
 
 
-#Peace #Safety #Spirituality

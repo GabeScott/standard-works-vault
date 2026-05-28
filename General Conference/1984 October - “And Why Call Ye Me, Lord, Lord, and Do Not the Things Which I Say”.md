@@ -1,7 +1,5 @@
 # “And Why Call Ye Me, Lord, Lord, and Do Not the Things Which I Say?”
 
-Gordon B. Hinckley
-
 By Elder L. Tom Perry - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1984 General Conference*
@@ -95,4 +93,3 @@ I give you my witness that the greatest joy you can experience here in mortality
 
 
 
-#Commandments #Obedience #Sabbath #Sacrament

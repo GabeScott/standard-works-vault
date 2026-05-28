@@ -1,7 +1,5 @@
 # The Power of Godliness
 
-Cheryl A. Esplin
-
 By Elder Kent F. Richards - *Of the Seventy*
 
 *Given in the April session of the 2016 General Conference*
@@ -141,7 +139,3 @@ Come to the temple. Come often. Come with and for your family. Come, and help ot
 
 [^25]: Thomas S. Monson, “[[2011 April - The Holy Temple—a Beacon to the World.md|The Holy Temple—a Beacon to the World]],” *Ensign* or *Liahona,* May 2011, 92.
 
-
-
-
-#Covenants #Ordinances #Service #Temple_Work

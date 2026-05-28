@@ -1,7 +1,5 @@
 # He Is Risen
 
-Ezra Taft Benson
-
 By President Howard W. Hunter - *Acting President of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1988 General Conference*
@@ -79,4 +77,3 @@ As one called and ordained to bear witness of the name of Jesus Christ to all th
 
 
 
-#Atonement #Jesus_Christ #Resurrection

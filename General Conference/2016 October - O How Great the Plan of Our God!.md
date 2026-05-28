@@ -1,7 +1,5 @@
 # O How Great the Plan of Our God!
 
-Jean B. Bingham
-
 By President Dieter F. Uchtdorf - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 2016 General Conference*
@@ -131,7 +129,3 @@ Of this I testify in deep gratitude to our Heavenly Father, as I leave you my bl
 
 [^9]: [[2 Nephi 9.13|2 Nephi 9:13]]; see also [[2 Nephi 9.8|verses 8–12, 14–20]][[2 Nephi 9.9|]][[2 Nephi 9.10|]][[2 Nephi 9.11|]][[2 Nephi 9.12|]][[2 Nephi 9.14|]][[2 Nephi 9.15|]][[2 Nephi 9.16|]][[2 Nephi 9.17|]][[2 Nephi 9.18|]][[2 Nephi 9.19|]][[2 Nephi 9.20|]].
 
-
-
-
-#Atonement #Divine_Nature #Gratitude #Plan_Of_Salvation #Resurrection

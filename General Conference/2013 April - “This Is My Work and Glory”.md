@@ -1,7 +1,5 @@
 # “This Is My Work and Glory”
 
-Thomas S. Monson
-
 By Elder M. Russell Ballard - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2013 General Conference*
@@ -95,4 +93,3 @@ I testify that the work of Jesus Christ is accomplished through the priesthood. 
 
 
 
-#Divine_Nature #Family #Priesthood

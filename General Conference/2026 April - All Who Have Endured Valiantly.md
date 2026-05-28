@@ -1,6 +1,6 @@
 # All Who Have Endured Valiantly
 
-Dallin H. Oaks
+([[D&C 121.29|Doctrine and Covenants 121:29]])
 
 By Elder David A. Bednar - *Of the Quorum of the Twelve Apostles*
 
@@ -169,5 +169,3 @@ I joyfully witness that each of us, with the Lord’s grace and mercy, can belie
 
 [^37]: [[D&C 121.29|Doctrine and Covenants 121:29]]; emphasis added.
 
-
-#Charity #Discipleship #Endurance #Grace #Love #Spiritual_Gifts

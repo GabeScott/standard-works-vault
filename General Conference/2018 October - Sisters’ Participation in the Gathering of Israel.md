@@ -1,7 +1,5 @@
 # Sisters’ Participation in the Gathering of Israel
 
-Russell M. Nelson
-
 By President Russell M. Nelson - *President of the Church*
 
 *Given in the October session of the 2018 General Conference*
@@ -87,7 +85,3 @@ Jesus is the Christ. This is His Church. Of this I testify in the name of Jesus 
 
 [^4]: Russell M. Nelson, “[[2015 October - A Plea to My Sisters.md|A Plea to My Sisters]],” *Ensign* or *Liahona,* Nov. 2015, 96; emphasis added.
 
-
-
-
-#Book_Of_Mormon #Divine_Nature #Gathering #Media #Ministering #Motherhood #Teaching #Temple_Work

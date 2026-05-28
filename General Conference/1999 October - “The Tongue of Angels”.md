@@ -1,7 +1,5 @@
 # “The Tongue of Angels”
 
-Gordon B. Hinckley
-
 By Elder Robert S. Wood - *Of the Seventy*
 
 *Given in the October session of the 1999 General Conference*
@@ -37,4 +35,3 @@ I bear witness that God is indeed holy. He is our Father, we His children. We ar
 
 
 
-#Communication #Holy_Ghost #Profanity #Reverence

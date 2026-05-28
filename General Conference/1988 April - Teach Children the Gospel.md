@@ -1,7 +1,5 @@
 # Teach Children the Gospel
 
-Ezra Taft Benson
-
 By Dwan J. Young - *Recently Released Primary General President*
 
 *Given in the April session of the 1988 General Conference*
@@ -49,4 +47,3 @@ On this beautiful Easter Sunday I bear witness that Jesus Christ lived and died 
 
 
 
-#Children #Spirituality #Teaching

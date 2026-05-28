@@ -1,7 +1,5 @@
 # “Crickets” Can Be Destroyed through Spirituality
 
-Gordon B. Hinckley
-
 By Ardeth G. Kapp - *Young Women General President*
 
 *Given in the October session of the 1990 General Conference*
@@ -63,4 +61,3 @@ I encourage you to participate in experiences that are outlined in your *Persona
 
 
 
-#Example #Faith #Family #Individual_Worth #Obedience #Pioneers #Temptation #Women #Youth

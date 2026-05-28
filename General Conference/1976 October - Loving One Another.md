@@ -1,7 +1,5 @@
 # Loving One Another
 
-Spencer W. Kimball
-
 By President Spencer W. Kimball - *President of the Church*
 
 *Given in the October session of the 1976 General Conference*
@@ -37,4 +35,3 @@ This has been a wonderful meeting. We’re deeply grateful for the splendid serv
 
 
 
-#Parenthood #Self-Reliance #Service #Welfare

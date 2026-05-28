@@ -1,7 +1,5 @@
 # Preparing for Missionary Service
 
-Gordon B. Hinckley
-
 By Elder Daryl H. Garn - *Of the Seventy*
 
 *Given in the April session of the 2003 General Conference*
@@ -45,4 +43,3 @@ I testify, as President Hinckley recently said of missionary service, that “th
 
 
 
-#Missionary_Work #Preparation #Worthiness

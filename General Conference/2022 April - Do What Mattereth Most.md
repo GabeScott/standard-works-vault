@@ -1,7 +1,5 @@
 # Do What Mattereth Most
 
-Russell M. Nelson
-
 By Rebecca L. Craven - *Second Counselor in the Young Women General Presidency*
 
 *Given in the April session of the 2022 General Conference*
@@ -107,7 +105,3 @@ As we center our lives on Jesus Christ, we will be guided to do what mattereth m
 
 [^8]: See *General Handbook: Serving in The Church of Jesus Christ of Latter-day Saints*, [1.2](https://www.churchofjesuschrist.org/study/manual/general-handbook/1-work-of-salvation-and-exaltation?lang=eng&id=p10-p28#p10), ChurchofJesusChrist.org.
 
-
-
-
-#Covenants #Discipleship #Joy #Trust

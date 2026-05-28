@@ -1,7 +1,5 @@
 # Ripples
 
-Gordon B. Hinckley
-
 By Virginia U. Jensen - *First Counselor in the Relief Society General Presidency*
 
 *Given in the October session of the 2000 General Conference*
@@ -73,4 +71,3 @@ God lives. His Son, Jesus Christ, provides the way for us to return and live wit
 
 
 
-#Dedication #Faith #Family #Home #Humility #Joy #Missionary_Work #Obedience #Satan #Visiting_Teaching #Women #Work

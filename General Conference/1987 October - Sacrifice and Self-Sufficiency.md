@@ -1,7 +1,5 @@
 # Sacrifice and Self-Sufficiency
 
-Ezra Taft Benson
-
 By Elder M. Russell Ballard - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1987 General Conference*
@@ -116,4 +114,3 @@ I testify that we have been taught the truth during this conference, that God li
 
 
 
-#Missionary_Work #Obedience #Sacrifice #Self-Reliance

@@ -1,7 +1,5 @@
 # Strengthened by the Atonement of Jesus Christ
 
-Rosemary M. Wixom
-
 By Elder Dallin H. Oaks - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2015 General Conference*
@@ -118,7 +116,3 @@ One day all of these mortal burdens will pass away and there will be no more pai
 
 [^8]: Neal A. Maxwell, “Apply the Atoning Blood of Christ,” *Ensign,* Nov. 1997, 23.
 
-
-
-
-#Addiction #Atonement #Disabilities #Healing #Jesus_Christ

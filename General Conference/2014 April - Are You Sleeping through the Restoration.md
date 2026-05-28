@@ -1,7 +1,5 @@
 # Are You Sleeping through the Restoration?
 
-Thomas S. Monson
-
 By President Dieter F. Uchtdorf - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 2014 General Conference*
@@ -167,7 +165,3 @@ Let us be awake and not be weary of well-doing, for we “are laying the foundat
 
 [^12]: See [[D&C 64.33|Doctrine and Covenants 64:33]].
 
-
-
-
-#Addiction #Jesus_Christ #Priorities #Restoration

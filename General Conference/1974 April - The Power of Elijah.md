@@ -1,7 +1,5 @@
 # The Power of Elijah
 
-Spencer W. Kimball
-
 By Elder Theodore M. Burton - *Assistant to the Council of the Twelve*
 
 *Given in the April session of the 1974 General Conference*
@@ -73,4 +71,3 @@ Through this priesthood power which has been again restored to prophets of God, 
 
 
 
-#Priesthood #Temple_Work

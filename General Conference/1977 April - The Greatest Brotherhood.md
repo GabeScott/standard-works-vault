@@ -1,7 +1,5 @@
 # The Greatest Brotherhood
 
-Spencer W. Kimball
-
 By President N. Eldon Tanner - *First Counselor in the First Presidency*
 
 *Given in the April session of the 1977 General Conference*
@@ -111,4 +109,3 @@ May we strive with all our hearts, minds, and strength to do what the Lord would
 
 
 
-#Brotherhood #Unity

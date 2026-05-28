@@ -1,7 +1,5 @@
 # Standing for Truth and Right
 
-Gordon B. Hinckley
-
 By Elder M. Russell Ballard - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1997 General Conference*
@@ -83,7 +81,3 @@ These are difficult times in which we are living. In some respects, it is perhap
 
 [^13]: “History of the Church,” *Juvenile Instructor,* 30 Sept. 1871, 158.
 
-
-
-
-#Children #Commandments #Covenants #Example #Fellowshipping #Jesus_Christ #Parenthood #Priesthood #Satan #Sin #Truth #Youth

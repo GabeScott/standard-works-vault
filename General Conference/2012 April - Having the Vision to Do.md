@@ -1,7 +1,5 @@
 # Having the Vision to Do
 
-Thomas S. Monson
-
 By Elder O. Vincent Haleck - *Of the Seventy*
 
 *Given in the April session of the 2012 General Conference*
@@ -53,4 +51,3 @@ Just as the Savior saw great potential in His early disciples, He also sees the 
 
 
 
-#Discipleship #Fasting #Missionary_Work #Perspective #Prayer

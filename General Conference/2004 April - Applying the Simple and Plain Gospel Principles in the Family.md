@@ -1,7 +1,5 @@
 # Applying the Simple and Plain Gospel Principles in the Family
 
-Gordon B. Hinckley
-
 By Elder Francisco J. Viñas - *Of the Seventy*
 
 *Given in the April session of the 2004 General Conference*
@@ -61,4 +59,3 @@ I share with you my testimony that these principles are true. I testify that the
 
 
 
-#Atonement #Faith #Family #Home #Prayer #Repentance

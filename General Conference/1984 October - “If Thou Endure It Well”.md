@@ -1,7 +1,5 @@
 # “If Thou Endure It Well”
 
-Gordon B. Hinckley
-
 By Elder Marvin J. Ashton - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1984 General Conference*
@@ -101,4 +99,3 @@ God does live. Jesus is the Christ. One of His marks of greatness, His endurance
 
 
 
-#Adversity #Opposition

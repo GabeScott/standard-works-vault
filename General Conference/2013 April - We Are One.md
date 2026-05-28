@@ -1,7 +1,5 @@
 # We Are One
 
-Thomas S. Monson
-
 By President Henry B. Eyring - *First Counselor in the First Presidency*
 
 *Given in the April session of the 2013 General Conference*
@@ -97,7 +95,3 @@ I pray that wherever we are and whatever duties we have in the priesthood of God
 
 [^2]: David O. McKay, in Conference Report, Apr. 1959, 122.
 
-
-
-
-#Missionary_Work #Priesthood #Unity

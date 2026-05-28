@@ -1,7 +1,5 @@
 # Safely Gathered Home
 
-Gary E. Stevenson
-
 By Elder Quentin L. Cook - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2023 General Conference*
@@ -50,7 +48,7 @@ Clearly the high point in Israel’s chronological history is the birth, message
 
 After the Savior’s eternity-shaping death and Resurrection, a second well-known scattering of Judah occurred between AD 70 and AD 135 when, due to Roman oppression and persecution, the Jews dispersed throughout the then-known world.
 
-President Nelson has taught, “The Book of Mormon came forth as a sign that the Lord had commenced to gather \[the\] children of the covenant.”[^21] Thus, the Book of Mormon, translated by the Prophet Joseph Smith through the gift and power of God, is directed to Lehi’s descendants, scattered Israel, and Gentiles who are adopted into the tribes of Israel. The chapter heading to [[1 Nephi 22.1|1 Nephi 22]] reads in part, “Israel will be scattered upon all the face of the earth—The Gentiles will nurse and nourish Israel with the gospel in the last days.” The [Book of Mormon title page](https://www.churchofjesuschrist.org/study/scriptures/bofm/bofm-title?lang=eng) reads that one of the book’s purposes is for “the convincing of the Jew and Gentile that Jesus is the Christ.” With the Restoration and Book of Mormon, the concept of gathering Israel has greatly expanded.[^22]
+President Nelson has taught, “The Book of Mormon came forth as a sign that the Lord had commenced to gather \[the\] children of the covenant.”[^21] Thus, the Book of Mormon, translated by the Prophet Joseph Smith through the gift and power of God, is directed to Lehi’s descendants, scattered Israel, and Gentiles who are adopted into the tribes of Israel. The chapter heading to [[1 Nephi 22.1|1 Nephi 22]][[1 Nephi 22.2|]][[1 Nephi 22.3|]][[1 Nephi 22.4|]][[1 Nephi 22.5|]][[1 Nephi 22.6|]][[1 Nephi 22.7|]][[1 Nephi 22.8|]][[1 Nephi 22.9|]][[1 Nephi 22.10|]][[1 Nephi 22.11|]][[1 Nephi 22.12|]][[1 Nephi 22.13|]][[1 Nephi 22.14|]][[1 Nephi 22.15|]][[1 Nephi 22.16|]][[1 Nephi 22.17|]][[1 Nephi 22.18|]][[1 Nephi 22.19|]][[1 Nephi 22.20|]][[1 Nephi 22.21|]][[1 Nephi 22.22|]][[1 Nephi 22.23|]][[1 Nephi 22.24|]][[1 Nephi 22.25|]][[1 Nephi 22.26|]][[1 Nephi 22.27|]][[1 Nephi 22.28|]][[1 Nephi 22.29|]][[1 Nephi 22.30|]][[1 Nephi 22.31|]] reads in part, “Israel will be scattered upon all the face of the earth—The Gentiles will nurse and nourish Israel with the gospel in the last days.” The [Book of Mormon title page](https://www.churchofjesuschrist.org/study/scriptures/bofm/bofm-title?lang=eng) reads that one of the book’s purposes is for “the convincing of the Jew and Gentile that Jesus is the Christ.” With the Restoration and Book of Mormon, the concept of gathering Israel has greatly expanded.[^22]
 
 Those who accept the gospel of Jesus Christ, regardless of lineage, become part of gathered Israel.[^23] With that gathering and the numerous temples built and announced, we are in a unique position to gather Israel on both sides of the veil as never before under the Father’s plan.
 
@@ -115,7 +113,7 @@ I bear my sure and certain apostolic witness of the divinity of Jesus Christ and
 
 [^18]: President Spencer W. Kimball, speaking of Lamanite Israel, taught that Zion is all the Americas. He said, “We are in Israel and are being gathered” (*The Teachings of Spencer W. Kimball*, ed. Edward L. Kimball \[1982\], 439).
 
-[^19]: When Father Lehi was instructed to take his family and depart into the wilderness, at least part of the reason was that Jerusalem would be destroyed (see [[1 Nephi 2.1|1 Nephi 2]]). The destruction of Solomon’s Temple, the downfall of Jerusalem, and the captivity of the tribe of Judah occurred in about 586 BC.
+[^19]: When Father Lehi was instructed to take his family and depart into the wilderness, at least part of the reason was that Jerusalem would be destroyed (see [[1 Nephi 2.1|1 Nephi 2]][[1 Nephi 2.2|]][[1 Nephi 2.3|]][[1 Nephi 2.4|]][[1 Nephi 2.5|]][[1 Nephi 2.6|]][[1 Nephi 2.7|]][[1 Nephi 2.8|]][[1 Nephi 2.9|]][[1 Nephi 2.10|]][[1 Nephi 2.11|]][[1 Nephi 2.12|]][[1 Nephi 2.13|]][[1 Nephi 2.14|]][[1 Nephi 2.15|]][[1 Nephi 2.16|]][[1 Nephi 2.17|]][[1 Nephi 2.18|]][[1 Nephi 2.19|]][[1 Nephi 2.20|]][[1 Nephi 2.21|]][[1 Nephi 2.22|]][[1 Nephi 2.23|]][[1 Nephi 2.24|]]). The destruction of Solomon’s Temple, the downfall of Jerusalem, and the captivity of the tribe of Judah occurred in about 586 BC.
 
 [^20]: See Tad R. Callister, *The Infinite Atonement* (2000).
 
@@ -143,7 +141,3 @@ I bear my sure and certain apostolic witness of the divinity of Jesus Christ and
 
 [^32]: [[D&C 138.57|Doctrine and Covenants 138:57]].
 
-
-
-
-#Blessings #Book_Of_Mormon #Gathering #House_Of_Israel #Missionary_Work

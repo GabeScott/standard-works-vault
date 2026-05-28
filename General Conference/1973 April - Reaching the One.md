@@ -1,7 +1,5 @@
 # Reaching the One
 
-Harold B. Lee
-
 By Elder James E. Faust - *Assistant to the Council of the Twelve*
 
 *Given in the April session of the 1973 General Conference*
@@ -59,4 +57,3 @@ I bear solemn witness to the divinity of this great and marvelous work and to th
 
 
 
-#Priesthood #Youth

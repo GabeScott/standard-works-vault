@@ -1,7 +1,5 @@
 # Continuous Revelation
 
-Ezra Taft Benson
-
 By Elder James E. Faust - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1989 General Conference*
@@ -75,4 +73,3 @@ I witness humbly that I know the Lord still guides his church through his servan
 
 
 
-#Leadership #Prophecy #Spirituality

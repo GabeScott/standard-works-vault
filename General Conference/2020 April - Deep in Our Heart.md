@@ -1,7 +1,5 @@
 # Deep in Our Heart
 
-Russell M. Nelson
-
 By Douglas D. Holmes - *Recently Released First Counselor in the Young Men General Presidency*
 
 *Given in the April session of the 2020 General Conference*
@@ -137,7 +135,3 @@ I testify that God continues to do all things necessary to prepare His people fo
 
 [^36]: [[Moroni 10.32|Moroni 10:32]].
 
-
-
-
-#Agency #Goals #Sacrifice #Spirituality #Youth

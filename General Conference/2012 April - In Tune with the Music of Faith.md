@@ -1,7 +1,5 @@
 # In Tune with the Music of Faith
 
-Thomas S. Monson
-
 By Elder Quentin L. Cook - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2012 General Conference*
@@ -67,7 +65,7 @@ Let us, therefore, wherever we are on the path of discipleship in Lehi’s visio
 
 [^2]: Jonathan Sacks, “Has Europe Lost Its Soul?” (address delivered on Dec. 12, 2011, at the Pontifical Gregorian University), chiefrabbi.org/ReadArtical.aspx?id=1843.
 
-[^3]: See [[1 Nephi 8.1|1 Nephi 8]].
+[^3]: See [[1 Nephi 8.1|1 Nephi 8]][[1 Nephi 8.2|]][[1 Nephi 8.3|]][[1 Nephi 8.4|]][[1 Nephi 8.5|]][[1 Nephi 8.6|]][[1 Nephi 8.7|]][[1 Nephi 8.8|]][[1 Nephi 8.9|]][[1 Nephi 8.10|]][[1 Nephi 8.11|]][[1 Nephi 8.12|]][[1 Nephi 8.13|]][[1 Nephi 8.14|]][[1 Nephi 8.15|]][[1 Nephi 8.16|]][[1 Nephi 8.17|]][[1 Nephi 8.18|]][[1 Nephi 8.19|]][[1 Nephi 8.20|]][[1 Nephi 8.21|]][[1 Nephi 8.22|]][[1 Nephi 8.23|]][[1 Nephi 8.24|]][[1 Nephi 8.25|]][[1 Nephi 8.26|]][[1 Nephi 8.27|]][[1 Nephi 8.28|]][[1 Nephi 8.29|]][[1 Nephi 8.30|]][[1 Nephi 8.31|]][[1 Nephi 8.32|]][[1 Nephi 8.33|]][[1 Nephi 8.34|]][[1 Nephi 8.35|]][[1 Nephi 8.36|]][[1 Nephi 8.37|]][[1 Nephi 8.38|]].
 
 [^4]: See [[1 Nephi 8.27|1 Nephi 8:27]]; [[1 Nephi 11.35|11:35]].
 
@@ -117,7 +115,3 @@ Let us, therefore, wherever we are on the path of discipleship in Lehi’s visio
 
 [^27]: “When Faith Endures,” *Hymns,* no. 128.
 
-
-
-
-#Book_Of_Mormon #Faith #Family #Scripture_Study

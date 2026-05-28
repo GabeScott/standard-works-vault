@@ -1,7 +1,5 @@
 # Solemn Assembly
 
-Dallin H. Oaks
-
 By Presented by President D. Todd Christofferson - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 2026 General Conference*

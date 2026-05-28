@@ -1,7 +1,5 @@
 # Christlike Poise
 
-Gary E. Stevenson
-
 By Elder Mark A. Bragg - *Of the Seventy*
 
 *Given in the April session of the 2023 General Conference*
@@ -42,7 +40,7 @@ Next, remembering that there is a grand plan engenders courage and poise in chal
 
 ## Know the Enabling Power of Jesus Christ and His Atonement
 
-And finally, the enabling power of Christ, made possible by His atoning sacrifice, gives us the strength to endure and prevail. Because of Jesus Christ we can covenant with God and be strengthened in keeping that covenant. We can be bound to the Savior in joy and calm, regardless of our temporal circumstances.[^15] [[Alma 7.1|Alma chapter 7]] teaches beautifully about Christ’s enabling power. In addition to redeeming us from sin, the Savior can strengthen us in our weaknesses, fears, and challenges in this life.
+And finally, the enabling power of Christ, made possible by His atoning sacrifice, gives us the strength to endure and prevail. Because of Jesus Christ we can covenant with God and be strengthened in keeping that covenant. We can be bound to the Savior in joy and calm, regardless of our temporal circumstances.[^15] [[Alma 7.1|Alma chapter 7]][[Alma 7.2|]][[Alma 7.3|]][[Alma 7.4|]][[Alma 7.5|]][[Alma 7.6|]][[Alma 7.7|]][[Alma 7.8|]][[Alma 7.9|]][[Alma 7.10|]][[Alma 7.11|]][[Alma 7.12|]][[Alma 7.13|]][[Alma 7.14|]][[Alma 7.15|]][[Alma 7.16|]][[Alma 7.17|]][[Alma 7.18|]][[Alma 7.19|]][[Alma 7.20|]][[Alma 7.21|]][[Alma 7.22|]][[Alma 7.23|]][[Alma 7.24|]][[Alma 7.25|]][[Alma 7.26|]][[Alma 7.27|]] teaches beautifully about Christ’s enabling power. In addition to redeeming us from sin, the Savior can strengthen us in our weaknesses, fears, and challenges in this life.
 
 As we focus on Christ, we can hush our fears, as Alma’s people did in Helam.[^16] As a threatening army gathered, those faithful disciples of Christ demonstrated poise. Elder David A. Bednar has taught: “Alma counseled the believers to remember the Lord and the deliverance only He could bestow (see 2 Nephi 2:8). And knowledge of the Savior’s protecting watchcare enabled the people to hush their own fears.”[^17] This exemplifies poise.
 
@@ -99,7 +97,3 @@ May we seek the blessings of Christlike poise, not only to help ourselves in cha
 
 [^20]: [[Mark 4.40|Mark 4:40]].
 
-
-
-
-#Adversity #Atonement #Discipleship #Divine_Nature #Jesus_Christ #Plan_Of_Salvation

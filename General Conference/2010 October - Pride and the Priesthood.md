@@ -1,7 +1,5 @@
 # Pride and the Priesthood
 
-Thomas S. Monson
-
 By President Dieter F. Uchtdorf - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 2010 General Conference*
@@ -117,7 +115,7 @@ My beloved brethren, let us follow the example of our Savior and reach out to se
 
 [^4]: See [[2 Thessalonians 1.4|2 Thessalonians 1:4]].
 
-[^5]: See [[Alma 26.1|Alma 26]].
+[^5]: See [[Alma 26.1|Alma 26]][[Alma 26.2|]][[Alma 26.3|]][[Alma 26.4|]][[Alma 26.5|]][[Alma 26.6|]][[Alma 26.7|]][[Alma 26.8|]][[Alma 26.9|]][[Alma 26.10|]][[Alma 26.11|]][[Alma 26.12|]][[Alma 26.13|]][[Alma 26.14|]][[Alma 26.15|]][[Alma 26.16|]][[Alma 26.17|]][[Alma 26.18|]][[Alma 26.19|]][[Alma 26.20|]][[Alma 26.21|]][[Alma 26.22|]][[Alma 26.23|]][[Alma 26.24|]][[Alma 26.25|]][[Alma 26.26|]][[Alma 26.27|]][[Alma 26.28|]][[Alma 26.29|]][[Alma 26.30|]][[Alma 26.31|]][[Alma 26.32|]][[Alma 26.33|]][[Alma 26.34|]][[Alma 26.35|]][[Alma 26.36|]][[Alma 26.37|]].
 
 [^6]: Ezra Taft Benson, in Conference Report, Apr. 1989, 6.
 
@@ -163,7 +161,3 @@ My beloved brethren, let us follow the example of our Savior and reach out to se
 
 [^27]: [[1 Timothy 6.11|1 Timothy 6:11]].
 
-
-
-
-#Humility #Pride #Priesthood #Service

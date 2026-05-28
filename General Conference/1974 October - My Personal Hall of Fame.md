@@ -1,7 +1,5 @@
 # My Personal Hall of Fame
 
-Spencer W. Kimball
-
 By Elder Thomas S. Monson - *Of the Council of the Twelve*
 
 *Given in the October session of the 1974 General Conference*
@@ -95,4 +93,3 @@ Our place in an everlasting and eternal Hall of Fame will thereby be assured. Th
 
 
 
-#Excellence #Leadership

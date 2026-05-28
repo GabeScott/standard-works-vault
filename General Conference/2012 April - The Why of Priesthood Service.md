@@ -1,7 +1,5 @@
 # The Why of Priesthood Service
 
-Thomas S. Monson
-
 By President Dieter F. Uchtdorf - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 2012 General Conference*
@@ -133,7 +131,3 @@ As we do so, the infinite power of the Atonement will purify, cleanse, and refin
 
 [^7]: [[D&C 128.22|Doctrine and Covenants 128:22]].
 
-
-
-
-#Church_Callings #Leadership #Priesthood #Service

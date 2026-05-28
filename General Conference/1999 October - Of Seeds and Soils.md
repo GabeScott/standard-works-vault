@@ -1,7 +1,5 @@
 # Of Seeds and Soils
 
-Gordon B. Hinckley
-
 By President James E. Faust - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 1999 General Conference*
@@ -115,7 +113,3 @@ Alma said that when we feel the seed of faith growing, it will enlarge our souls
 
 [^12]: See [[D&C 105.19|D&C 105:19]].
 
-
-
-
-#Conversion #Education #Faith #Media #Missionary_Work #Prayer #Pride #Priesthood #Satan #Testimony #Tithing

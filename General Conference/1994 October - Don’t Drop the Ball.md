@@ -1,7 +1,5 @@
 # Don’t Drop the Ball
 
-Gordon B. Hinckley
-
 By President Gordon B. Hinckley - *First Counselor in the First Presidency*
 
 *Given in the October session of the 1994 General Conference*
@@ -103,4 +101,3 @@ Thank you, my brethren, for the goodness and consistency of your lives. This wor
 
 
 
-#Agency #Athletics #Character #Plan_Of_Salvation #Self-Control #Temptation

@@ -1,7 +1,5 @@
 # Receiving a Prophet
 
-Ezra Taft Benson
-
 By Elder Loren C. Dunn - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1983 General Conference*
@@ -29,4 +27,3 @@ May I end where I began. God does live. Jesus is the Christ. Joseph Smith is a t
 
 
 
-#Prophets #Unity

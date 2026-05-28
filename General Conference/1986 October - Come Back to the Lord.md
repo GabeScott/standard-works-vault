@@ -1,7 +1,5 @@
 # Come Back to the Lord
 
-Ezra Taft Benson
-
 By Elder F. Burton Howard - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1986 General Conference*
@@ -50,7 +48,7 @@ I finished the interview and talked with her husband as well. They were complete
 
 Now, did you notice the elements of their return? It wasn’t easy. They had always known. She had prayed for years. There was a lot of wasted time. Finally, before it was too late, they talked to the bishop, repentance took place, old attitudes and habits were forgotten, and they came back.
 
-Another who came back was Aminadab (see [[Helaman 5.1|Hel. 5]]). He had once belonged to the church of God, but he became critical and contentious. He evidently sympathized with the opposition, because he was present when two young missionaries named Nephi and Lehi were taken captive by an army of Lamanites.
+Another who came back was Aminadab (see [[Helaman 5.1|Hel. 5]][[Helaman 5.2|]][[Helaman 5.3|]][[Helaman 5.4|]][[Helaman 5.5|]][[Helaman 5.6|]][[Helaman 5.7|]][[Helaman 5.8|]][[Helaman 5.9|]][[Helaman 5.10|]][[Helaman 5.11|]][[Helaman 5.12|]][[Helaman 5.13|]][[Helaman 5.14|]][[Helaman 5.15|]][[Helaman 5.16|]][[Helaman 5.17|]][[Helaman 5.18|]][[Helaman 5.19|]][[Helaman 5.20|]][[Helaman 5.21|]][[Helaman 5.22|]][[Helaman 5.23|]][[Helaman 5.24|]][[Helaman 5.25|]][[Helaman 5.26|]][[Helaman 5.27|]][[Helaman 5.28|]][[Helaman 5.29|]][[Helaman 5.30|]][[Helaman 5.31|]][[Helaman 5.32|]][[Helaman 5.33|]][[Helaman 5.34|]][[Helaman 5.35|]][[Helaman 5.36|]][[Helaman 5.37|]][[Helaman 5.38|]][[Helaman 5.39|]][[Helaman 5.40|]][[Helaman 5.41|]][[Helaman 5.42|]][[Helaman 5.43|]][[Helaman 5.44|]][[Helaman 5.45|]][[Helaman 5.46|]][[Helaman 5.47|]][[Helaman 5.48|]][[Helaman 5.49|]][[Helaman 5.50|]][[Helaman 5.51|]][[Helaman 5.52|]]). He had once belonged to the church of God, but he became critical and contentious. He evidently sympathized with the opposition, because he was present when two young missionaries named Nephi and Lehi were taken captive by an army of Lamanites.
 
 A cloud of darkness came upon him, and he heard a still, mild voice whisper, “Repent … and seek no more to destroy my servants” ([[Helaman 5.29|Hel. 5:29–30]][[Helaman 5.30|]]). Surprised, he turned around and looked at Nephi and Lehi. Their faces shone through the darkness, and they appeared to be lifting their voices to heaven (see [[Helaman 5.36|Hel. 5:36]]).
 
@@ -91,4 +89,3 @@ And when they do, they will know, as I know, that the Lord is more concerned wit
 
 
 
-#Activation #Forgiveness #Repentance

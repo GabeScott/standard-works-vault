@@ -1,7 +1,5 @@
 # Helping Others Recognize the Whisperings of the Spirit
 
-Thomas S. Monson
-
 By Vicki F. Matsumori - *Second Counselor in the Primary General Presidency*
 
 *Given in the October session of the 2009 General Conference*
@@ -97,7 +95,3 @@ Jesus Christ is our Savior and Redeemer. He came to earth in the meridian of tim
 
 [^17]: “The Spirit of God,” *Hymns,* no. 2.
 
-
-
-
-#Holy_Ghost #Spirituality #Testimony

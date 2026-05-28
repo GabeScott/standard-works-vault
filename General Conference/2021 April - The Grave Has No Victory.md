@@ -1,7 +1,5 @@
 # The Grave Has No Victory
 
-Russell M. Nelson
-
 By Reyna I. Aburto - *Second Counselor in the Relief Society General Presidency*
 
 *Given in the April session of the 2021 General Conference*
@@ -97,7 +95,3 @@ I testify that through the redeeming Atonement and glorious Resurrection of Jesu
 
 [^18]: [[John 11.25|John 11:25]].
 
-
-
-
-#Atonement #Death #Hope #Jesus_Christ #Resurrection

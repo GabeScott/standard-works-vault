@@ -1,7 +1,5 @@
 # Nourished by the Good Word of God
 
-Gordon B. Hinckley
-
 By Daniel K Judd - *First Counselor in the Sunday School General Presidency*
 
 *Given in the October session of the 2007 General Conference*
@@ -59,7 +57,3 @@ My dear brothers and sisters, with all of my heart I pray that each of us will t
 
 [^6]: *Teachings of Gordon B. Hinckley* (1997), 619–20.
 
-
-
-
-#Holy_Ghost #Teaching #Trust

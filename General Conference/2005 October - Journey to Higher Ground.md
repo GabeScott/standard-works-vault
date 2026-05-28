@@ -1,7 +1,5 @@
 # Journey to Higher Ground
 
-Gordon B. Hinckley
-
 By Elder Joseph B. Wirthlin - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2005 General Conference*
@@ -177,7 +175,3 @@ I leave my witness that the Lord will bless all who embark upon the paths of dis
 
 [^25]: In Conference Report, Oct. 1995, [[1995 October - Stay the Course—Keep the Faith.md|96]]; or *Ensign,* Nov. 1995, 72.
 
-
-
-
-#Agency #Holy_Ghost #Obedience #Prophets #Service #Temples

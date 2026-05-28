@@ -1,7 +1,5 @@
 # Receive His Gift
 
-Dallin H. Oaks
-
 By Elder Patrick Kearon - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2025 General Conference*
@@ -109,7 +107,3 @@ You *are* a child of God. This is not just a nice song we sing.[^16] Will you pl
 
 [^18]: See [[2 Nephi 2.25|2 Nephi 2:25.]]
 
-
-
-
-#Divine_Nature #God_The_Father #Jesus_Christ #Love

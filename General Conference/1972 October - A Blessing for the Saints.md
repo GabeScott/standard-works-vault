@@ -1,7 +1,5 @@
 # A Blessing for the Saints
 
-N. Eldon Tanner
-
 By President Harold B. Lee - *President of the Church*
 
 *Given in the October session of the 1972 General Conference*
@@ -55,4 +53,3 @@ I bear you my witness to these things and leave you my blessing in the name of t
 
 
 
-#Blessings

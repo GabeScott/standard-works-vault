@@ -1,7 +1,5 @@
 # Followers of Christ
 
-Thomas S. Monson
-
 By Elder Dallin H. Oaks - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2013 General Conference*
@@ -102,7 +100,3 @@ I testify of our Savior, Jesus Christ, whose teachings and example we seek to fo
 
 [^7]: *Hymns,* no. 116.
 
-
-
-
-#Jesus_Christ #Obedience

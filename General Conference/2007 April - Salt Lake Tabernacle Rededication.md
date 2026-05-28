@@ -1,7 +1,5 @@
 # Salt Lake Tabernacle Rededication
 
-Thomas S. Monson
-
 By President James E. Faust - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 2007 General Conference*
@@ -59,7 +57,3 @@ I am grateful this magnificent building has been strengthened and renewed so it 
 
 [^8]: *Brigham Young University Studies,* spring 1979, 421; see also William Smith claim in Glen M. Leonard, *Nauvoo,* 754, note 86.
 
-
-
-
-#Church_History #Prophets #Temple_Square

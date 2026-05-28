@@ -1,7 +1,5 @@
 # Blessed Are the Peacemakers
 
-Dallin H. Oaks
-
 By Elder Gary E. Stevenson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2025 General Conference*
@@ -145,7 +143,3 @@ We fulfill our divine role as children of a loving Heavenly Father as we strive 
 
 [^16]: [[Mosiah 4.13|Mosiah 4:13]].
 
-
-
-
-#Contention #Forgiveness #Kindness #Love #Peace #Peacemaking

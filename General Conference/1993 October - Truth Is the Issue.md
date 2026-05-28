@@ -1,7 +1,5 @@
 # Truth Is the Issue
 
-Gordon B. Hinckley
-
 By Elder F. Enzio Busche - *Of the Seventy*
 
 *Given in the October session of the 1993 General Conference*
@@ -49,4 +47,3 @@ Let us therefore listen, my dear brothers and sisters, to the voice of warning. 
 
 
 
-#Plan_Of_Salvation #Repentance #Truth

@@ -1,7 +1,5 @@
 # Brothers and Sisters in Christ
 
-David A. Bednar
-
 By Elder Ulisses Soares - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2023 General Conference*
@@ -125,7 +123,3 @@ I testify to you that as we continue to flow this way during our mortal life, a 
 
 [^29]: See [[Acts 17.26|Acts 17:26]].
 
-
-
-
-#Divine_Nature #Love #Prejudice #Respect #Unity

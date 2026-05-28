@@ -1,7 +1,5 @@
 # A Higher Joy
 
-Dallin H. Oaks
-
 By Elder Dieter F. Uchtdorf - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2024 General Conference*
@@ -205,7 +203,3 @@ May we all seek and find the higher joy that comes from devoting our lives to ou
 
 [^29]: [[Philippians 4.7|Philippians 4:7]].
 
-
-
-
-#Adversity #Discipleship #Hope #Joy #Peace #Service

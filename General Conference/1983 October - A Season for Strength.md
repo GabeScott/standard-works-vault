@@ -1,7 +1,5 @@
 # A Season for Strength
 
-Gordon B. Hinckley
-
 By Barbara B. Smith - *Relief Society General President*
 
 *Given in the October session of the 1983 General Conference*
@@ -43,4 +41,3 @@ May the Lord be our light and our salvation, I pray in the name of Jesus Christ,
 
 
 
-#Women

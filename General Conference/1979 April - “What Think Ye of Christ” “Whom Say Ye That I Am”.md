@@ -1,7 +1,5 @@
 # “What Think Ye of Christ?” “Whom Say Ye That I Am?”
 
-Spencer W. Kimball
-
 By Elder Robert D. Hales - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1979 General Conference*
@@ -97,4 +95,3 @@ During this Easter season, this is my personal witness and testimony. Oh, if I h
 
 
 
-#Jesus_Christ

@@ -1,7 +1,5 @@
 # The Golden Thread of Choice
 
-Ezra Taft Benson
-
 By President Howard W. Hunter - *President of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1989 General Conference*
@@ -61,4 +59,3 @@ Let us be conscious of the fact that our future is being fashioned by the decisi
 
 
 
-#Agency #Faith #Obedience

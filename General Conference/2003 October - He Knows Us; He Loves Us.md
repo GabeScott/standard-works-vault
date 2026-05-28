@@ -1,7 +1,5 @@
 # He Knows Us; He Loves Us
 
-Gordon B. Hinckley
-
 By Sydney S. Reynolds - *First Counselor in the Primary General Presidency*
 
 *Given in the October session of the 2003 General Conference*
@@ -59,7 +57,3 @@ The Savior gave His life for each one of us. He knows our joys and our sorrows. 
 
 [^7]: [[Mosiah 3.17|Mosiah 3:17]].
 
-
-
-
-#God_The_Father #Holy_Ghost #Individual_Worth #Tithing

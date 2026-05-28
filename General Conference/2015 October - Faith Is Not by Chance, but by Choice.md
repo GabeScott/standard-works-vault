@@ -1,7 +1,5 @@
 # Faith Is Not by Chance, but by Choice
 
-Rosemary M. Wixom
-
 By Elder Neil L. Andersen - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2015 General Conference*
@@ -137,7 +135,3 @@ My dear friends, your faith did not begin at birth, and it will not end at death
 
 [^25]: Comments by Zane Openshaw at the funeral for his family members, June 22, 2015.
 
-
-
-
-#Book_Of_Mormon #Faith #Holy_Ghost #Joseph_Smith #Missionary_Work #Obedience #Priesthood #Prophets

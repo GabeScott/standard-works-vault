@@ -1,7 +1,5 @@
 # “Be With and Strengthen Them”
 
-Henry B. Eyring
-
 By Elder Jeffrey R. Holland - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2018 General Conference*
@@ -81,7 +79,3 @@ Brothers and sisters, I join with you in saluting every block teacher and ward t
 
 [^15]: See [[John 15.12|John 15:12]].
 
-
-
-
-#Church_Organization #Love #Ministering #Service

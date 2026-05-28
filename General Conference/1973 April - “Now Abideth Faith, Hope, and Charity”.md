@@ -1,7 +1,5 @@
 # “Now Abideth Faith, Hope, and Charity”
 
-Harold B. Lee
-
 By Bishop Vaughn J. Featherstone - *Second Counselor in the Presiding Bishopric*
 
 *Given in the April session of the 1973 General Conference*
@@ -163,4 +161,3 @@ And I pray that the charity of Jesus Christ will be with and abide with each one
 
 
 
-#Charity #Welfare

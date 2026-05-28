@@ -1,7 +1,5 @@
 # Consistent and Resilient Trust
 
-Jeffrey R. Holland
-
 By Elder L. Todd Budge - *Of the Seventy*
 
 *Given in the October session of the 2019 General Conference*
@@ -131,7 +129,3 @@ I witness that Jesus is the Christ. He is the source of all joy.[^27] His grace 
 
 [^30]: See [[1 Nephi 1.14|1 Nephi 1:14]].
 
-
-
-
-#Adversity #Book_Of_Mormon #Trust

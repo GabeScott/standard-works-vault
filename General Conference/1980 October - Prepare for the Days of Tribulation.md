@@ -1,7 +1,5 @@
 # Prepare for the Days of Tribulation
 
-Spencer W. Kimball
-
 By President Ezra Taft Benson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1980 General Conference*
@@ -77,4 +75,3 @@ May God bless us to be prepared for the days which lie ahead, which may be the m
 
 
 
-#Self-Reliance

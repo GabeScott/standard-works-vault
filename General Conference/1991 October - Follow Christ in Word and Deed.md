@@ -1,7 +1,5 @@
 # Follow Christ in Word and Deed
 
-Gordon B. Hinckley
-
 By Elder Rex D. Pinegar - *Of the Presidency of the Seventy*
 
 *Given in the October session of the 1991 General Conference*
@@ -83,4 +81,3 @@ I pray that we, who have taken upon us His name and His marvelous priesthood aut
 
 
 
-#Example #Faith #Jesus_Christ #Love #Obedience #Priesthood #Temptation

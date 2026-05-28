@@ -1,7 +1,5 @@
 # Welfare Services: Past, Present, and Future
 
-Spencer W. Kimball
-
 By Bishop Victor L. Brown - *Presiding Bishop*
 
 *Given in the April session of the 1980 General Conference*
@@ -79,4 +77,3 @@ May we be blessed to provide the leadership throughout the Church that will caus
 
 
 
-#Charity #Welfare

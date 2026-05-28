@@ -1,7 +1,5 @@
 # Salvation Comes through the Church
 
-Harold B. Lee
-
 By Elder Mark E. Petersen - *Of the Council of the Twelve*
 
 *Given in the April session of the 1973 General Conference*
@@ -169,4 +167,3 @@ But let us remember that his yoke cannot be separated from his church, and his b
 
 
 
-#Apostasy #Plan_Of_Salvation

@@ -1,7 +1,5 @@
 # “Born of Goodly Parents”
 
-Gordon B. Hinckley
-
 By Elder L. Tom Perry - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1985 General Conference*
@@ -101,4 +99,3 @@ Brothers and sisters, God lives! Jesus is the Christ, the Son of God, the sure f
 
 
 
-#Family

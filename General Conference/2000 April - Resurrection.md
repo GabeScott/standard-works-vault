@@ -1,7 +1,5 @@
 # Resurrection
 
-Gordon B. Hinckley
-
 By Elder Dallin H. Oaks - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2000 General Conference*
@@ -107,4 +105,3 @@ I testify of that reality and of the reality of His Resurrection and ours, in th
 
 
 
-#Book_Of_Mormon #Commandments #Courage #Death #Disabilities #Faith #Family_History #Forgiveness #Jesus_Christ #Joy #Morality #Perspective #Plan_Of_Salvation #Repentance #Resurrection #Temples

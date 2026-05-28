@@ -1,7 +1,5 @@
 # Priesthood Power
 
-Gordon B. Hinckley
-
 By President Thomas S. Monson - *First Counselor in the First Presidency*
 
 *Given in the October session of the 1999 General Conference*
@@ -135,7 +133,3 @@ May each of us ever be on the Lord’s errand and thereby be entitled to the Lor
 
 [^10]: [[John 14.18|John 14:18]].
 
-
-
-
-#Church_Callings #Grace #Holy_Ghost #Priesthood #Service #Sin

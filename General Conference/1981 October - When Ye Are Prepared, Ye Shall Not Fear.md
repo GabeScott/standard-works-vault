@@ -1,7 +1,5 @@
 # When Ye Are Prepared, Ye Shall Not Fear
 
-Gordon B. Hinckley
-
 By Elder L. Tom Perry - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1981 General Conference*
@@ -83,4 +81,3 @@ May we be quickened in our hearts this night with a firm resolve that high on th
 
 
 
-#Priesthood

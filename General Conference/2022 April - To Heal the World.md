@@ -1,7 +1,5 @@
 # To Heal the World
 
-Russell M. Nelson
-
 By Elder Ronald A. Rasband - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2022 General Conference*
@@ -159,7 +157,3 @@ I witness that Russell M. Nelson is God’s living prophet. I testify that Jesus
 
 [^28]: See [[1 Corinthians 15.4|1 Corinthians 15:4]].
 
-
-
-
-#Healing #Humanitarian_Aid #Jesus_Christ #Joseph_Smith #Religious_Freedom #Service

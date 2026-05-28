@@ -1,7 +1,5 @@
 # Be Not Deceived
 
-Gordon B. Hinckley
-
 By President Gordon B. Hinckley - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 1983 General Conference*
@@ -91,4 +89,3 @@ Brethren, if we live worthy of his inspiration, there will never be doubt in our
 
 
 
-#Media

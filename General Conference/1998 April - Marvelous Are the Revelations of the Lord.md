@@ -1,7 +1,5 @@
 # Marvelous Are the Revelations of the Lord
 
-Gordon B. Hinckley
-
 By Elder M. Russell Ballard - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1998 General Conference*
@@ -113,7 +111,3 @@ My brothers and sisters, we need to embrace, study, and appreciate the revealed 
 
 [^16]: [[D&C 138.57|D&C 138:57–59]][[D&C 138.58|]][[D&C 138.59|]].
 
-
-
-
-#Church_Organization #Holy_Ghost #Joseph_Smith #Plan_Of_Salvation #Priesthood #Prophets #Restoration #Resurrection #Scriptures #Spirituality #Temples

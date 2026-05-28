@@ -1,7 +1,5 @@
 # Hearts Knit in Righteousness and Unity
 
-Russell M. Nelson
-
 By Elder Quentin L. Cook - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2020 General Conference*
@@ -38,7 +36,7 @@ Being righteous is not dependent on each of us having every blessing in our live
 
 The context for my message is the contrast and lessons from sacred scriptures.
 
-It has been 200 years since the Father and His Son first appeared and commenced the Restoration of the gospel of Jesus Christ in 1820. The account in [[4 Nephi 1.1|4 Nephi]] in the Book of Mormon includes a similar 200-year period after the Savior appeared and established His Church in ancient America.
+It has been 200 years since the Father and His Son first appeared and commenced the Restoration of the gospel of Jesus Christ in 1820. The account in [[4 Nephi 1.1|4 Nephi]][[4 Nephi 1.2|]][[4 Nephi 1.3|]][[4 Nephi 1.4|]][[4 Nephi 1.5|]][[4 Nephi 1.6|]][[4 Nephi 1.7|]][[4 Nephi 1.8|]][[4 Nephi 1.9|]][[4 Nephi 1.10|]][[4 Nephi 1.11|]][[4 Nephi 1.12|]][[4 Nephi 1.13|]][[4 Nephi 1.14|]][[4 Nephi 1.15|]][[4 Nephi 1.16|]][[4 Nephi 1.17|]][[4 Nephi 1.18|]][[4 Nephi 1.19|]][[4 Nephi 1.20|]][[4 Nephi 1.21|]][[4 Nephi 1.22|]][[4 Nephi 1.23|]][[4 Nephi 1.24|]][[4 Nephi 1.25|]][[4 Nephi 1.26|]][[4 Nephi 1.27|]][[4 Nephi 1.28|]][[4 Nephi 1.29|]][[4 Nephi 1.30|]][[4 Nephi 1.31|]][[4 Nephi 1.32|]][[4 Nephi 1.33|]][[4 Nephi 1.34|]][[4 Nephi 1.35|]][[4 Nephi 1.36|]][[4 Nephi 1.37|]][[4 Nephi 1.38|]][[4 Nephi 1.39|]][[4 Nephi 1.40|]][[4 Nephi 1.41|]][[4 Nephi 1.42|]][[4 Nephi 1.43|]][[4 Nephi 1.44|]][[4 Nephi 1.45|]][[4 Nephi 1.46|]][[4 Nephi 1.47|]][[4 Nephi 1.48|]][[4 Nephi 1.49|]] in the Book of Mormon includes a similar 200-year period after the Savior appeared and established His Church in ancient America.
 
 The historical record we read in 4 Nephi describes a people where there were no envyings, strifes, tumults, lyings, murders, or any manner of lasciviousness. Because of this righteousness, the record states, “surely there could not be a happier people among all the people who had been created by the hand of God.”[^14]
 
@@ -165,7 +163,3 @@ It is my prayer that we will be righteous and united and completely focused on s
 
 [^36]: See [[Moses 7.18|Moses 7:18]].
 
-
-
-
-#Diversity #Obedience #Unity

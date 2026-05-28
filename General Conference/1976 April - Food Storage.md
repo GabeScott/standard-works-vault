@@ -1,7 +1,5 @@
 # Food Storage
 
-Spencer W. Kimball
-
 By Bishop Vaughn J. Featherstone - *Second Counselor in the Presiding Bishopric*
 
 *Given in the April session of the 1976 General Conference*
@@ -83,4 +81,3 @@ I bear my humble witness to you that the great God of heaven will open doors and
 
 
 
-#Self-Reliance

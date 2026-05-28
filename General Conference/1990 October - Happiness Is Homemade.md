@@ -1,7 +1,5 @@
 # Happiness Is Homemade
 
-Gordon B. Hinckley
-
 By Elder LeGrand R. Curtis - *Of the Seventy*
 
 *Given in the October session of the 1990 General Conference*
@@ -57,4 +55,3 @@ I testify that Jesus is the Christ. I love him; my wife loves him; and we deeply
 
 
 
-#Family #Obedience

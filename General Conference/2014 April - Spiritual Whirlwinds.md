@@ -1,7 +1,5 @@
 # Spiritual Whirlwinds
 
-Thomas S. Monson
-
 By Elder Neil L. Andersen - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2014 General Conference*
@@ -143,7 +141,3 @@ The Savior said, “I will not leave you comfortless: I will come to you.”[^25
 
 [^25]: [[John 14.18|John 14:18]].
 
-
-
-
-#Adversity #Atonement #Obedience

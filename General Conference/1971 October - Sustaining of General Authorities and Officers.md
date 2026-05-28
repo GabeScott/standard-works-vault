@@ -1,7 +1,5 @@
 # Sustaining of General Authorities and Officers
 
-Joseph Fielding Smith
-
 By 
 
 *Given in the October session of the 1971 General Conference*

@@ -1,7 +1,5 @@
 # Neither Cryptic Nor Hidden
 
-Spencer W. Kimball
-
 By Elder Theodore M. Burton - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1977 General Conference*
@@ -93,4 +91,3 @@ You can feel the urgency of this work in the air. You can see the hastening hand
 
 
 
-#Jesus_Christ #Missionary_Work #Plan_Of_Salvation

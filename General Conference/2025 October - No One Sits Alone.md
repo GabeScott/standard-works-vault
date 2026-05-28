@@ -1,7 +1,5 @@
 # No One Sits Alone
 
-Dallin H. Oaks
-
 By Elder Gerrit W. Gong - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2025 General Conference*
@@ -26,7 +24,7 @@ Fortune cookies are a fun, simple example. But the same principle of comparing p
 
 Everywhere people are moving. The United Nations reports 281 million international migrants. This is 128 million more individuals than in 1990 and more than three times 1970 estimates.[^3] Everywhere, record numbers of converts are finding The Church of Jesus Christ of Latter-day Saints. Every Sabbath, members and friends from 195 birth countries and territories gather in 31,916 Church congregations. We speak 125 languages.
 
-Recently, in Albania, North Macedonia, Kosovo, Switzerland, and Germany, I witnessed new members fulfilling the Book of Mormon allegory of the olive tree.[^4] In [[Jacob 5.1|Jacob 5]], the Lord of the vineyard and his servants strengthen both olive tree roots and branches by gathering and grafting together those from diverse locations. Today children of God gather as one in Jesus Christ; the Lord offers a remarkable natural means to expand our lived fulness of His restored gospel.[^5]
+Recently, in Albania, North Macedonia, Kosovo, Switzerland, and Germany, I witnessed new members fulfilling the Book of Mormon allegory of the olive tree.[^4] In [[Jacob 5.1|Jacob 5]][[Jacob 5.2|]][[Jacob 5.3|]][[Jacob 5.4|]][[Jacob 5.5|]][[Jacob 5.6|]][[Jacob 5.7|]][[Jacob 5.8|]][[Jacob 5.9|]][[Jacob 5.10|]][[Jacob 5.11|]][[Jacob 5.12|]][[Jacob 5.13|]][[Jacob 5.14|]][[Jacob 5.15|]][[Jacob 5.16|]][[Jacob 5.17|]][[Jacob 5.18|]][[Jacob 5.19|]][[Jacob 5.20|]][[Jacob 5.21|]][[Jacob 5.22|]][[Jacob 5.23|]][[Jacob 5.24|]][[Jacob 5.25|]][[Jacob 5.26|]][[Jacob 5.27|]][[Jacob 5.28|]][[Jacob 5.29|]][[Jacob 5.30|]][[Jacob 5.31|]][[Jacob 5.32|]][[Jacob 5.33|]][[Jacob 5.34|]][[Jacob 5.35|]][[Jacob 5.36|]][[Jacob 5.37|]][[Jacob 5.38|]][[Jacob 5.39|]][[Jacob 5.40|]][[Jacob 5.41|]][[Jacob 5.42|]][[Jacob 5.43|]][[Jacob 5.44|]][[Jacob 5.45|]][[Jacob 5.46|]][[Jacob 5.47|]][[Jacob 5.48|]][[Jacob 5.49|]][[Jacob 5.50|]][[Jacob 5.51|]][[Jacob 5.52|]][[Jacob 5.53|]][[Jacob 5.54|]][[Jacob 5.55|]][[Jacob 5.56|]][[Jacob 5.57|]][[Jacob 5.58|]][[Jacob 5.59|]][[Jacob 5.60|]][[Jacob 5.61|]][[Jacob 5.62|]][[Jacob 5.63|]][[Jacob 5.64|]][[Jacob 5.65|]][[Jacob 5.66|]][[Jacob 5.67|]][[Jacob 5.68|]][[Jacob 5.69|]][[Jacob 5.70|]][[Jacob 5.71|]][[Jacob 5.72|]][[Jacob 5.73|]][[Jacob 5.74|]][[Jacob 5.75|]][[Jacob 5.76|]][[Jacob 5.77|]], the Lord of the vineyard and his servants strengthen both olive tree roots and branches by gathering and grafting together those from diverse locations. Today children of God gather as one in Jesus Christ; the Lord offers a remarkable natural means to expand our lived fulness of His restored gospel.[^5]
 
 Preparing us for the kingdom of heaven, Jesus tells the parables of the great supper and wedding feast. In these parables, invited guests make excuses not to come. The master instructs his servants to “go out quickly into the streets and lanes of the city” and “the highways and hedges” to “bring in hither” the poor, maimed, halt, and blind.[^6] Spiritually speaking, that’s each of us.
 
@@ -50,7 +48,7 @@ But at church, the deacons laughed at him. His shoes were new, but not fashionab
 
 On the dusty roads to Jericho, each of us has been laughed at, embarrassed and hurt, perhaps scorned or abused. And with varying degrees of intent, each of us has also disregarded, not seen or heard, perhaps deliberately hurt others. It is precisely because we have been hurt and have hurt others that Jesus Christ brings us all to His inn. In His Church and through His ordinances and covenants, we come to each other and to Jesus Christ. We love and are loved, serve and are served, forgive and are forgiven.[^11] Please remember, “earth has no sorrow that heav’n cannot heal”;[^12] earth burdens lighten—our Savior’s joy is real.
 
-In [[1 Nephi 19.1|1 Nephi 19]], we read: “Even the very God of Israel do \[they\] trample under their feet; … they set him at naught. … Wherefore they scourge him, and he suffereth it; and they smite him, and he suffereth it. Yea, they spit upon him, and he suffereth it.”[^13]
+In [[1 Nephi 19.1|1 Nephi 19]][[1 Nephi 19.2|]][[1 Nephi 19.3|]][[1 Nephi 19.4|]][[1 Nephi 19.5|]][[1 Nephi 19.6|]][[1 Nephi 19.7|]][[1 Nephi 19.8|]][[1 Nephi 19.9|]][[1 Nephi 19.10|]][[1 Nephi 19.11|]][[1 Nephi 19.12|]][[1 Nephi 19.13|]][[1 Nephi 19.14|]][[1 Nephi 19.15|]][[1 Nephi 19.16|]][[1 Nephi 19.17|]][[1 Nephi 19.18|]][[1 Nephi 19.19|]][[1 Nephi 19.20|]][[1 Nephi 19.21|]][[1 Nephi 19.22|]][[1 Nephi 19.23|]][[1 Nephi 19.24|]], we read: “Even the very God of Israel do \[they\] trample under their feet; … they set him at naught. … Wherefore they scourge him, and he suffereth it; and they smite him, and he suffereth it. Yea, they spit upon him, and he suffereth it.”[^13]
 
 My friend Professor Terry Warner says the judging, scourging, smiting, and spitting were not occasional events that occurred only during Christ’s mortal life. How we treat each other—especially the hungry, the thirsty, those left out alone—is how we treat Him.[^14]
 
@@ -93,7 +91,7 @@ Covenant belonging deepens as we come to each other and to the Lord in His inn. 
 
 [^3]: International Organization for Migration, *World Migration Report 2024*, 21, publications.iom.int/books/world-migration-report-2024. “In 2022, there were 117 million displaced people in the world, and 71.2 million internally displaced people” (*World Migration Report 2024*, xii).
 
-[^4]: See [[Jacob 5.1|Jacob 5]].
+[^4]: See [[Jacob 5.1|Jacob 5]][[Jacob 5.2|]][[Jacob 5.3|]][[Jacob 5.4|]][[Jacob 5.5|]][[Jacob 5.6|]][[Jacob 5.7|]][[Jacob 5.8|]][[Jacob 5.9|]][[Jacob 5.10|]][[Jacob 5.11|]][[Jacob 5.12|]][[Jacob 5.13|]][[Jacob 5.14|]][[Jacob 5.15|]][[Jacob 5.16|]][[Jacob 5.17|]][[Jacob 5.18|]][[Jacob 5.19|]][[Jacob 5.20|]][[Jacob 5.21|]][[Jacob 5.22|]][[Jacob 5.23|]][[Jacob 5.24|]][[Jacob 5.25|]][[Jacob 5.26|]][[Jacob 5.27|]][[Jacob 5.28|]][[Jacob 5.29|]][[Jacob 5.30|]][[Jacob 5.31|]][[Jacob 5.32|]][[Jacob 5.33|]][[Jacob 5.34|]][[Jacob 5.35|]][[Jacob 5.36|]][[Jacob 5.37|]][[Jacob 5.38|]][[Jacob 5.39|]][[Jacob 5.40|]][[Jacob 5.41|]][[Jacob 5.42|]][[Jacob 5.43|]][[Jacob 5.44|]][[Jacob 5.45|]][[Jacob 5.46|]][[Jacob 5.47|]][[Jacob 5.48|]][[Jacob 5.49|]][[Jacob 5.50|]][[Jacob 5.51|]][[Jacob 5.52|]][[Jacob 5.53|]][[Jacob 5.54|]][[Jacob 5.55|]][[Jacob 5.56|]][[Jacob 5.57|]][[Jacob 5.58|]][[Jacob 5.59|]][[Jacob 5.60|]][[Jacob 5.61|]][[Jacob 5.62|]][[Jacob 5.63|]][[Jacob 5.64|]][[Jacob 5.65|]][[Jacob 5.66|]][[Jacob 5.67|]][[Jacob 5.68|]][[Jacob 5.69|]][[Jacob 5.70|]][[Jacob 5.71|]][[Jacob 5.72|]][[Jacob 5.73|]][[Jacob 5.74|]][[Jacob 5.75|]][[Jacob 5.76|]][[Jacob 5.77|]].
 
 [^5]: Every language and culture has words and terms that describe the tender things of the heart. Our lived fulness of His restored gospel expands as we learn from each other. Recently, Sisters Annalie (originally from Munich) and Suzy Myers, Elder Erich and Sister Christiane Kopischke, and Elder Jörg and Sister Julia Klebingat shared unique German words that speak to the heart. The feelings these words describe go beyond surface formality. They go beyond routine or duty. These feelings speak of the heart, of warm, close relationships, of spiritual joy in our divine souls. These special words in German include *Gemütlichkeit* and *gemütlich*, *Heimat*, *Heimweh*, *Geborgenheit*, *Zuflucht*, *Herzensangelegenheit*, *Herzensmensch,* and* Schummerstunde* (a rare and poetic term from the north).
 
@@ -121,7 +119,7 @@ Covenant belonging deepens as we come to each other and to the Lord in His inn. 
 
 [^17]: As taught by the Prophet Joseph Smith and his counselors in the First Presidency in *[Teachings of Presidents of the Church: Joseph Smith](https://www.churchofjesuschrist.org/study/manual/teachings-joseph-smith/chapter-44?lang=eng&id=p24#p24)* (2007), 513; see also [[Ephesians 1.10|Ephesians 1:10]].
 
-[^18]: [[2 Nephi 26.24|2 Nephi 26:24, 33]][[2 Nephi 26.33|]], emphasis added; see also [[2 Nephi 29.1|2 Nephi 29]]; [[Alma 29.8|Alma 29:8]]. [[D&C 90.11|Doctrine and Covenants 90:11]] promises “that every man shall hear the fulness of the gospel in his own tongue, and in his own language.” This promise is fulfilled as we bring together linguistic tongues and gospel cultural language in our homes and Church.
+[^18]: [[2 Nephi 26.24|2 Nephi 26:24, 33]][[2 Nephi 26.33|]], emphasis added; see also [[2 Nephi 29.1|2 Nephi 29]][[2 Nephi 29.2|]][[2 Nephi 29.3|]][[2 Nephi 29.4|]][[2 Nephi 29.5|]][[2 Nephi 29.6|]][[2 Nephi 29.7|]][[2 Nephi 29.8|]][[2 Nephi 29.9|]][[2 Nephi 29.10|]][[2 Nephi 29.11|]][[2 Nephi 29.12|]][[2 Nephi 29.13|]][[2 Nephi 29.14|]]; [[Alma 29.8|Alma 29:8]]. [[D&C 90.11|Doctrine and Covenants 90:11]] promises “that every man shall hear the fulness of the gospel in his own tongue, and in his own language.” This promise is fulfilled as we bring together linguistic tongues and gospel cultural language in our homes and Church.
 
 [^19]: See Dallin H. Oaks, “[[2003 October - Repentance and Change.md|Repentance and Change]],” *Ensign* or *Liahona*, Nov. 2003, 37–40.
 
@@ -135,7 +133,3 @@ Covenant belonging deepens as we come to each other and to the Lord in His inn. 
 
 [^24]: Jedediah M. Grant, who served in the First Presidency with Brigham Young, reported a vision of the spirit world that included numerous kinds of beautiful flowers thriving together, perhaps as a metaphor for unity and beauty in diversity. “I have seen good gardens on this earth, but I never saw any to compare with those that were there,” he said. “I saw flowers of numerous kinds, and some with from fifty to a hundred different colored flowers growing upon one stalk.” He experienced “the beauty and glory of the spirit world, where the righteous spirits are gathered together” (“Remarks, at the Funeral of President Jedediah M. Grant, by President Heber C. Kimball,” *Deseret News*, Dec. 10, 1856, 317).
 
-
-
-
-#Belonging #Fellowshipping #Friendship #Jesus_Christ #Love

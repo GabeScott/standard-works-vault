@@ -1,7 +1,5 @@
 # “Jesus, the Very Thought of Thee”
 
-Thomas S. Monson
-
 By President Howard W. Hunter - *President of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1993 General Conference*
@@ -83,4 +81,3 @@ In the name of Jesus Christ, amen.
 
 
 
-#Humility #Jesus_Christ #Reverence

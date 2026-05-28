@@ -1,7 +1,5 @@
 # “By Way of Invitation” (Alma 5:62)
 
-Gordon B. Hinckley
-
 By Betty Jo N. Jepsen - *First Counselor in the Primary General Presidency*
 
 *Given in the October session of the 1992 General Conference*
@@ -59,4 +57,3 @@ I pray that Heavenly Father will help us be wise men and wise women—wise enoug
 
 
 
-#Christmas #Prayer #Scripture_Study #Service

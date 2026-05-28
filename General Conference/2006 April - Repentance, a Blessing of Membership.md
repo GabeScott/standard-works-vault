@@ -1,7 +1,5 @@
 # Repentance, a Blessing of Membership
 
-Robert D. Hales
-
 By Elder Richard G. Hinckley - *Of the Seventy*
 
 *Given in the April session of the 2006 General Conference*
@@ -41,7 +39,3 @@ What does my membership in The Church of Jesus Christ of Latter-day Saints mean 
 
 [^3]: See [[Alma 34.16|Alma 34:16]].
 
-
-
-
-#Atonement #Jesus_Christ #Repentance

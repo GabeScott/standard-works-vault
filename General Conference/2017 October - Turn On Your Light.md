@@ -1,7 +1,5 @@
 # Turn On Your Light
 
-Sharon Eubank
-
 By Sharon Eubank - *First Counselor in the Relief Society General Presidency*
 
 *Given in the October session of the 2017 General Conference*
@@ -105,7 +103,3 @@ I conclude with the words of our well-loved prophet, Thomas S. Monson: “My dea
 
 [^12]: Thomas S. Monson, “[[1997 October - The Mighty Strength of the Relief Society.md|The Mighty Strength of the Relief Society]],” 95.
 
-
-
-
-#Communication #Joy #Relief_Society #Repentance #Women

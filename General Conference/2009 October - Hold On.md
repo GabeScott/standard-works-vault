@@ -1,7 +1,5 @@
 # Hold On
 
-Thomas S. Monson
-
 By Ann M. Dibb - *Second Counselor in the Young Women General Presidency*
 
 *Given in the October session of the 2009 General Conference*
@@ -51,4 +49,3 @@ May we *hold on* to the eternal truths of the gospel of Jesus Christ because the
 
 
 
-#Obedience #Safety #Scriptures

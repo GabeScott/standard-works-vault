@@ -1,7 +1,5 @@
 # Forsake Not Your Own Mercy
 
-Dallin H. Oaks
-
 By Elder Matthew S. Holland - *Of the Seventy*
 
 *Given in the October session of the 2025 General Conference*
@@ -79,7 +77,3 @@ Whether we are facing a deep, Jonah-like catastrophe or the everyday challenges 
 
 [^14]: Russell M. Nelson, “[[2016 October - Joy and Spiritual Survival.md|Joy and Spiritual Survival]],” *Ensign* or *Liahona*, Nov. 2016, 82.
 
-
-
-
-#Fall #Healing #Joy #Love #Mercy #Plan_Of_Salvation

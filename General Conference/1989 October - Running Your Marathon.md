@@ -1,7 +1,5 @@
 # Running Your Marathon
 
-Ezra Taft Benson
-
 By Elder Joseph B. Wirthlin - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1989 General Conference*
@@ -89,4 +87,3 @@ My dear young friends, I pray that the Lord will guide and strengthen each of yo
 
 
 
-#Endurance #Jesus_Christ #Leadership #Service #Spirituality #Youth

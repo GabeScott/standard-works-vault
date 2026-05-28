@@ -1,7 +1,5 @@
 # Let Mercy Temper Justice
 
-Gordon B. Hinckley
-
 By Elder Theodore M. Burton - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1985 General Conference*
@@ -61,4 +59,3 @@ That we may do so I pray in the name of Jesus Christ, amen.
 
 
 
-#Love #Repentance

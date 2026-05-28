@@ -1,7 +1,5 @@
 # “According to the Desire of [Our] Hearts”
 
-Gordon B. Hinckley
-
 By Elder Neal A. Maxwell - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1996 General Conference*

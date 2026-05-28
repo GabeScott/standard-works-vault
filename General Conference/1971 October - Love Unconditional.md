@@ -1,7 +1,5 @@
 # Love Unconditional
 
-Joseph Fielding Smith
-
 By Elder Marion D. Hanks - *Assistant to the Council of the Twelve*
 
 *Given in the October session of the 1971 General Conference*
@@ -61,4 +59,3 @@ God bless us to love them, to accept them, to give to them what they need in ord
 
 
 
-#Love #Parenthood #Youth

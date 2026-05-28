@@ -1,7 +1,5 @@
 # Remember, Remember
 
-Dallin H. Oaks
-
 By Elder Chi Hong (Sam) Wong - *Of the Seventy*
 
 *Given in the April session of the 2026 General Conference*
@@ -71,5 +69,3 @@ Let us remember, remember our Savior, especially in this Easter season. He is re
 
 [^2]: David A. Bednar, “[[2024 April - “Be Still, and Know That I Am God”.md|Be Still, and Know That I Am God]],” *Liahona*, May 2024, 29–30.
 
-
-#Agency #Book_Of_Mormon #Commandments #Jesus_Christ

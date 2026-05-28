@@ -1,7 +1,5 @@
 # Trust in the Lord
 
-Spencer W. Kimball
-
 By President Marion G. Romney - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 1977 General Conference*
@@ -153,4 +151,3 @@ Brethren, you young men particularly, I bear to you my testimony that I know tha
 
 
 
-#Faith #Trust #Youth

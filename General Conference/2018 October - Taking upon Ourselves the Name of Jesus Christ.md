@@ -1,7 +1,5 @@
 # Taking upon Ourselves the Name of Jesus Christ
 
-Russell M. Nelson
-
 By Elder Robert C. Gay - *Of the Presidency of the Seventy*
 
 *Given in the October session of the 2018 General Conference*
@@ -121,7 +119,3 @@ From the very depths of my soul, I bear testimony that The Church of Jesus Chris
 
 [^31]: [[John 4.14|John 4:14]].
 
-
-
-
-#Healing #Individual_Worth #Jesus_Christ #Love #Service #Trust

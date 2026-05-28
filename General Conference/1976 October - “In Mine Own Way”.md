@@ -1,7 +1,5 @@
 # “In Mine Own Way”
 
-Spencer W. Kimball
-
 By President Marion G. Romney - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 1976 General Conference*
@@ -141,4 +139,3 @@ That the Lord will give us the wisdom and the courage to understand and live by 
 
 
 
-#Self-Reliance #Service #Welfare

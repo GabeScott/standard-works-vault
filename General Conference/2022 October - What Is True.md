@@ -1,7 +1,5 @@
 # What Is True?
 
-Dallin H. Oaks
-
 By President Russell M. Nelson - *President of The Church of Jesus Christ of Latter-day Saints*
 
 *Given in the October session of the 2022 General Conference*
@@ -45,7 +43,3 @@ I love you, my dear brothers and sisters. I pray that this conference will provi
 
 [^5]: [[D&C 123.12|Doctrine and Covenants 123:12]].
 
-
-
-
-#Abuse #Truth

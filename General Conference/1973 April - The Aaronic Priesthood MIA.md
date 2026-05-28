@@ -1,7 +1,5 @@
 # The Aaronic Priesthood MIA
 
-Harold B. Lee
-
 By Bishop Victor L. Brown - *Presiding Bishop*
 
 *Given in the April session of the 1973 General Conference*
@@ -71,4 +69,3 @@ Never has the Lord blessed the earth with a finer generation of youth, nor has t
 
 
 
-#Priesthood #Youth

@@ -1,7 +1,5 @@
 # And of Some Have Compassion, Making a Difference
 
-Thomas S. Monson
-
 By Barbara Thompson - *Second Counselor in the Relief Society General Presidency*
 
 *Given in the October session of the 2010 General Conference*

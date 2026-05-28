@@ -1,7 +1,5 @@
 # Becoming a Great Benefit to Our Fellow Beings
 
-Gordon B. Hinckley
-
 By Elder Spencer J. Condie - *Of the Seventy*
 
 *Given in the April session of the 2002 General Conference*
@@ -108,7 +106,3 @@ My young beloved brethren, I pray that each of us, through our faith, will use o
 
 [^23]: “Discourse by President Woodruff,” *Millennial Star,* 5 Oct. 1891, 628–29.
 
-
-
-
-#Faith #Preparation #Service

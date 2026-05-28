@@ -1,7 +1,5 @@
 # “Watch, That Ye May Be Ready”
 
-Joseph Fielding Smith
-
 By President Harold B. Lee - *First Counselor in the First Presidency*
 
 *Given in the October session of the 1971 General Conference*
@@ -151,4 +149,3 @@ To this I testify in the name of Jesus Christ. Amen.
 
 
 
-#Jesus_Christ #Missionary_Work #Preparation

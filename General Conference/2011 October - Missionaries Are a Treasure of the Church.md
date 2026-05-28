@@ -1,7 +1,5 @@
 # Missionaries Are a Treasure of the Church
 
-Richard G. Scott
-
 By Elder Kazuhiko Yamashita - *Of the Seventy*
 
 *Given in the October session of the 2011 General Conference*
@@ -61,7 +59,3 @@ I testify that we are our Father in Heaven’s children, that He loves us, and t
 
 [^3]: [[D&C 64.34|Doctrine and Covenants 64:34]].
 
-
-
-
-#Conversion #Example #Love #Missionary_Work

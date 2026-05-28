@@ -1,7 +1,5 @@
 # Fatherhood, an Eternal Calling
 
-Gordon B. Hinckley
-
 By Elder L. Tom Perry - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2004 General Conference*
@@ -119,7 +117,3 @@ May we heed the voice of the prophets, who, from the beginning of time, have war
 
 [^15]: Joseph F. Smith, “The Rights of Fatherhood,” *Juvenile Instructor,* Mar. 1, 1902, 146.
 
-
-
-
-#Family #Fatherhood #Leadership #Marriage #Teaching

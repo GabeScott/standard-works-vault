@@ -1,7 +1,5 @@
 # Valued Companions
 
-Gordon B. Hinckley
-
 By Elder Joseph B. Wirthlin - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1997 General Conference*
@@ -142,7 +140,3 @@ I bear you my witness that God lives, that He loves His children. I know that Go
 
 [^25]: *Hymns,* no. 152.
 
-
-
-
-#Blessings #Family #Fellowshipping #Friendship #Holy_Ghost #Home_Teaching #Love #Marriage #Missionary_Work #Pioneers #Prayer #Visiting_Teaching

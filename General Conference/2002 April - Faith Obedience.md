@@ -1,7 +1,5 @@
 # Faith Obedience
 
-Gordon B. Hinckley
-
 By Elder R. Conrad Schultz - *Of the Seventy*
 
 *Given in the April session of the 2002 General Conference*
@@ -51,4 +49,3 @@ I witness to you that our Father in Heaven lives, that He loves us, and that by 
 
 
 
-#Faith #Obedience #Pride #Trust

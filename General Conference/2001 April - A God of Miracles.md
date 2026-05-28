@@ -1,7 +1,5 @@
 # A God of Miracles
 
-Gordon B. Hinckley
-
 By Sydney S. Reynolds - *First Counselor in the Primary General Presidency*
 
 *Given in the April session of the 2001 General Conference*
@@ -53,4 +51,3 @@ God did part the Red Sea, and He did give us the Book of Mormon. He can heal us 
 
 
 
-#Adversity #Book_Of_Mormon #God_The_Father #Jesus_Christ #Miracles #Restoration #Scriptures

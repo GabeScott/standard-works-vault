@@ -1,7 +1,5 @@
 # Hearken unto the Voice of God
 
-Spencer W. Kimball
-
 By Elder Bernard P. Brockbank - *Assistant to the Council of the Twelve*
 
 *Given in the April session of the 1974 General Conference*
@@ -95,4 +93,3 @@ In the name of Jesus Christ. Amen.
 
 
 
-#Obedience #Satan #Spirituality

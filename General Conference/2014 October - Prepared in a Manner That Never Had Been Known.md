@@ -1,7 +1,5 @@
 # Prepared in a Manner That Never Had Been Known
 
-Thomas S. Monson
-
 By Linda K. Burton - *Relief Society General President*
 
 *Given in the October session of the 2014 General Conference*
@@ -105,7 +103,3 @@ It is my prayer that for us, going to the temple will be much more than a onetim
 
 [^14]: [[D&C 109.13|Doctrine and Covenants 109:13, 15]][[D&C 109.15|]].
 
-
-
-
-#Education #Home #Obedience #Preparation #Temples

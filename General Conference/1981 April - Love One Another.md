@@ -1,7 +1,5 @@
 # Love One Another
 
-Marion G. Romney
-
 By Elder James M. Paramore - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1981 General Conference*
@@ -67,4 +65,3 @@ In the name of Jesus Christ, amen.
 
 
 
-#Love

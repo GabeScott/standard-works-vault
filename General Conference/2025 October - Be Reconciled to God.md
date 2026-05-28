@@ -1,7 +1,5 @@
 # Be Reconciled to God
 
-Dallin H. Oaks
-
 By Elder Kelly R. Johnson - *Of the Seventy*
 
 *Given in the October session of the 2025 General Conference*
@@ -85,7 +83,3 @@ I know Heavenly Father loves you and me, and He sent His Beloved Son, Jesus Chri
 
 [^17]: [[Jacob 4.6|Jacob 4:6]].
 
-
-
-
-#Atonement #Jesus_Christ #Repentance

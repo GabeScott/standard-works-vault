@@ -1,7 +1,5 @@
 # Church Auditing Department Report, 2023
 
-Dallin H. Oaks
-
 By Presented by Jared B. Larson - *Managing Director, Church Auditing Department*
 
 *Given in the April session of the 2024 General Conference*

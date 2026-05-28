@@ -1,7 +1,5 @@
 # Being Accepted of the Lord
 
-Thomas S. Monson
-
 By Elder Erich W. Kopischke - *Of the Seventy*
 
 *Given in the April session of the 2013 General Conference*
@@ -89,7 +87,3 @@ In the name of Jesus Christ, amen.
 
 [^13]: [[D&C 50.41|Doctrine and Covenants 50:41–42]][[D&C 50.42|]].
 
-
-
-
-#Covenants #Humility #Sacrifice

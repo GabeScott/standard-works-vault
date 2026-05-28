@@ -1,7 +1,5 @@
 # Fear Not: Believe Only!
 
-Russell M. Nelson
-
 By Elder Jeffrey R. Holland - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2022 General Conference*
@@ -100,7 +98,3 @@ Someone who faced circumstances far more desperate than you and I ever will once
 
 [^20]: [[D&C 128.22|Doctrine and Covenants 128:22]].
 
-
-
-
-#Adversity #Fear #Hope #Jesus_Christ #Light_Of_Christ #Suicide #Youth

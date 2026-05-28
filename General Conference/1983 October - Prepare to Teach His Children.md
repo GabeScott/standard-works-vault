@@ -1,7 +1,5 @@
 # Prepare to Teach His Children
 
-Gordon B. Hinckley
-
 By Dwan J. Young - *General Primary President*
 
 *Given in the October session of the 1983 General Conference*
@@ -51,4 +49,3 @@ Now is the time for each of us to prepare—to gain the strength necessary to me
 
 
 
-#Primary

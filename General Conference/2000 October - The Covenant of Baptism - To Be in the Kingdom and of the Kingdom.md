@@ -1,7 +1,5 @@
 # The Covenant of Baptism: To Be in the Kingdom and of the Kingdom
 
-Gordon B. Hinckley
-
 By Elder Robert D. Hales - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2000 General Conference*
@@ -95,4 +93,3 @@ I testify of the divinity of the gospel, restored in this latter day. I testify 
 
 
 
-#Adversity #Angels #Atonement #Attitude #Children #Covenants #Endurance #Example #Holy_Ghost #Jesus_Christ #Ordinances #Parenthood #Plan_Of_Salvation #Sacrament #Scripture_Study #Temptation #Word_Of_Wisdom

@@ -1,7 +1,5 @@
 # Keep an Eternal Perspective
 
-Gordon B. Hinckley
-
 By Elder Jay E. Jensen - *Of the Seventy*
 
 *Given in the April session of the 2000 General Conference*
@@ -65,4 +63,3 @@ I testify that the great plan of the Eternal God is true. God lives. Jesus is Hi
 
 
 
-#Activation #Adversity #Anger #Commandments #Conversion #Faith #Missionary_Work #Music #Perspective #Plan_Of_Salvation #Repentance #Seminary #Standards #Teaching #Testimony

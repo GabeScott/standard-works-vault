@@ -1,7 +1,5 @@
 # The Virtues of Righteous Daughters of God
 
-Gordon B. Hinckley
-
 By President James E. Faust - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 2003 General Conference*
@@ -133,7 +131,3 @@ I testify that if you practice these virtues, you will be able to “press forwa
 
 [^18]: [[2 Nephi 31.20|2 Nephi 31:20]].
 
-
-
-
-#Character #Example #Faith #Grace #Morality #Women

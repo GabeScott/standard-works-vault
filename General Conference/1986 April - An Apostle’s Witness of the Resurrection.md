@@ -1,7 +1,5 @@
 # An Apostle’s Witness of the Resurrection
 
-Ezra Taft Benson
-
 By President Howard W. Hunter - *Acting President of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1986 General Conference*
@@ -71,4 +69,3 @@ In teaching his Apostles, Christ made known to them “that the Son of Man must 
 
 
 
-#Jesus_Christ #Quorum_Of_The_Twelve_Apostles #Resurrection

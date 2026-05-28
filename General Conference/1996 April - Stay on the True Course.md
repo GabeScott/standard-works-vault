@@ -1,7 +1,5 @@
 # Stay on the True Course
 
-James E. Faust
-
 By Elder Carlos E. Asay - *Of the Presidency of the Seventy*
 
 *Given in the April session of the 1996 General Conference*
@@ -93,4 +91,3 @@ For this I pray, in the name of Jesus Christ, amen.
 
 
 
-#Adversity #Covenants #Goals #Jesus_Christ #Joy #Morality #Plan_Of_Salvation #Prophets #Repentance #Spirituality

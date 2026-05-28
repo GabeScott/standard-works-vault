@@ -1,7 +1,5 @@
 # Remember Who You Are!
 
-Thomas S. Monson
-
 By Elaine S. Dalton - *Young Women General President*
 
 *Given in the April session of the 2010 General Conference*
@@ -93,7 +91,3 @@ And so I conclude with the Lord’s words to each of us, His precious daughters:
 
 [^20]: [[D&C 25.2|Doctrine and Covenants 25:2, 10, 13, 15]][[D&C 25.10|]][[D&C 25.13|]][[D&C 25.15|]].
 
-
-
-
-#Divine_Nature #Faith #Holy_Ghost #Morality #Self-Esteem

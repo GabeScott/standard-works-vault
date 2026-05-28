@@ -1,7 +1,5 @@
 # Your Name Is Safe in Our Home
 
-Gordon B. Hinckley
-
 By Elder Cree-L Kofford - *Of the Seventy*
 
 *Given in the April session of the 1999 General Conference*
@@ -69,4 +67,3 @@ On this special Easter Day, I close with my solemn declaration, born of the Spir
 
 
 
-#Communication #Criticism #Evil #Love

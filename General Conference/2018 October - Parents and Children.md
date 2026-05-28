@@ -1,7 +1,5 @@
 # Parents and Children
 
-Russell M. Nelson
-
 By President Dallin H. Oaks - *First Counselor in the First Presidency*
 
 *Given in the October session of the 2018 General Conference*
@@ -93,7 +91,3 @@ My dear sisters, if you participate in any meanness or pettiness—individually 
 
 [^8]: Gordon B. Hinckley, “[[2006 April - The Need for Greater Kindness.md|The Need for Greater Kindness]],” *Ensign* or *Liahona,* May 2006, 60–61.
 
-
-
-
-#Children #Kindness #Motherhood #Parenthood #Plan_Of_Salvation #Technology

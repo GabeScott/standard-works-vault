@@ -1,7 +1,5 @@
 # The Living Prophet: Our Source of Pure Doctrine
 
-Gordon B. Hinckley
-
 By Elder Merrill C. Oaks - *Of the Seventy*
 
 *Given in the October session of the 1998 General Conference*
@@ -45,4 +43,3 @@ In summary, the Church is founded on continuing revelation to a current, living 
 
 
 
-#Church_Doctrine #Joseph_Smith #Prophets

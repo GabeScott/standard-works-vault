@@ -1,7 +1,5 @@
 # The Brilliant Morning of Forgiveness
 
-Gordon B. Hinckley
-
 By President Boyd K. Packer - *Acting President of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1995 General Conference*
@@ -167,7 +165,3 @@ I bear witness of Christ and of the power of His atonement. And I know that “h
 
 [^24]: [JST, Ps. 30:5](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/30?lang=eng&id=note5a#note5a); see also [[D&C 61.20|D&C 61:20]].
 
-
-
-
-#Atonement #Forgiveness #Jesus_Christ #Love #Repentance #Sin

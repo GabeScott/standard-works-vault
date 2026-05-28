@@ -1,7 +1,5 @@
 # The Transforming Power of Faith and Character
 
-Thomas S. Monson
-
 By Elder Richard G. Scott - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2010 General Conference*
@@ -91,4 +89,3 @@ If you have determined to live righteously, don’t become discouraged. Life may
 
 
 
-#Character #Dedication #Faith #Holy_Ghost #Mortality #Obedience

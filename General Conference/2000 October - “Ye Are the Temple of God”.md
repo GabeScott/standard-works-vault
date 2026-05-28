@@ -1,7 +1,5 @@
 # “Ye Are the Temple of God”
 
-Gordon B. Hinckley
-
 By President Boyd K. Packer - *Acting President of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2000 General Conference*
@@ -119,4 +117,3 @@ God be praised for the cleansing, purifying, forgiving power of the Atonement br
 
 
 
-#Atonement #Disabilities #Forgiveness #Freedom #Homosexuality #Marriage #Media #Morality #Parenthood #Temples #Temptation #Testimony #Word_Of_Wisdom #Worldliness #Youth

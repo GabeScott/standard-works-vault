@@ -1,7 +1,5 @@
 # Another Prophet Now Has Come!
 
-N. Eldon Tanner
-
 By Elder Mark E. Petersen - *Of the Council of the Twelve*
 
 *Given in the October session of the 1972 General Conference*
@@ -206,4 +204,3 @@ Amen.
 
 
 
-#Prophets #Restoration #Spirituality

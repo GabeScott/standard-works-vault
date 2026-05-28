@@ -1,7 +1,5 @@
 # “By the Power of His Word Did They Cause Prisons to Tumble”
 
-Gordon B. Hinckley
-
 By Elder James M. Paramore - *Of the Presidency of the Seventy*
 
 *Given in the October session of the 1992 General Conference*
@@ -65,4 +63,3 @@ Yes, “by the power of his word did they cause prisons to tumble” ([[Mormon 8
 
 
 
-#Freedom #Honesty #Repentance

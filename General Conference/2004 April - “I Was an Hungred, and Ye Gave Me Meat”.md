@@ -1,7 +1,5 @@
 # “I Was an Hungred, and Ye Gave Me Meat”
 
-Gordon B. Hinckley
-
 By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the April session of the 2004 General Conference*
@@ -105,4 +103,3 @@ May heaven prosper this great program, and may heaven’s blessing rest upon all
 
 
 
-#Couple_Missionaries #Education #Welfare

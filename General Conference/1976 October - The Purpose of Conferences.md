@@ -1,7 +1,5 @@
 # The Purpose of Conferences
 
-Spencer W. Kimball
-
 By President N. Eldon Tanner - *First Counselor in the First Presidency*
 
 *Given in the October session of the 1976 General Conference*
@@ -125,4 +123,3 @@ That we may all be engaged in works of righteousness, and with love in our heart
 
 
 
-#Church_Leaders #Church_Meetings

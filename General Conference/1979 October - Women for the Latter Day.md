@@ -1,7 +1,5 @@
 # Women for the Latter Day
 
-Spencer W. Kimball
-
 By Barbara B. Smith - *Relief Society General President*
 
 *Given in the October session of the 1979 General Conference*
@@ -45,4 +43,3 @@ May we all rise to the challenge of being holy women in these latter days, that 
 
 
 
-#Women

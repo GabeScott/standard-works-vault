@@ -1,7 +1,5 @@
 # Rated A
 
-Spencer W. Kimball
-
 By Elder Marvin J. Ashton - *Of the Council of the Twelve*
 
 *Given in the October session of the 1977 General Conference*
@@ -75,4 +73,3 @@ For this I humbly pray in the worthy name of Jesus Christ, our Savior and Redeem
 
 
 
-#Character #Evil

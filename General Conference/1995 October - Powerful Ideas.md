@@ -1,7 +1,5 @@
 # Powerful Ideas
 
-Gordon B. Hinckley
-
 By Elder Dallin H. Oaks - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1995 General Conference*
@@ -67,4 +65,3 @@ Let us follow the commandments of God and the examples of his servants. Let us f
 
 
 
-#Atonement #Children #Education #God_The_Father #Jesus_Christ #Love #Plan_Of_Salvation #Prayer #Teaching #Work

@@ -1,7 +1,5 @@
 # At Parting
 
-Thomas S. Monson
-
 By President Thomas S. Monson - *President of the Church*
 
 *Given in the April session of the 2011 General Conference*
@@ -56,7 +54,3 @@ Blessings to you, my brothers and sisters. In the name of Jesus Christ, our Savi
 
 [^1]: Emily Harris, “Empty Linen,” *New Era,* Apr. 2011, 49.
 
-
-
-
-#Atonement

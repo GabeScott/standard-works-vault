@@ -1,7 +1,5 @@
 # The Symbol of Christ
 
-Spencer W. Kimball
-
 By Elder Gordon B. Hinckley - *Of the Council of the Twelve*
 
 *Given in the April session of the 1975 General Conference*
@@ -119,4 +117,3 @@ In the name of Jesus Christ. Amen.
 
 
 
-#Atonement #Jesus_Christ #Resurrection #Spirituality

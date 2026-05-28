@@ -1,7 +1,5 @@
 # Family Councils
 
-Cheryl A. Esplin
-
 By Elder M. Russell Ballard - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2016 General Conference*
@@ -103,7 +101,3 @@ Finally, please remember that a family council held regularly will help us spot 
 
 [^4]: [[Matthew 18.20|Matthew 18:20]].
 
-
-
-
-#Children #Councils #Family #Parenthood #Prayer #Technology #Unity

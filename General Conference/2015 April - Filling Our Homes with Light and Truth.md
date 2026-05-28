@@ -1,7 +1,5 @@
 # Filling Our Homes with Light and Truth
 
-Cheryl A. Esplin
-
 By Cheryl A. Esplin - *Second Counselor in the Primary General Presidency*
 
 *Given in the April session of the 2015 General Conference*
@@ -69,7 +67,3 @@ I leave you with my testimony that I know as we fill our hearts and homes with t
 
 [^5]: See Elizabeth Staheli Walker, “My Testimony, Written for My Children and Their Children after I Am Gone,” 1939, 22–26, University of Nevada, Las Vegas, Special Collections; punctuation, capitalization, and spelling standardized.
 
-
-
-
-#Family #Holy_Ghost #Home #Truth

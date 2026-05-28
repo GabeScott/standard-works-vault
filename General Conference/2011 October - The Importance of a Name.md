@@ -1,7 +1,5 @@
 # The Importance of a Name
 
-Richard G. Scott
-
 By Elder M. Russell Ballard - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2011 General Conference*
@@ -71,4 +69,3 @@ Brothers and sisters, may we also remember this as we leave conference today. Le
 
 
 
-#Christianity #Church_Membership #Jesus_Christ #Missionary_Work

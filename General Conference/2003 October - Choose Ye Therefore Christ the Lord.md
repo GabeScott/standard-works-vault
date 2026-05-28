@@ -1,7 +1,5 @@
 # Choose Ye Therefore Christ the Lord
 
-Gordon B. Hinckley
-
 By Anne C. Pingree - *Second Counselor in the Relief Society General Presidency*
 
 *Given in the October session of the 2003 General Conference*
@@ -61,7 +59,3 @@ Dear sisters, I have felt the love of the Lord often in my life. On the good day
 
 [^11]: [[Joshua 24.15|Joshua 24:15]]; emphasis added.
 
-
-
-
-#Agency #Faith #Family #Home #Jesus_Christ

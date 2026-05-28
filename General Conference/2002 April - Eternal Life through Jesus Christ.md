@@ -1,7 +1,5 @@
 # Eternal Life through Jesus Christ
 
-Gordon B. Hinckley
-
 By Elder John M. Madsen - *Of the Seventy*
 
 *Given in the April session of the 2002 General Conference*
@@ -65,4 +63,3 @@ It is my prayer that the time may soon come “when the knowledge of a Savior sh
 
 
 
-#Jesus_Christ #Plan_Of_Salvation #Testimony

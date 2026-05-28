@@ -1,7 +1,5 @@
 # Redemption of the Dead
 
-Thomas S. Monson
-
 By Elder Earl C. Tingey - *Of the Seventy*
 
 *Given in the April session of the 1991 General Conference*
@@ -71,4 +69,3 @@ I bear humble testimony that this work of the redemption is true. Jesus Christ p
 
 
 
-#Family_History #Temple_Work

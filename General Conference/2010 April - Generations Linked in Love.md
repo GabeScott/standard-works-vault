@@ -1,7 +1,5 @@
 # Generations Linked in Love
 
-Thomas S. Monson
-
 By Elder Russell M. Nelson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2010 General Conference*
@@ -97,7 +95,3 @@ Our children, grandchildren, “Dear Ruby,” and all our great-grandchildren ar
 
 [^16]: See [[D&C 128.18|Doctrine and Covenants 128:18]].
 
-
-
-
-#Family #Family_History #Temple_Work

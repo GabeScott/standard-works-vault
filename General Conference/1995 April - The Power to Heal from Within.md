@@ -1,7 +1,5 @@
 # The Power to Heal from Within
 
-Thomas S. Monson
-
 By Bishop Merrill J. Bateman - *Presiding Bishop*
 
 *Given in the April session of the 1995 General Conference*
@@ -41,4 +39,3 @@ The Savior’s atonement in the garden and on the cross is intimate as well as i
 
 
 
-#Atonement #Death #Family #Healing #Jesus_Christ #Prophets

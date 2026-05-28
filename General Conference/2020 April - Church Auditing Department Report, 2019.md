@@ -1,7 +1,5 @@
 # Church Auditing Department Report, 2019
 
-Russell M. Nelson
-
 By Presented by Kevin R. Jergensen - *Managing Director, Church Auditing Department*
 
 *Given in the April session of the 2020 General Conference*
@@ -27,4 +25,3 @@ Managing Director
 
 
 
-#Financial_Management

@@ -1,7 +1,5 @@
 # Is the Plan Working?
 
-Russell M. Nelson
-
 By Elder Adrián Ochoa - *Of the Seventy*
 
 *Given in the April session of the 2022 General Conference*
@@ -125,7 +123,3 @@ I testify that the plan of happiness works. It was created by your Heavenly Fath
 
 [^13]: [[Alma 34.31|Alma 34:31]].
 
-
-
-
-#Adversity #Faith #Humility #Jesus_Christ #Plan_Of_Salvation #Repentance

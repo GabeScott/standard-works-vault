@@ -1,7 +1,5 @@
 # The Library of the Lord
 
-Thomas S. Monson
-
 By Elder Boyd K. Packer - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1990 General Conference*
@@ -161,4 +159,3 @@ I reverently give thanks to the Lord for the revelations, the scriptures, the st
 
 
 
-#Activation #Book_Of_Mormon #Scriptures #Teaching

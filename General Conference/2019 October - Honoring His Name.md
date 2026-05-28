@@ -1,7 +1,5 @@
 # Honoring His Name
 
-Jeffrey R. Holland
-
 By Lisa L. Harkness - *First Counselor in the Primary General Presidency*
 
 *Given in the October session of the 2019 General Conference*
@@ -107,7 +105,3 @@ As members of The Church of Jesus Christ of Latter-day Saints, may we “gladly 
 
 [^22]: [[1 Nephi 11.21|1 Nephi 11:21]].
 
-
-
-
-#Covenants #Jesus_Christ

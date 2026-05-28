@@ -1,7 +1,5 @@
 # Salt of the Earth: Savor of Men and Saviors of Men
 
-Spencer W. Kimball
-
 By Elder Carlos E. Asay - *Of the Presidency of the First Quorum of the Seventy*
 
 *Given in the April session of the 1980 General Conference*
@@ -89,4 +87,3 @@ I testify that an abiding and exalting relationship with the Master is establish
 
 
 
-#Missionary_Work #Priesthood #Worthiness

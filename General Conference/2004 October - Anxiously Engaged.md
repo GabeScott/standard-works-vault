@@ -1,7 +1,5 @@
 # Anxiously Engaged
 
-Gordon B. Hinckley
-
 By President Thomas S. Monson - *First Counselor in the First Presidency*
 
 *Given in the October session of the 2004 General Conference*
@@ -141,7 +139,3 @@ May we, as did the Savior’s followers of old, respond to the invitation, “Fo
 
 [^15]: [[Matthew 4.19|Matthew 4:19]].
 
-
-
-
-#Activation #Love #Responsibility #Service

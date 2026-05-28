@@ -1,7 +1,5 @@
 # Trust Again
 
-Russell M. Nelson
-
 By Elder Gerrit W. Gong - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2021 General Conference*
@@ -153,7 +151,3 @@ Our life journeys are individual, but we can come again to God our Father and Hi
 
 [^29]: See “[Joseph Smith’s First Prayer](https://www.churchofjesuschrist.org/study/manual/hymns/joseph-smiths-first-prayer?lang=eng),” *Hymns*, no. 26.
 
-
-
-
-#Faith #Jesus_Christ #Love #Trust

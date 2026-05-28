@@ -1,7 +1,5 @@
 # Come, Join with Us
 
-Thomas S. Monson
-
 By President Dieter F. Uchtdorf - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 2013 General Conference*
@@ -189,7 +187,3 @@ I earnestly pray that your own search for truth will impress upon your heart the
 
 [^12]: See [[Matthew 16.24|Matthew 16:24]].
 
-
-
-
-#Activation #Belonging #Faith

@@ -1,7 +1,5 @@
 # “Feed My Sheep”
 
-Spencer W. Kimball
-
 By Elder David B. Haight - *Of the Council of the Twelve*
 
 *Given in the April session of the 1979 General Conference*
@@ -90,4 +88,3 @@ May many of us who are fully prepared and needing the blessings put aside the th
 
 
 
-#Missionary_Work

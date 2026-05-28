@@ -1,7 +1,5 @@
 # Faithful Laborers
 
-Spencer W. Kimball
-
 By Elder Loren C. Dunn - *Of the First Council of the Seventy*
 
 *Given in the April session of the 1975 General Conference*
@@ -79,4 +77,3 @@ Is it not time that we listen to a prophet’s voice? Is it not time that we len
 
 
 
-#Missionary_Work

@@ -1,7 +1,5 @@
 # The Mighty Strength of the Relief Society
 
-Gordon B. Hinckley
-
 By President Thomas S. Monson - *First Counselor in the First Presidency*
 
 *Given in the October session of the 1997 General Conference*
@@ -159,7 +157,3 @@ Sisters, may we gain knowledge through study. May we make home a heaven. May we 
 
 [^17]: [[D&C 1.30|D&C 1:30]].
 
-
-
-
-#Blessings #Children #Curriculum #Family #Home #Joy #Motherhood #Priesthood #Relief_Society #Service #Women

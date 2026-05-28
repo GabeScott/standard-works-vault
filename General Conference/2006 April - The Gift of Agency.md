@@ -1,7 +1,5 @@
 # The Gift of Agency
 
-Robert D. Hales
-
 By Elder Wolfgang H. Paul - *Of the Seventy*
 
 *Given in the April session of the 2006 General Conference*
@@ -59,7 +57,3 @@ Of this I testify, in the name of Jesus Christ, amen.
 
 [^5]: [[Moses 4.2|Moses 4:2]].
 
-
-
-
-#Agency #Obedience #Plan_Of_Salvation

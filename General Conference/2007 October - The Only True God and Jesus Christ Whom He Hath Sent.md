@@ -1,7 +1,5 @@
 # The Only True God and Jesus Christ Whom He Hath Sent
 
-Gordon B. Hinckley
-
 By Elder Jeffrey R. Holland - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2007 General Conference*
@@ -83,7 +81,3 @@ I testify that my witness of these things is true and that the heavens are open 
 
 [^20]: [[John 17.3|John 17:3]].
 
-
-
-
-#Atonement #Godhead #Jesus_Christ #Restoration

@@ -1,7 +1,5 @@
 # Sweet Power of Prayer
 
-Gordon B. Hinckley
-
 By Elder Russell M. Nelson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2003 General Conference*
@@ -187,7 +185,3 @@ In the name of Jesus Christ, amen.
 
 [^35]: *Hymns,* no. 337; music composed by Joseph Parry; tune: Swansea.
 
-
-
-
-#Faith #Music #Obedience #Prayer

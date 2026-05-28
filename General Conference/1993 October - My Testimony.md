@@ -1,7 +1,5 @@
 # My Testimony
 
-Gordon B. Hinckley
-
 By President Gordon B. Hinckley - *First Counselor in the First Presidency*
 
 *Given in the October session of the 1993 General Conference*
@@ -113,4 +111,3 @@ To my Eternal Father I give thanks for that essence of divinity which is within 
 
 
 
-#Restoration #Testimony #Tithing

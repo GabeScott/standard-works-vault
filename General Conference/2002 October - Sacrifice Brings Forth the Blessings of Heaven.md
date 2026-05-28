@@ -1,7 +1,5 @@
 # Sacrifice Brings Forth the Blessings of Heaven
 
-Gordon B. Hinckley
-
 By Elder Robert K. Dellenbach - *Of the Seventy*
 
 *Given in the October session of the 2002 General Conference*
@@ -113,7 +111,3 @@ I sorrow that a single drop of His blood was shed for me. I pray that someday I 
 
 [^19]: “Come, Thou Fount of Every Blessing,” *Hymns* (1948), no. 70.
 
-
-
-
-#Atonement #Blessings #Jesus_Christ #Joseph_Smith #Sacrifice

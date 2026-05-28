@@ -1,7 +1,5 @@
 # “Swallowed Up in the Will of the Father”
 
-Gordon B. Hinckley
-
 By Elder Neal A. Maxwell - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1995 General Conference*
@@ -73,4 +71,3 @@ May we deeply desire that victory, I pray in the name of Jesus Christ, amen.
 
 
 
-#Consecration #Jesus_Christ #Joy #Obedience #Opposition #Sin

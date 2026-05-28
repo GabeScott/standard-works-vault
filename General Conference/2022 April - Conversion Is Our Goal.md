@@ -1,7 +1,5 @@
 # Conversion Is Our Goal
 
-Russell M. Nelson
-
 By Mark L. Pace - *Sunday School General President*
 
 *Given in the April session of the 2022 General Conference*
@@ -139,7 +137,3 @@ I testify that Jesus Christ lives. This is His Church, restored to the earth thr
 
 [^16]: Personal correspondence.
 
-
-
-
-#Conversion #Holy_Ghost #Passover #Prophets #Scripture_Study

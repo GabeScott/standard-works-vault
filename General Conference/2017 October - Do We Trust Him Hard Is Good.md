@@ -1,7 +1,5 @@
 # Do We Trust Him? Hard Is Good
 
-Sharon Eubank
-
 By Elder Stanley G. Ellis - *Emeritus Member of the Seventy*
 
 *Given in the October session of the 2017 General Conference*
@@ -34,7 +32,7 @@ Looking back, I learned some of the best lessons during the hardest times—whet
 
 ## Hard Is Good
 
-Hard makes us stronger, humbles us, and gives us a chance to prove ourselves. Our beloved handcart pioneers came to know God *in their extremities.* Why did it take two chapters for Nephi and his brothers to obtain the brass plates and only three verses to enlist Ishmael’s family to join them in the wilderness? (see [[1 Nephi 3.1|1 Nephi 3]]–[[1 Nephi 4.1|4]]; [[1 Nephi 7.3|7:3–5]][[1 Nephi 7.4|]][[1 Nephi 7.5|]]). It seems the Lord wanted to strengthen Nephi through the struggle of obtaining the plates.
+Hard makes us stronger, humbles us, and gives us a chance to prove ourselves. Our beloved handcart pioneers came to know God *in their extremities.* Why did it take two chapters for Nephi and his brothers to obtain the brass plates and only three verses to enlist Ishmael’s family to join them in the wilderness? (see [[1 Nephi 3.1|1 Nephi 3]][[1 Nephi 3.2|]][[1 Nephi 3.3|]][[1 Nephi 3.4|]][[1 Nephi 3.5|]][[1 Nephi 3.6|]][[1 Nephi 3.7|]][[1 Nephi 3.8|]][[1 Nephi 3.9|]][[1 Nephi 3.10|]][[1 Nephi 3.11|]][[1 Nephi 3.12|]][[1 Nephi 3.13|]][[1 Nephi 3.14|]][[1 Nephi 3.15|]][[1 Nephi 3.16|]][[1 Nephi 3.17|]][[1 Nephi 3.18|]][[1 Nephi 3.19|]][[1 Nephi 3.20|]][[1 Nephi 3.21|]][[1 Nephi 3.22|]][[1 Nephi 3.23|]][[1 Nephi 3.24|]][[1 Nephi 3.25|]][[1 Nephi 3.26|]][[1 Nephi 3.27|]][[1 Nephi 3.28|]][[1 Nephi 3.29|]][[1 Nephi 3.30|]][[1 Nephi 3.31|]]–[[1 Nephi 4.1|4]][[1 Nephi 4.2|]][[1 Nephi 4.3|]][[1 Nephi 4.4|]][[1 Nephi 4.5|]][[1 Nephi 4.6|]][[1 Nephi 4.7|]][[1 Nephi 4.8|]][[1 Nephi 4.9|]][[1 Nephi 4.10|]][[1 Nephi 4.11|]][[1 Nephi 4.12|]][[1 Nephi 4.13|]][[1 Nephi 4.14|]][[1 Nephi 4.15|]][[1 Nephi 4.16|]][[1 Nephi 4.17|]][[1 Nephi 4.18|]][[1 Nephi 4.19|]][[1 Nephi 4.20|]][[1 Nephi 4.21|]][[1 Nephi 4.22|]][[1 Nephi 4.23|]][[1 Nephi 4.24|]][[1 Nephi 4.25|]][[1 Nephi 4.26|]][[1 Nephi 4.27|]][[1 Nephi 4.28|]][[1 Nephi 4.29|]][[1 Nephi 4.30|]][[1 Nephi 4.31|]][[1 Nephi 4.32|]][[1 Nephi 4.33|]][[1 Nephi 4.34|]][[1 Nephi 4.35|]][[1 Nephi 4.36|]][[1 Nephi 4.37|]][[1 Nephi 4.38|]]; [[1 Nephi 7.3|7:3–5]][[1 Nephi 7.4|]][[1 Nephi 7.5|]]). It seems the Lord wanted to strengthen Nephi through the struggle of obtaining the plates.
 
 The hard things in our lives should come as no surprise. One of the earliest covenants we make with the Lord is to live the law of sacrifice. Sacrifice, by definition, involves giving up something desirable. With experience we realize it is a small price to pay in relation to the blessings that follow. Under the direction of Joseph Smith, it was said that “a religion that does not require the sacrifice of all things never has power sufficient to produce the faith necessary unto life and salvation.”[^1]
 
@@ -109,7 +107,3 @@ My greatest desires are to stand with Mormon as a true disciple of Jesus Christ 
 
 [^4]: See John Stuart Mill, *Inaugural Address: Delivered to the University of St. Andrews, Feb. 1, 1867* (1867), 36.
 
-
-
-
-#Adversity #Faith #Godhead #Jesus_Christ #Plan_Of_Salvation #Sacrifice #Trust

@@ -1,7 +1,5 @@
 # Care for the Life of the Soul
 
-Gordon B. Hinckley
-
 By Elder Neal A. Maxwell - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2003 General Conference*
@@ -61,4 +59,3 @@ I so testify, in the holy name of Jesus Christ, amen!
 
 
 
-#Conversion #Honesty #Morality #Obedience #Spirituality

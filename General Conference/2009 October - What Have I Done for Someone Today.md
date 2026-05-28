@@ -1,7 +1,5 @@
 # What Have I Done for Someone Today?
 
-Thomas S. Monson
-
 By President Thomas S. Monson - *President of the Church*
 
 *Given in the October session of the 2009 General Conference*
@@ -135,7 +133,3 @@ If we truly listen, we may hear that voice from far away say to us, as it spoke 
 
 [^15]: [[Matthew 25.21|Matthew 25:21]].
 
-
-
-
-#Compassion #Love #Service

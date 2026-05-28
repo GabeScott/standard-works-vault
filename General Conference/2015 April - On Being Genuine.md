@@ -1,7 +1,5 @@
 # On Being Genuine
 
-Cheryl A. Esplin
-
 By President Dieter F. Uchtdorf - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 2015 General Conference*
@@ -149,7 +147,3 @@ I pray, brethren, that as we serve in our families, quorums, wards, stakes, comm
 
 [^20]: See [[D&C 83.6|Doctrine and Covenants 83:6]].
 
-
-
-
-#Conversion #Discipleship #Goals #Healing #Humility #Jesus_Christ #Service

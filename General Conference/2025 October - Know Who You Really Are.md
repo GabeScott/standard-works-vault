@@ -1,7 +1,5 @@
 # Know Who You Really Are
 
-Dallin H. Oaks
-
 By Elder Brik V. Eyre - *Of the Seventy*
 
 *Given in the October session of the 2025 General Conference*
@@ -103,7 +101,3 @@ I testify that we have a loving Heavenly Father. As we come to know this eternal
 
 [^18]: [[2 Nephi 31.19|2 Nephi 31:19]].
 
-
-
-
-#Divine_Nature #God_The_Father #Jesus_Christ #Prayer

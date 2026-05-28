@@ -1,7 +1,5 @@
 # The Miracle of Missionary Work
 
-Wilford G. Edling
-
 By President Milton R. Hunter - *Of the First Council of the Seventy*
 
 *Given in the April session of the 1972 General Conference*
@@ -93,4 +91,3 @@ In the name of Jesus Christ. Amen.
 
 
 
-#Missionary_Work #Sacrifice

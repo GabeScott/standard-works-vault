@@ -1,7 +1,5 @@
 # “Blessed Are the Peacemakers”
 
-Gordon B. Hinckley
-
 By Elder Russell M. Nelson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2002 General Conference*
@@ -169,7 +167,3 @@ Ours is His supernal cause. Ours is the cause of eternal glory for all humankind
 
 [^40]: [[Isaiah 41.10|Isaiah 41:10]].
 
-
-
-
-#Forgiveness #Love #Peace

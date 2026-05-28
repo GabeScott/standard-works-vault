@@ -1,7 +1,5 @@
 # The Aaronic Priesthood—A Sure Foundation
 
-Wilford G. Edling
-
 By Bishop Victor L. Brown - *Presiding Bishop*
 
 *Given in the April session of the 1972 General Conference*
@@ -87,4 +85,3 @@ We want you to know of our love and support for you. We are grateful to the Lord
 
 
 
-#Leadership #Priesthood

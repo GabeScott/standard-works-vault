@@ -1,7 +1,5 @@
 # As a Little Child
 
-Dallin H. Oaks
-
 By President Jeffrey R. Holland - *Acting President of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2025 General Conference*
@@ -89,7 +87,3 @@ In that same spirit of testimony, I bear witness that in his youth, Joseph Smith
 
 [^14]: See [[Revelation 1.5|Revelation 1:5]].
 
-
-
-
-#Children #Humility #Jesus_Christ #Purity

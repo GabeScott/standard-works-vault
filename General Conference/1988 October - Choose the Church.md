@@ -1,7 +1,5 @@
 # Choose the Church
 
-Ezra Taft Benson
-
 By Elder Albert Choules, Jr. - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1988 General Conference*
@@ -25,4 +23,3 @@ I bear you my witness that I know that God lives and that Jesus is the Christ, t
 
 
 
-#Commitment

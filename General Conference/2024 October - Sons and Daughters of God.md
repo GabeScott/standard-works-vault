@@ -1,7 +1,5 @@
 # Sons and Daughters of God
 
-Henry B. Eyring
-
 By Elder Rubén V. Alliaud - *Of the Seventy*
 
 *Given in the October session of the 2024 General Conference*
@@ -121,7 +119,3 @@ I testify as with the Apostle Paul that “the Spirit itself beareth witness wit
 
 [^22]: [[Romans 8.16|Romans 8:16–17]][[Romans 8.17|]].
 
-
-
-
-#Divine_Nature #God_The_Father #Jesus_Christ #Satan #Temptation #Truth

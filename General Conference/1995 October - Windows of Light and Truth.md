@@ -1,7 +1,5 @@
 # Windows of Light and Truth
 
-Gordon B. Hinckley
-
 By Elder Joseph B. Wirthlin - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1995 General Conference*
@@ -143,7 +141,3 @@ I testify that the windows of heaven are indeed open. President Gordon B. Hinckl
 
 [^29]: [[D&C 76.112|D&C 76:112]].
 
-
-
-
-#Word_Of_Wisdom #Worship

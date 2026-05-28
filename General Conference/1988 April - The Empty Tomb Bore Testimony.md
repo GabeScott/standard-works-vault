@@ -1,7 +1,5 @@
 # The Empty Tomb Bore Testimony
 
-Ezra Taft Benson
-
 By President Gordon B. Hinckley - *First Counselor in the First Presidency*
 
 *Given in the April session of the 1988 General Conference*
@@ -143,4 +141,3 @@ He is our Savior, our Redeemer, the Prince of Peace, the Prince of Life, the Son
 
 
 
-#Atonement #Death #Jesus_Christ #Resurrection

@@ -1,7 +1,5 @@
 # Eternal Keys and the Right to Preside
 
-Wilford G. Edling
-
 By President Joseph Fielding Smith - *President of the Church*
 
 *Given in the April session of the 1972 General Conference*
@@ -45,4 +43,3 @@ I testify that if we shall look to the First Presidency and follow their counsel
 
 
 
-#First_Presidency #Priesthood

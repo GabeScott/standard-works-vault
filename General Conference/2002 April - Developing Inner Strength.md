@@ -1,7 +1,5 @@
 # Developing Inner Strength
 
-Gordon B. Hinckley
-
 By Mary Ellen W. Smoot - *Recently Released Relief Society General President*
 
 *Given in the April session of the 2002 General Conference*
@@ -75,7 +73,3 @@ I am here today to witness to you that such women are all around the world in th
 
 [^8]: [[Ether 12.27|Ether 12:27]].
 
-
-
-
-#Character #Relief_Society #Service #Unity

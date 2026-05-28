@@ -1,7 +1,5 @@
 # Adversity and You
 
-Spencer W. Kimball
-
 By Elder Marvin J. Ashton - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1980 General Conference*
@@ -89,4 +87,3 @@ Satan wants us to feel unequal to our worldly tasks. If we turn to God, He will 
 
 
 
-#Adversity

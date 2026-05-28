@@ -1,7 +1,5 @@
 # The Gospel to All the World
 
-Thomas S. Monson
-
 By Elder John B. Dickson - *Of the Seventy*
 
 *Given in the April session of the 2013 General Conference*
@@ -61,4 +59,3 @@ I testify that our Heavenly Father loves all of His children, that Jesus is the 
 
 
 
-#Church_Growth #Missionary_Work

@@ -1,7 +1,5 @@
 # Latter-day Saints in Very Deed
 
-Gordon B. Hinckley
-
 By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the October session of the 1997 General Conference*
@@ -43,4 +41,3 @@ We are proud to be one with you in moving forward this mighty work. We are all i
 
 
 
-#Faith #General_Conference #Spirituality #Testimony #Tithing

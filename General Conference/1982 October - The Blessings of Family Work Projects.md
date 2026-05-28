@@ -1,7 +1,5 @@
 # The Blessings of Family Work Projects
 
-Spencer W. Kimball
-
 By Dean Jarman - *President, Salt Lake University Second Stake*
 
 *Given in the October session of the 1982 General Conference*
@@ -57,4 +55,3 @@ I bear testimony that family work, when combined with family prayer and family s
 
 
 
-#Family #Work

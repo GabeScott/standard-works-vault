@@ -1,7 +1,5 @@
 # The Meaning of Morality
 
-Joseph Fielding Smith
-
 By Bishop Victor L. Brown - *Of the Presiding Bishopric*
 
 *Given in the April session of the 1971 General Conference*
@@ -69,4 +67,3 @@ Brethren, as sons of God holding his holy priesthood, we have an obligation to b
 
 
 
-#Character #Morality

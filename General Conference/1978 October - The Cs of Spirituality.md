@@ -1,7 +1,5 @@
 # The Cs of Spirituality
 
-Spencer W. Kimball
-
 By Elder Robert E. Wells - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1978 General Conference*
@@ -49,4 +47,3 @@ I solemnly testify as a witness that God lives and loves us; that Jesus Christ, 
 
 
 
-#Character #Trust

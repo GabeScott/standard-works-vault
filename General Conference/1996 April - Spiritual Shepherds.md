@@ -1,7 +1,5 @@
 # Spiritual Shepherds
 
-James E. Faust
-
 By Elder W. Eugene Hansen - *Of the Presidency of the Seventy*
 
 *Given in the April session of the 1996 General Conference*
@@ -71,4 +69,3 @@ This is the true Church of Jesus Christ. This is His work. Of that I testify in 
 
 
 
-#Church_Leaders #Evil #Friendship #Parents #Peer_Pressure #Priesthood #Prophets #Youth

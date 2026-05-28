@@ -1,7 +1,5 @@
 # It Can’t Happen to Me
 
-Gordon B. Hinckley
-
 By President James E. Faust - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 2002 General Conference*
@@ -105,7 +103,3 @@ The sure way to have life’s joys and blessings come to you is to follow our li
 
 [^18]: See [[John 20.29|John 20:29]].
 
-
-
-
-#Faith #Individual_Worth #Self-Control #Temptation

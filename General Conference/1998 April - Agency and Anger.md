@@ -1,7 +1,5 @@
 # Agency and Anger
 
-Gordon B. Hinckley
-
 By Elder Lynn G. Robbins - *Of the Seventy*
 
 *Given in the April session of the 1998 General Conference*
@@ -57,4 +55,3 @@ May each child’s dream of having a family here on earth that is good to them c
 
 
 
-#Abuse #Accountability #Agency #Anger #Family #Jesus_Christ #Satan

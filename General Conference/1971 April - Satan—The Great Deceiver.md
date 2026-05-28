@@ -1,7 +1,5 @@
 # Satan—The Great Deceiver
 
-Joseph Fielding Smith
-
 By Elder Marion G. Romney - *Of the Council of the Twelve*
 
 *Given in the April session of the 1971 General Conference*
@@ -131,4 +129,3 @@ That we may take the Holy Spirit for our guide, recognize Satan, his representat
 
 
 
-#Evil #Satan #Temptation

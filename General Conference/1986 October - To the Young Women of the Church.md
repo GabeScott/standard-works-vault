@@ -1,7 +1,5 @@
 # To the Young Women of the Church
 
-Ezra Taft Benson
-
 By President Ezra Taft Benson - *President of the Church*
 
 *Given in the October session of the 1986 General Conference*
@@ -159,4 +157,3 @@ Live up to your divine potential. Remember who you are and the divine heritage t
 
 
 
-#Church_Meetings #Family #Marriage #Missionary_Work #Morality #Patriarchal_Blessings #Scripture_Study #Women #Young_Women #Youth

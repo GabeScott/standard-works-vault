@@ -1,7 +1,5 @@
 # Eternal Marriage
 
-Gordon B. Hinckley
-
 By Elder F. Burton Howard - *Of the Seventy*
 
 *Given in the April session of the 2003 General Conference*
@@ -55,4 +53,3 @@ Eternal marriage is just like that. We need to treat it just that way. I pray th
 
 
 
-#Covenants #Love #Marriage #Temples

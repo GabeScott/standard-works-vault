@@ -1,7 +1,5 @@
 # The Way of the Lord
 
-Spencer W. Kimball
-
 By Elder Thomas S. Monson - *Of the Council of the Twelve*
 
 *Given in the October session of the 1977 General Conference*
@@ -67,4 +65,3 @@ To all within the sound of my voice I declare that the welfare plan of The Churc
 
 
 
-#Service #Welfare

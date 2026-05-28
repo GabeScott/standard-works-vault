@@ -1,7 +1,5 @@
 # Marriage and Family: Our Sacred Responsibility
 
-Gordon B. Hinckley
-
 By Elder W. Douglas Shumway - *Of the Seventy*
 
 *Given in the April session of the 2004 General Conference*
@@ -49,4 +47,3 @@ Although the adversary seeks to destroy the key elements necessary for a happy m
 
 
 
-#Family #Family_Home_Evening #Love #Marriage #Parenthood

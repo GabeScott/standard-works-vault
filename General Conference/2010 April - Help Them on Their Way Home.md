@@ -1,7 +1,5 @@
 # Help Them on Their Way Home
 
-Thomas S. Monson
-
 By President Henry B. Eyring - *First Counselor in the First Presidency*
 
 *Given in the April session of the 2010 General Conference*
@@ -95,7 +93,3 @@ I testify that the Lord loves you and every child of God. This is His kingdom, r
 
 [^4]: [[Matthew 25.21|Matthew 25:21]].
 
-
-
-
-#Activation #Children #Priesthood #Teaching #Young_Women

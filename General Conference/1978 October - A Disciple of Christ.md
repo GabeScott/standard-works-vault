@@ -1,7 +1,5 @@
 # A Disciple of Christ
 
-Spencer W. Kimball
-
 By President Marion G. Romney - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 1978 General Conference*
@@ -143,4 +141,3 @@ I shall not know these things better in the not-too-distant future when I shall 
 
 
 
-#Discipleship #Priesthood

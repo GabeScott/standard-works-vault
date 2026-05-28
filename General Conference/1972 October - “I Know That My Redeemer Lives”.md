@@ -1,7 +1,5 @@
 # “I Know That My Redeemer Lives”
 
-N. Eldon Tanner
-
 By Elder Bruce R. McConkie - *Of the Council of the Twelve*
 
 *Given in the October session of the 1972 General Conference*
@@ -39,4 +37,3 @@ All of this I say humbly and gratefully, in the spirit of testimony and of thank
 
 
 
-#Dedication #Testimony

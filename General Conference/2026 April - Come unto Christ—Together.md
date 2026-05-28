@@ -1,7 +1,5 @@
 # Come unto Christ—Together
 
-Dallin H. Oaks
-
 By Elder Taniela B. Wakolo - *Of the Seventy*
 
 *Given in the April session of the 2026 General Conference*
@@ -103,5 +101,3 @@ This month, as we celebrate and remember the Resurrection of our Savior, I invit
 
 [^11]: See Gerrit W. Gong, “[[2025 October - No One Sits Alone.md|No One Sits Alone]],” *Liahona*, Nov. 2025, 40–43.
 
-
-#Faith #Family #Patience #Sealings #Temples

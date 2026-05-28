@@ -1,7 +1,5 @@
 # Developing Spirituality
 
-Spencer W. Kimball
-
 By Elder Howard W. Hunter - *Of the Council of the Twelve*
 
 *Given in the April session of the 1979 General Conference*
@@ -73,4 +71,3 @@ May we follow the counsel to so labor and so live as to obtain the Spirit of God
 
 
 
-#Holy_Ghost #Missionary_Work #Spirituality

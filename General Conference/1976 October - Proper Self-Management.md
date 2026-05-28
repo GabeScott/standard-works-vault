@@ -1,7 +1,5 @@
 # Proper Self-Management
 
-Spencer W. Kimball
-
 By Elder Marvin J. Ashton - *Of the Council of the Twelve*
 
 *Given in the October session of the 1976 General Conference*
@@ -63,4 +61,3 @@ I leave you these thoughts and my testimony in the name of Him, the perfect exam
 
 
 
-#Self-Esteem

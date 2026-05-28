@@ -1,7 +1,5 @@
 # Premortality, a Glorious Reality
 
-Gordon B. Hinckley
-
 By Elder Neal A. Maxwell - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1985 General Conference*
@@ -134,4 +132,3 @@ May we so believe, so trust, so submit, and so behave, I pray in the name of Him
 
 
 
-#Foreordination #Premortal_Existence

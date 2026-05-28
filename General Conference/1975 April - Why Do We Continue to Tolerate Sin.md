@@ -1,7 +1,5 @@
 # Why Do We Continue to Tolerate Sin?
 
-Spencer W. Kimball
-
 By President Spencer W. Kimball - *President of the Church*
 
 *Given in the April session of the 1975 General Conference*
@@ -95,4 +93,3 @@ And I bear this witness to you in the name of Jesus Christ, our Master. Amen.
 
 
 
-#Morality #Repentance

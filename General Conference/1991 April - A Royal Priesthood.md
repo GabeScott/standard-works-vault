@@ -1,7 +1,5 @@
 # A Royal Priesthood
 
-Thomas S. Monson
-
 By President Thomas S. Monson - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 1991 General Conference*
@@ -107,4 +105,3 @@ May we hear His voice. May we follow His example. May we live His teachings. The
 
 
 
-#Fasting #Love #Service #Welfare

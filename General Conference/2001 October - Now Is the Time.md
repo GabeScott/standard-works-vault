@@ -1,7 +1,5 @@
 # Now Is the Time
 
-Gordon B. Hinckley
-
 By President Thomas S. Monson - *First Counselor in the First Presidency*
 
 *Given in the October session of the 2001 General Conference*
@@ -133,7 +131,3 @@ My brothers and sisters, may we resolve from this day forward to fill our hearts
 
 [^14]: [[2 Timothy 4.7|2 Tim. 4:7]].
 
-
-
-
-#Death #Joy #Love #Peace #Plan_Of_Salvation #Service #Testimony #Time_Management #Truth

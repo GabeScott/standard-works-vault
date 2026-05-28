@@ -1,7 +1,5 @@
 # Following Christ to Victory
 
-Spencer W. Kimball
-
 By Elder Hartman Rector, Jr. - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1979 General Conference*
@@ -45,4 +43,3 @@ I bear witness that this formula is effective in the Lord’s work, and I am per
 
 
 
-#Miracles #Missionary_Work #Self-Esteem

@@ -1,7 +1,5 @@
 # Perfect Love Casteth Out Fear
 
-Bonnie H. Cordon
-
 By President Dieter F. Uchtdorf - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 2017 General Conference*
@@ -191,7 +189,3 @@ I testify, with the Apostle John, “There is no fear in \[Christ’s\] love.”
 
 [^24]: [[John 15.10|John 15:10]].
 
-
-
-
-#Adversity #Fear #Jesus_Christ #Love #Second_Coming

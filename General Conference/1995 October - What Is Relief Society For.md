@@ -1,7 +1,5 @@
 # What Is Relief Society For?
 
-Gordon B. Hinckley
-
 By Aileen H. Clyde - *Second Counselor in the Relief Society General Presidency*
 
 *Given in the October session of the 1995 General Conference*
@@ -41,4 +39,3 @@ I testify that this is true, that we are bound together in his church by his pri
 
 
 
-#Charity #Holy_Ghost #Jesus_Christ #Relief_Society #Scriptures #Truth

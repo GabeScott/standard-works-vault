@@ -1,7 +1,5 @@
 # Becoming Provident Providers Temporally and Spiritually
 
-Thomas S. Monson
-
 By Elder Robert D. Hales - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2009 General Conference*
@@ -65,4 +63,3 @@ I bear my special witness that through the Atonement He has overcome all things.
 
 
 
-#Addiction #Financial_Management #Self-Reliance

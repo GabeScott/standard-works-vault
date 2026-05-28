@@ -1,7 +1,5 @@
 # Tested and Tempted—but Helped
 
-Rosemary M. Wixom
-
 By Elder Hugo Montoya - *Of the Seventy*
 
 *Given in the October session of the 2015 General Conference*
@@ -61,7 +59,3 @@ I bear my testimony of the Savior. Jesus is the Christ, the Son of the living Go
 
 [^8]: [[Matthew 11.28|Matthew 11:28]].
 
-
-
-
-#Adversity #Atonement #Compassion #Missionary_Work #Service #Temptation

@@ -1,7 +1,5 @@
 # Joseph Smith, the Chosen Instrument
 
-Gordon B. Hinckley
-
 By Elder Rex C. Reeve - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1985 General Conference*
@@ -135,4 +133,3 @@ Of this I testify, in the name of Jesus Christ, the Lord, amen.
 
 
 
-#Joseph_Smith #Restoration

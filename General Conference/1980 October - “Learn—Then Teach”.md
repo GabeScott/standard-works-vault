@@ -1,7 +1,5 @@
 # “Learn—Then Teach”
 
-Spencer W. Kimball
-
 By President Spencer W. Kimball - *President of the Church*
 
 *Given in the October session of the 1980 General Conference*
@@ -23,4 +21,3 @@ My beloved sisters, I know that God lives, that Jesus is his Only Begotten Son, 
 
 
 
-#Education #Teaching

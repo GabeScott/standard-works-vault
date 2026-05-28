@@ -1,7 +1,5 @@
 # The Roots of Mormonism
 
-Spencer W. Kimball
-
 By Elder Hartman Rector, Jr. - *Of the First Council of the Seventy*
 
 *Given in the April session of the 1975 General Conference*
@@ -65,4 +63,3 @@ I bear witness that if we follow the prophet, we will have blessings unnumbered 
 
 
 
-#Church_Doctrine

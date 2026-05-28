@@ -1,7 +1,5 @@
 # The Healing Ointment of Forgiveness
 
-Cheryl A. Esplin
-
 By Elder Kevin R. Duncan - *Of the Seventy*
 
 *Given in the April session of the 2016 General Conference*
@@ -65,7 +63,3 @@ I witness of God’s enduring love and patience for all of His children and of H
 
 [^2]: Russell M. Nelson, “[[1991 April - Listen to Learn.md|Listen to Learn]],” *Ensign,* May 1991, 23.
 
-
-
-
-#Atonement #Forgiveness #Grace #Healing #Heavenly_Father #Jesus_Christ

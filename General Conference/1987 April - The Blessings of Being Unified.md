@@ -1,7 +1,5 @@
 # The Blessings of Being Unified
 
-Ezra Taft Benson
-
 By Elder Hugh W. Pinnock - *Of the Presidency of the First Quorum of the Seventy*
 
 *Given in the April session of the 1987 General Conference*
@@ -101,4 +99,3 @@ With gratitude in my heart, brothers and sisters, for you and for that which we 
 
 
 
-#Missionary_Work #Testimony #Unity

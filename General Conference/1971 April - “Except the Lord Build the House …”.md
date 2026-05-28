@@ -1,7 +1,5 @@
 # “Except the Lord Build the House …”
 
-Joseph Fielding Smith
-
 By Elder Gordon B. Hinckley - *Of the Council of the Twelve*
 
 *Given in the April session of the 1971 General Conference*
@@ -87,4 +85,3 @@ The destroying angel of domestic bitterness will pass you by and you will know p
 
 
 
-#Family #Home #Marriage #Respect

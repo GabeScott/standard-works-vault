@@ -1,7 +1,5 @@
 # The Caravan Moves On
 
-Gordon B. Hinckley
-
 By Elder Bruce R. McConkie - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1984 General Conference*
@@ -159,4 +157,3 @@ In the name of the Lord Jesus Christ, amen.
 
 
 
-#Church_Growth #Faith #Opposition #Plan_Of_Salvation #Truth

@@ -1,7 +1,5 @@
 # The Power of Goodness
 
-Gordon B. Hinckley
-
 By Janette Hales Beckham - *Young Women General President*
 
 *Given in the October session of the 1995 General Conference*
@@ -49,4 +47,3 @@ My plea for each of us is to recognize that God has given each of us power—the
 
 
 
-#Disabilities #Government #Priesthood #Spirituality

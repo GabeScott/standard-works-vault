@@ -1,7 +1,5 @@
 # “Believe His Prophets”
 
-Thomas S. Monson
-
 By President Gordon B. Hinckley - *First Counselor in the First Presidency*
 
 *Given in the April session of the 1992 General Conference*
@@ -107,4 +105,3 @@ I go back to those three words so frequently spoken by President Joseph Fielding
 
 
 
-#Prophets #Testimony

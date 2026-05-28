@@ -1,7 +1,5 @@
 # Life—A Great Proving Ground
 
-Marion G. Romney
-
 By Elder Franklin D. Richards - *Of the Presidency of the First Quorum of the Seventy*
 
 *Given in the April session of the 1981 General Conference*
@@ -121,4 +119,3 @@ I sincerely pray that we will understand the purpose of life, conform our life-s
 
 
 
-#Plan_Of_Salvation #Work

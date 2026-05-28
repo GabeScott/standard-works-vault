@@ -1,7 +1,5 @@
 # Stay the Course—Keep the Faith
 
-Gordon B. Hinckley
-
 By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the October session of the 1995 General Conference*
@@ -94,4 +92,3 @@ I invite every one of you, wherever you may be as members of this church, to sta
 
 
 
-#Adversity #Attitude #Church_Growth #Commitment #Faith #Jesus_Christ #Joseph_Smith #Missionary_Work #Service #Standards

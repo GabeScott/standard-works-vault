@@ -1,7 +1,5 @@
 # Strengthen Thy Brethren
 
-Gordon B. Hinckley
-
 By Elder Mervyn B. Arnold - *Of the Seventy*
 
 *Given in the April session of the 2004 General Conference*
@@ -65,4 +63,3 @@ May each quorum and each one of us individually, working in conjunction with the
 
 
 
-#Activation #Love #Priesthood #Responsibility #Service

@@ -1,7 +1,5 @@
 # Tested, Proved, and Polished
 
-Russell M. Nelson
-
 By President Henry B. Eyring - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 2020 General Conference*
@@ -117,7 +115,3 @@ I testify that we are children of a Heavenly Father, who loves us. I feel Presid
 
 [^9]: [[John 19.26|John 19:26–27]][[John 19.27|]].
 
-
-
-
-#Adversity #Atonement #Faith #Jesus_Christ #Plan_Of_Salvation

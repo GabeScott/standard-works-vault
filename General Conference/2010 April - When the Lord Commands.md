@@ -1,7 +1,5 @@
 # When the Lord Commands
 
-Thomas S. Monson
-
 By Elder Bruce A. Carlson - *Of the Seventy*
 
 *Given in the April session of the 2010 General Conference*
@@ -121,7 +119,3 @@ I testify that obedience to God’s commands brings the blessings of heaven; tha
 
 [^20]: [[D&C 76.5|Doctrine and Covenants 76:5]]; emphasis added.
 
-
-
-
-#Blessings #Commandments #Obedience

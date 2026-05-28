@@ -1,7 +1,5 @@
 # Steadfast and Immovable
 
-Thomas S. Monson
-
 By Silvia H. Allred - *First Counselor in the Relief Society General Presidency*
 
 *Given in the October session of the 2010 General Conference*

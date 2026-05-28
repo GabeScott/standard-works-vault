@@ -1,7 +1,5 @@
 # Follow the Prophets
 
-Gordon B. Hinckley
-
 By Elder Mark E. Petersen - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1981 General Conference*
@@ -160,4 +158,3 @@ In the name of the Lord, Jesus Christ, amen.
 
 
 
-#Prophets

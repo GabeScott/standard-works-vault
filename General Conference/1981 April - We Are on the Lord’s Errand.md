@@ -1,7 +1,5 @@
 # We Are on the Lord’s Errand
 
-Marion G. Romney
-
 By President Spencer W. Kimball - *President of the Church*
 
 *Given in the April session of the 1981 General Conference*
@@ -39,4 +37,3 @@ My brethren and sisters, I testify to you that this is the Lord’s work and tha
 
 
 
-#Church_Growth

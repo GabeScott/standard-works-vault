@@ -1,7 +1,5 @@
 # Couple Missionaries: A Time to Serve
 
-Gordon B. Hinckley
-
 By Elder Robert D. Hales - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2001 General Conference*
@@ -77,4 +75,3 @@ That you may experience the blessings of missionary service for you and your fam
 
 
 
-#Charity #Couple_Missionaries #Example #Family #Fear #Joy #Marriage #Sacrifice #Service #Teaching #Testimony

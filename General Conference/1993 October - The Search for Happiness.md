@@ -1,7 +1,5 @@
 # The Search for Happiness
 
-Gordon B. Hinckley
-
 By Elder W. Eugene Hansen - *Of the Presidency of the Seventy*
 
 *Given in the October session of the 1993 General Conference*
@@ -85,4 +83,3 @@ Oh, that we could become as a people like those referred to in the Book of Mormo
 
 
 
-#Joy #Obedience

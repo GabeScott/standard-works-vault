@@ -1,7 +1,5 @@
 # Tithing—Putting God First
 
-Dallin H. Oaks
-
 By Elder Jorge T. Becerra - *Of the Seventy*
 
 *Given in the April session of the 2026 General Conference*
@@ -65,4 +63,5 @@ Elder David A. Bednar observed: “The imagery of the ‘windows’ of heaven us
 I witness that Jesus Christ is the perfect example of how to put God first in our lives. I witness that He laid down His life as a symbol of complete submission to His Father’s will. He is the Christ, the Redeemer and Savior of us all. Dallin H. Oaks is His prophet. I bear solemn witness that He lives, in the name of Jesus Christ, amen.
 
 
-#Obedience #Sacrifice #Tithing
+
+

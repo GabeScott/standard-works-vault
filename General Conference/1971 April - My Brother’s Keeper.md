@@ -1,7 +1,5 @@
 # My Brother’s Keeper
 
-Joseph Fielding Smith
-
 By Bishop John H. Vandenberg - *Presiding Bishop*
 
 *Given in the April session of the 1971 General Conference*
@@ -121,7 +119,3 @@ Let us show our appreciation for these basic needs our Father in heaven has supp
 
 [^*]: Fast day was regularly observed throughout the Church on the first Thursday of each month until November 5, 1896, when, at a meeting of the First Presidency and the apostles, it was decided that the first Sunday of the month should be observed instead, and on Sunday, December 6, 1896, was the first time it was held on Sunday. (Andrew Jenson, *Encyclopedic History of The Church of Jesus Christ of Latter-day Saints,* 1941.)
 
-
-
-
-#Brotherhood #Fasting #Love

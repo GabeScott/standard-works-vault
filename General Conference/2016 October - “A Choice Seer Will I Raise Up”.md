@@ -1,7 +1,5 @@
 # “A Choice Seer Will I Raise Up”
 
-Jean B. Bingham
-
 By Elder Craig C. Christensen - *Of the Presidency of the Seventy*
 
 *Given in the October session of the 2016 General Conference*
@@ -44,7 +42,7 @@ Or consider how Joseph might have felt when he learned for the first time that J
 
 During the translation of the Book of Mormon, Joseph and his wife Emma mourned the death of their infant son. In those days preachers commonly taught that children who died without baptism would be condemned forever. With this in mind, imagine how Joseph must have felt as he translated these words from the prophet Mormon: “Little children need no repentance, neither baptism. … \[For\] little children are alive in Christ, even from the foundation of the world.”[^14]
 
-Perhaps the most stunning passage in the Book of Mormon to young Joseph may have been the [[2 Nephi 3.1|third chapter of 2 Nephi]]. This chapter contains an ancient prophecy about a “choice seer” whom the Lord would raise up in the latter days—a seer named Joseph, named after his father. This future prophet would be “esteemed highly” and would do a work “of great worth” unto his people. He would “be great like unto Moses” and would be given “power to bring forth \[God’s\] word.”[^15] Consider how Joseph Smith must have felt as he realized that this prophecy was about *him*! He was not just translating history; he was translating a vision of the last days, of the miraculous Restoration of the gospel of Jesus Christ—*and Joseph himself would help fulfill it!*
+Perhaps the most stunning passage in the Book of Mormon to young Joseph may have been the [[2 Nephi 3.1|third chapter of 2 Nephi]][[2 Nephi 3.2|]][[2 Nephi 3.3|]][[2 Nephi 3.4|]][[2 Nephi 3.5|]][[2 Nephi 3.6|]][[2 Nephi 3.7|]][[2 Nephi 3.8|]][[2 Nephi 3.9|]][[2 Nephi 3.10|]][[2 Nephi 3.11|]][[2 Nephi 3.12|]][[2 Nephi 3.13|]][[2 Nephi 3.14|]][[2 Nephi 3.15|]][[2 Nephi 3.16|]][[2 Nephi 3.17|]][[2 Nephi 3.18|]][[2 Nephi 3.19|]][[2 Nephi 3.20|]][[2 Nephi 3.21|]][[2 Nephi 3.22|]][[2 Nephi 3.23|]][[2 Nephi 3.24|]][[2 Nephi 3.25|]]. This chapter contains an ancient prophecy about a “choice seer” whom the Lord would raise up in the latter days—a seer named Joseph, named after his father. This future prophet would be “esteemed highly” and would do a work “of great worth” unto his people. He would “be great like unto Moses” and would be given “power to bring forth \[God’s\] word.”[^15] Consider how Joseph Smith must have felt as he realized that this prophecy was about *him*! He was not just translating history; he was translating a vision of the last days, of the miraculous Restoration of the gospel of Jesus Christ—*and Joseph himself would help fulfill it!*
 
 Today, almost 200 years later, it’s easy to see how this prophecy has been realized. We know about the great things Joseph accomplished as the Lord’s prophet. But remember that when Joseph translated this prophecy, he had done few of the things the prophets foretold. He was still a young man in his early 20s. The Church had not yet been organized. There were no wards or branches, no missionaries, and no temples. Hardly anyone had heard of Joseph Smith, and some of those who had, actively opposed him. Now look at the great work the Lord has wrought by the hand of His servant Joseph, notwithstanding the opposition against him. Is not the fulfillment of this prophecy compelling evidence of the prophetic calling of Joseph Smith?
 
@@ -89,7 +87,7 @@ Most of all, because Joseph was a prophet, we have witness upon witness, testimo
 
 [^12]: See [[Joseph Smith History 1.68|Joseph Smith—History 1:68–72]][[Joseph Smith History 1.69|]][[Joseph Smith History 1.70|]][[Joseph Smith History 1.71|]][[Joseph Smith History 1.72|]].
 
-[^13]: See [[3 Nephi 11.1|3 Nephi 11–20]].
+[^13]: See [[3 Nephi 11.1|3 Nephi 11–20]][[3 Nephi 11.2|]][[3 Nephi 11.3|]][[3 Nephi 11.4|]][[3 Nephi 11.5|]][[3 Nephi 11.6|]][[3 Nephi 11.7|]][[3 Nephi 11.8|]][[3 Nephi 11.9|]][[3 Nephi 11.10|]][[3 Nephi 11.11|]][[3 Nephi 11.12|]][[3 Nephi 11.13|]][[3 Nephi 11.14|]][[3 Nephi 11.15|]][[3 Nephi 11.16|]][[3 Nephi 11.17|]][[3 Nephi 11.18|]][[3 Nephi 11.19|]][[3 Nephi 11.20|]][[3 Nephi 11.21|]][[3 Nephi 11.22|]][[3 Nephi 11.23|]][[3 Nephi 11.24|]][[3 Nephi 11.25|]][[3 Nephi 11.26|]][[3 Nephi 11.27|]][[3 Nephi 11.28|]][[3 Nephi 11.29|]][[3 Nephi 11.30|]][[3 Nephi 11.31|]][[3 Nephi 11.32|]][[3 Nephi 11.33|]][[3 Nephi 11.34|]][[3 Nephi 11.35|]][[3 Nephi 11.36|]][[3 Nephi 11.37|]][[3 Nephi 11.38|]][[3 Nephi 11.39|]][[3 Nephi 11.40|]][[3 Nephi 11.41|]].
 
 [^14]: [[Moroni 8.11|Moroni 8:11–12]][[Moroni 8.12|]].
 
@@ -101,7 +99,3 @@ Most of all, because Joseph was a prophet, we have witness upon witness, testimo
 
 [^18]: [[John 17.3|John 17:3]].
 
-
-
-
-#Book_Of_Mormon #Faith #Holy_Ghost #Joseph_Smith #Prophecy #Prophets #Testimony

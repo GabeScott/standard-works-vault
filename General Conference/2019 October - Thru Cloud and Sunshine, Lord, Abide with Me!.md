@@ -1,7 +1,5 @@
 # Thru Cloud and Sunshine, Lord, Abide with Me!
 
-Jeffrey R. Holland
-
 By Reyna I. Aburto - *Second Counselor in the Relief Society General Presidency*
 
 *Given in the October session of the 2019 General Conference*
@@ -135,7 +133,3 @@ I testify to you that “thru cloud and sunshine” the Lord will abide with us,
 
 [^41]: [[Isaiah 60.20|Isaiah 60:20]].
 
-
-
-
-#Depression #Hope #Mental_Health

@@ -1,7 +1,5 @@
 # Gratitude: A Path to Happiness
 
-Thomas S. Monson
-
 By Bonnie D. Parkin - *Recently Released Relief Society General President*
 
 *Given in the April session of the 2007 General Conference*
@@ -79,7 +77,3 @@ My most profound gratitude is for my Savior—an obedient Son, who did all that 
 
 [^10]: [[2 Corinthians 9.15|2 Corinthians 9:15]].
 
-
-
-
-#Adversity #Gratitude #Love

@@ -1,7 +1,5 @@
 # Blessings Resulting from Reading the Book of Mormon
 
-Gordon B. Hinckley
-
 By Elder L. Tom Perry - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2005 General Conference*
@@ -85,4 +83,3 @@ I pray that each of us will read the Book of Mormon by the end of the year in re
 
 
 
-#Blessings #Book_Of_Mormon #Prophets #Scripture_Study

@@ -1,7 +1,5 @@
 # The Holy Scriptures: Letters from Home
 
-Gordon B. Hinckley
-
 By Ardeth G. Kapp - *Young Women General President*
 
 *Given in the October session of the 1985 General Conference*
@@ -64,7 +62,7 @@ Often while you’re studying you will feel very close to your Heavenly Father, 
 
 But I had to learn to walk first. As you keep trying, sooner than you realize, you’ll have a few favorite scriptures marked that you can easily turn to. And you’ll learn to love these books like special friends. If you do not have your own set of scriptures, make a plan to get them.
 
-Let me tell you about this old set that my mom and dad gave me when I was seventeen. I had read the Book of Mormon before, but this time it was different. I was young, and I wanted to know for myself if the Book of Mormon was really true. On this day I had come to the part in Alma, chapter 32, \[[[Alma 32.1|Alma 32]]\] about faith. As I finished the chapter, I experienced a feeling which I recognized as a witness from the Holy Ghost—I knew the Book of Mormon was true. I wanted to stand up and shout. I wanted to tell the whole world what I knew and how I felt, but I was alone. So with tears of joy streaming down my face, I wrote on the margin all the way around on each side the feelings in my heart at that moment. I made a big red star up in the corner and wrote, “May 31st, 7:30 a.m. This I know, written as if to me.” Then I wrote on the other margin, “I have received a confirmation. I know the Book of Mormon is true.” On the other side I wrote, “One month ago today I began fasting each Tuesday for a more sure knowledge. This I know.”
+Let me tell you about this old set that my mom and dad gave me when I was seventeen. I had read the Book of Mormon before, but this time it was different. I was young, and I wanted to know for myself if the Book of Mormon was really true. On this day I had come to the part in Alma, chapter 32, \[[[Alma 32.1|Alma 32]][[Alma 32.2|]][[Alma 32.3|]][[Alma 32.4|]][[Alma 32.5|]][[Alma 32.6|]][[Alma 32.7|]][[Alma 32.8|]][[Alma 32.9|]][[Alma 32.10|]][[Alma 32.11|]][[Alma 32.12|]][[Alma 32.13|]][[Alma 32.14|]][[Alma 32.15|]][[Alma 32.16|]][[Alma 32.17|]][[Alma 32.18|]][[Alma 32.19|]][[Alma 32.20|]][[Alma 32.21|]][[Alma 32.22|]][[Alma 32.23|]][[Alma 32.24|]][[Alma 32.25|]][[Alma 32.26|]][[Alma 32.27|]][[Alma 32.28|]][[Alma 32.29|]][[Alma 32.30|]][[Alma 32.31|]][[Alma 32.32|]][[Alma 32.33|]][[Alma 32.34|]][[Alma 32.35|]][[Alma 32.36|]][[Alma 32.37|]][[Alma 32.38|]][[Alma 32.39|]][[Alma 32.40|]][[Alma 32.41|]][[Alma 32.42|]][[Alma 32.43|]]\] about faith. As I finished the chapter, I experienced a feeling which I recognized as a witness from the Holy Ghost—I knew the Book of Mormon was true. I wanted to stand up and shout. I wanted to tell the whole world what I knew and how I felt, but I was alone. So with tears of joy streaming down my face, I wrote on the margin all the way around on each side the feelings in my heart at that moment. I made a big red star up in the corner and wrote, “May 31st, 7:30 a.m. This I know, written as if to me.” Then I wrote on the other margin, “I have received a confirmation. I know the Book of Mormon is true.” On the other side I wrote, “One month ago today I began fasting each Tuesday for a more sure knowledge. This I know.”
 
 Through prayer and study you can know the scriptures are true. I am so anxious for you to know and love the scriptures so they can provide answers during your teenage years when the climb is steep and scary and risky and you need inspiration as you make important choices every day. As you become more and more familiar with the scriptures, they can eventually become your favorite stories, easy to read; and they will help you have determination to stand firm for righteousness, even when it’s hard.
 
@@ -73,4 +71,3 @@ After this conference, will you join with me in making a renewed commitment to i
 
 
 
-#Scriptures

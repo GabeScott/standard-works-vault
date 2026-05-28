@@ -1,7 +1,5 @@
 # The Gift of the Holy Ghost—A Sure Compass
 
-Ezra Taft Benson
-
 By Elder James E. Faust - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1989 General Conference*
@@ -87,4 +85,3 @@ I pray that the promise of the Lord will be fulfilled for each of us, that “th
 
 
 
-#Holy_Ghost #Jesus_Christ

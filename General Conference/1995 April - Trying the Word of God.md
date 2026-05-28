@@ -1,7 +1,5 @@
 # Trying the Word of God
 
-Thomas S. Monson
-
 By Virginia H. Pearce - *First Counselor in the Young Women General Presidency*
 
 *Given in the April session of the 1995 General Conference*
@@ -41,4 +39,3 @@ Every song, every scripture read, every story told, and all counsel given tonigh
 
 
 
-#Scripture_Study #Scriptures #Young_Women

@@ -1,7 +1,5 @@
 # Christ the Lord Is Risen Today
 
-Henry B. Eyring
-
 By Elder Gerrit W. Gong - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2018 General Conference*
@@ -61,7 +59,3 @@ I testify of latter-day prophets, from the Prophet Joseph Smith to our dear Pres
 
 [^13]: Introduction to the Book of Mormon.
 
-
-
-
-#Atonement #Covenants #Easter #Jesus_Christ

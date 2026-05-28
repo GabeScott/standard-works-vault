@@ -1,7 +1,5 @@
 # Miracles of the Gospel of Jesus Christ
 
-Russell M. Nelson
-
 By Elder Carlos G. Revillo Jr. - *Of the Seventy*
 
 *Given in the October session of the 2021 General Conference*
@@ -43,4 +41,3 @@ I testify of the reality of Jesus Christ and that He lives and loves each one of
 
 
 
-#Church_Growth #Conversion #Covenants #Faith #Jesus_Christ #Miracles #Repentance

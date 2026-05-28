@@ -1,7 +1,5 @@
 # To Touch a Life with Faith
 
-Gordon B. Hinckley
-
 By Elder Henry B. Eyring - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1995 General Conference*
@@ -109,4 +107,3 @@ I testify that God the Father lives and that He loves you. I testify that Jesus 
 
 
 
-#Adversity #Agency #Commandments #Death #Faith #Jesus_Christ #Missionary_Work #Obedience #Plan_Of_Salvation #Service #Teaching #Work

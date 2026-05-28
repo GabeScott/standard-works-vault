@@ -1,7 +1,5 @@
 # Peace—A Triumph of Principles
 
-Gordon B. Hinckley
-
 By Elder Marvin J. Ashton - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1985 General Conference*
@@ -79,4 +77,3 @@ To this I bear my special witness in the name of Jesus Christ, amen.
 
 
 
-#Peace

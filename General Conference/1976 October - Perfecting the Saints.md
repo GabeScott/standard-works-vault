@@ -1,7 +1,5 @@
 # Perfecting the Saints
 
-Spencer W. Kimball
-
 By Elder Franklin D. Richards - *Of the First Council of the Seventy*
 
 *Given in the October session of the 1976 General Conference*
@@ -87,4 +85,3 @@ May all of us seek to perfect our lives in the pattern of the Savior, and may we
 
 
 
-#Activation #Fellowshipping

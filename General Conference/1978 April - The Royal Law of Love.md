@@ -1,7 +1,5 @@
 # The Royal Law of Love
 
-Spencer W. Kimball
-
 By President Marion G. Romney - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 1978 General Conference*
@@ -55,4 +53,3 @@ If we do so, we shall be able to meet the trying days ahead, which are coming fa
 
 
 
-#Love

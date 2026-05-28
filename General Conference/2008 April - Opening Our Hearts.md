@@ -1,7 +1,5 @@
 # Opening Our Hearts
 
-Dieter F. Uchtdorf
-
 By Elder Gerald N. Lund - *Of the Seventy*
 
 *Given in the April session of the 2008 General Conference*
@@ -109,7 +107,3 @@ May we ever ask Christ to strengthen our hearts and fill them with His love is m
 
 [^22]: [[Philippians 4.13|Philippians 4:13]].
 
-
-
-
-#Holy_Ghost #Morality #Spirituality

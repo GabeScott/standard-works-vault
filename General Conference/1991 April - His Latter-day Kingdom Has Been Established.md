@@ -1,7 +1,5 @@
 # His Latter-day Kingdom Has Been Established
 
-Thomas S. Monson
-
 By President Gordon B. Hinckley - *First Counselor in the First Presidency*
 
 *Given in the April session of the 1991 General Conference*
@@ -33,4 +31,3 @@ Now, my beloved brethren and sisters, as we return to our homes, may we carry wi
 
 
 
-#Church_Growth #Gratitude #Jesus_Christ #Obedience #Prophets #Restoration

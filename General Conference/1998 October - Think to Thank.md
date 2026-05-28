@@ -1,7 +1,5 @@
 # Think to Thank
 
-Gordon B. Hinckley
-
 By President Thomas S. Monson - *First Counselor in the First Presidency*
 
 *Given in the October session of the 1998 General Conference*
@@ -223,7 +221,3 @@ That all may do so is my humble prayer of thanks, in the name of Jesus Christ, a
 
 [^23]: [[Matthew 11.28|Matt. 11:28–29]][[Matthew 11.29|]].
 
-
-
-
-#Children #Death #Family #Gratitude #Jesus_Christ #Peace #Temples

@@ -1,7 +1,5 @@
 # Why Every Member a Missionary?
 
-Gordon B. Hinckley
-
 By Elder Richard G. Scott - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1997 General Conference*
@@ -87,7 +85,3 @@ Why every member a missionary? Because that is what the Lord has asked us to do.
 
 [^7]: “The Things of Eternity—Stand We in Jeopardy?” *Ensign,* Jan. 1977, 3.
 
-
-
-
-#Fellowshipping #Jesus_Christ #Joy #Media #Missionary_Work

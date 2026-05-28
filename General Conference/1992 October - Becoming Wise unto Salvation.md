@@ -1,7 +1,5 @@
 # Becoming Wise unto Salvation
 
-Gordon B. Hinckley
-
 By Elder John E. Fowler - *Of the Seventy*
 
 *Given in the October session of the 1992 General Conference*
@@ -55,4 +53,3 @@ It is my witness that President Ezra Taft Benson, his Counselors, and the member
 
 
 
-#General_Conference #Prophets #Scriptures

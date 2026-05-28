@@ -1,7 +1,5 @@
 # Always Remember Him
 
-Ezra Taft Benson
-
 By Elder Dallin H. Oaks - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1988 General Conference*
@@ -121,4 +119,3 @@ May we always remember, as we covenant to do, is my humble prayer in the name of
 
 
 
-#Compassion #Fellowshipping #Forgiveness #Jesus_Christ

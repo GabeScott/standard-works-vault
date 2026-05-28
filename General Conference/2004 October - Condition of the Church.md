@@ -1,7 +1,5 @@
 # Condition of the Church
 
-Gordon B. Hinckley
-
 By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the October session of the 2004 General Conference*
@@ -49,4 +47,3 @@ And so, brothers and sisters, I might continue. Suffice it to say that I believe
 
 
 
-#Church_Growth #Education #Temples

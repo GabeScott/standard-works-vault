@@ -1,7 +1,5 @@
 # Man’s Search for Divine Truth
 
-Gordon B. Hinckley
-
 By Elder Charles Didier - *Of the Presidency of the Seventy*
 
 *Given in the October session of the 2005 General Conference*
@@ -49,4 +47,3 @@ In the name of Jesus Christ, amen.
 
 
 
-#Conversion #Holy_Ghost #Obedience #Peace #Prophets #Scripture_Study #Spirituality #Truth

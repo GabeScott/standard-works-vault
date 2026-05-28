@@ -1,7 +1,5 @@
 # Bridging the Gap between Uncertainty and Certainty
 
-Gordon B. Hinckley
-
 By Elder Richard E. Turley Sr. - *Of the Seventy*
 
 *Given in the April session of the 1998 General Conference*
@@ -57,4 +55,3 @@ The Spirit will help us in our quest to bridge the gap between uncertainty and c
 
 
 
-#Creation #Family #Holy_Ghost #Jesus_Christ #Plan_Of_Salvation #Restoration

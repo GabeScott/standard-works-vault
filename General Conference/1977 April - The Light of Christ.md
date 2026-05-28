@@ -1,7 +1,5 @@
 # The Light of Christ
 
-Spencer W. Kimball
-
 By President Marion G. Romney - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 1977 General Conference*
@@ -149,4 +147,3 @@ That the Lord will bless all of us priesthood bearers that we will so understand
 
 
 
-#Jesus_Christ #Spirituality

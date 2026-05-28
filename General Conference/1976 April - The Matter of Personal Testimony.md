@@ -1,7 +1,5 @@
 # The Matter of Personal Testimony
 
-Spencer W. Kimball
-
 By Elder Joseph Anderson - *Assistant to the Council of the Twelve*
 
 *Given in the April session of the 1976 General Conference*
@@ -74,4 +72,3 @@ After an association of more than fifty years with the leaders of the Church her
 
 
 
-#Spirituality #Testimony

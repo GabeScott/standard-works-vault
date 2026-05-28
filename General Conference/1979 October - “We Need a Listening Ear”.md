@@ -1,7 +1,5 @@
 # “We Need a Listening Ear”
 
-Spencer W. Kimball
-
 By President Spencer W. Kimball - *President of the Church*
 
 *Given in the October session of the 1979 General Conference*
@@ -111,4 +109,3 @@ This is my prayer and my testimony in the name of our beloved Savior, Jesus Chri
 
 
 
-#Obedience #Prayer

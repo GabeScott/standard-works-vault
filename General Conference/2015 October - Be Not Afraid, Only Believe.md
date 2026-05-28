@@ -1,7 +1,5 @@
 # Be Not Afraid, Only Believe
 
-Rosemary M. Wixom
-
 By President Dieter F. Uchtdorf - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 2015 General Conference*
@@ -161,7 +159,3 @@ I pray that each one of us—young and old—will find renewed strength, courage
 
 [^15]: See [[2 Nephi 2.25|2 Nephi 2:25]].
 
-
-
-
-#Courage #Faith #Humility #Patience #Truth

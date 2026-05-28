@@ -1,7 +1,5 @@
 # “Touch Not the Evil Gift, nor the Unclean Thing”
 
-Gordon B. Hinckley
-
 By Elder H. Burke Peterson - *Emeritus Member of the Seventy*
 
 *Given in the October session of the 1993 General Conference*
@@ -63,4 +61,3 @@ Of him I testify in the name of Jesus Christ, amen.
 
 
 
-#Media #Morality #Repentance

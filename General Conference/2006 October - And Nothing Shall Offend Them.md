@@ -1,7 +1,5 @@
 # And Nothing Shall Offend Them
 
-Gordon B. Hinckley
-
 By Elder David A. Bednar - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2006 General Conference*
@@ -99,4 +97,3 @@ As His servant, I echo the words of the Master when He declared, “These things
 
 
 
-#Agency #Attitude #Forgiveness #Patience

@@ -1,7 +1,5 @@
 # Be a Peacemaker
 
-Gordon B. Hinckley
-
 By Elder Franklin D. Richards - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1983 General Conference*
@@ -103,4 +101,3 @@ May each of us in our daily lives assume the role of peacemaker that we may enjo
 
 
 
-#Peace

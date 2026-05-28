@@ -1,7 +1,5 @@
 # After All We Can Do
 
-Gordon B. Hinckley
-
 By Elder Claudio D. Zivic - *Of the Seventy*
 
 *Given in the October session of the 2007 General Conference*
@@ -75,4 +73,3 @@ It is my humble prayer that the Lord may bless us to do “all we can do” in t
 
 
 
-#Endurance #Freedom #Repentance #Testimony

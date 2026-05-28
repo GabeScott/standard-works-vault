@@ -1,7 +1,5 @@
 # Finding Strength in Challenging Times!
 
-Thomas S. Monson
-
 By Elder Allan F. Packer - *Of the Seventy*
 
 *Given in the April session of the 2009 General Conference*
@@ -105,7 +103,3 @@ I bear testimony of our Heavenly Father, the Father of our spirits; of Jesus Chr
 
 [^20]: “Rise Up, O Men of God,” *Hymns,* no. 323.
 
-
-
-
-#Holy_Ghost #Spirituality #Testimony

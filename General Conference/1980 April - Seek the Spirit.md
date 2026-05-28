@@ -1,7 +1,5 @@
 # Seek the Spirit
 
-Spencer W. Kimball
-
 By President Marion G. Romney - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 1980 General Conference*
@@ -29,4 +27,3 @@ I love you and want to serve you all I can as long as I live. I want to be worth
 
 
 
-#Spirituality

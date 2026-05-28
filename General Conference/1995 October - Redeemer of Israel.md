@@ -1,7 +1,5 @@
 # Redeemer of Israel
 
-Gordon B. Hinckley
-
 By Elder Bruce D. Porter - *Of the Seventy*
 
 *Given in the October session of the 1995 General Conference*
@@ -46,4 +44,3 @@ I bear testimony that the Lord Jesus Christ has paid the price of our sins upon 
 
 
 
-#God_The_Father #Jesus_Christ #Pride #Sin

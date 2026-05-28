@@ -1,7 +1,5 @@
 # The Modern Mighty of Israel
 
-Gordon B. Hinckley
-
 By Elder Monte J. Brough - *Of the Presidency of the Seventy*
 
 *Given in the October session of the 1993 General Conference*
@@ -81,4 +79,3 @@ In the name of Jesus Christ, amen.
 
 
 
-#Commitment #Courage #Loyalty

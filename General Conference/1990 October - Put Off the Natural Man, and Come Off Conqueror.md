@@ -1,7 +1,5 @@
 # Put Off the Natural Man, and Come Off Conqueror
 
-Gordon B. Hinckley
-
 By Elder Neal A. Maxwell - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1990 General Conference*
@@ -101,4 +99,3 @@ In the name of Jesus Christ, amen!
 
 
 
-#Greed #Sin #Spirituality

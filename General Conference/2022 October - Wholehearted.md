@@ -1,7 +1,5 @@
 # Wholehearted
 
-Dallin H. Oaks
-
 By Sister Michelle D. Craig - *First Counselor in the Young Women General Presidency*
 
 *Given in the October session of the 2022 General Conference*
@@ -97,7 +95,7 @@ Arm in arm with you, I want to stand with Him forever. Wholehearted. Knowing tha
 
 [^10]: Personal correspondence.
 
-[^11]: See [[Joshua 3.5|Joshua 3:5, 13, 15–17]][[Joshua 3.13|]][[Joshua 3.15|]][[Joshua 3.16|]][[Joshua 3.17|]]; [[2 Kings 5.14|2 Kings 5:14]]; [[Matthew 14.29|Matthew 14:29]]; [[Mark 2.3|Mark 2:3–5]][[Mark 2.4|]][[Mark 2.5|]]; [[Luke 8.43|Luke 8:43–44]][[Luke 8.44|]]; [[John 2.3|John 2:3–5]][[John 2.4|]][[John 2.5|]]; [[Acts 11.12|Acts 11:12]]; [[1 Nephi 4.6|1 Nephi 4:6–7]][[1 Nephi 4.7|]]; [[1 Nephi 16.23|16:23]]; [[3 Nephi 27.21|3 Nephi 27:21]]; [[Ether 2.16|Ether 2:16]]; [[Ether 3.1|3]]; [[Moses 6.32|Moses 6:32, 42]][[Moses 6.42|]].
+[^11]: See [[Joshua 3.5|Joshua 3:5, 13, 15–17]][[Joshua 3.13|]][[Joshua 3.15|]][[Joshua 3.16|]][[Joshua 3.17|]]; [[2 Kings 5.14|2 Kings 5:14]]; [[Matthew 14.29|Matthew 14:29]]; [[Mark 2.3|Mark 2:3–5]][[Mark 2.4|]][[Mark 2.5|]]; [[Luke 8.43|Luke 8:43–44]][[Luke 8.44|]]; [[John 2.3|John 2:3–5]][[John 2.4|]][[John 2.5|]]; [[Acts 11.12|Acts 11:12]]; [[1 Nephi 4.6|1 Nephi 4:6–7]][[1 Nephi 4.7|]]; [[1 Nephi 16.23|16:23]]; [[3 Nephi 27.21|3 Nephi 27:21]]; [[Ether 2.16|Ether 2:16]]; [[Ether 3.1|3]][[Ether 3.2|]][[Ether 3.3|]][[Ether 3.4|]][[Ether 3.5|]][[Ether 3.6|]][[Ether 3.7|]][[Ether 3.8|]][[Ether 3.9|]][[Ether 3.10|]][[Ether 3.11|]][[Ether 3.12|]][[Ether 3.13|]][[Ether 3.14|]][[Ether 3.15|]][[Ether 3.16|]][[Ether 3.17|]][[Ether 3.18|]][[Ether 3.19|]][[Ether 3.20|]][[Ether 3.21|]][[Ether 3.22|]][[Ether 3.23|]][[Ether 3.24|]][[Ether 3.25|]][[Ether 3.26|]][[Ether 3.27|]][[Ether 3.28|]]; [[Moses 6.32|Moses 6:32, 42]][[Moses 6.42|]].
 
 [^12]: [[Luke 17.14|Luke 17:14]]; emphasis added; see also [[Luke 17.11|verses 11–13]][[Luke 17.12|]][[Luke 17.13|]].
 
@@ -113,7 +111,3 @@ Arm in arm with you, I want to stand with Him forever. Wholehearted. Knowing tha
 
 [^18]: See [[Romans 8.14|Romans 8:14–18, 28, 38–39]][[Romans 8.15|]][[Romans 8.16|]][[Romans 8.17|]][[Romans 8.18|]][[Romans 8.28|]][[Romans 8.38|]][[Romans 8.39|]].
 
-
-
-
-#Adversity #Covenants #Discipleship #Faith #Jesus_Christ

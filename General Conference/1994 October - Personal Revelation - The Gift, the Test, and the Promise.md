@@ -1,7 +1,5 @@
 # Personal Revelation: The Gift, the Test, and the Promise
 
-Gordon B. Hinckley
-
 By President Boyd K. Packer - *Acting President of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1994 General Conference*
@@ -251,7 +249,3 @@ I bear witness of the power of the Spirit and thank God that this incomparable g
 
 [^39]: [[John 14.15|John 14:15–18]][[John 14.16|]][[John 14.17|]][[John 14.18|]].
 
-
-
-
-#Education #Faith #Holy_Ghost #Prayer #Reverence #Spirituality #Word_Of_Wisdom

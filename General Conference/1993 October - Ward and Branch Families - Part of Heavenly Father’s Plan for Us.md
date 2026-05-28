@@ -1,7 +1,5 @@
 # Ward and Branch Families: Part of Heavenly Father’s Plan for Us
 
-Gordon B. Hinckley
-
 By Virginia H. Pearce - *First Counselor in the Young Women General Presidency*
 
 *Given in the October session of the 1993 General Conference*
@@ -79,4 +77,3 @@ I bear witness that ward and branch families are a great and miraculous part of 
 
 
 
-#Church_Organization #Family #Fellowshipping #Service

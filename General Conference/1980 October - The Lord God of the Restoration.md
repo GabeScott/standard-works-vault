@@ -1,7 +1,5 @@
 # The Lord God of the Restoration
 
-Spencer W. Kimball
-
 By Elder Bruce R. McConkie - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1980 General Conference*
@@ -107,4 +105,3 @@ Oh, God our Father, wilt thou look upon thy children everywhere in love and merc
 
 
 
-#Idol_Worship #Restoration

@@ -1,7 +1,5 @@
 # The Power of Correct Principles
 
-Thomas S. Monson
-
 By Elder Richard G. Scott - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1993 General Conference*
@@ -89,4 +87,3 @@ I solemnly testify that your Heavenly Father and His Beloved Son live, that they
 
 
 
-#Children #Missionary_Work #Obedience #Parenthood

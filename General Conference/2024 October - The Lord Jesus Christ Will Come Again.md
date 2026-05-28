@@ -1,7 +1,5 @@
 # The Lord Jesus Christ Will Come Again
 
-Henry B. Eyring
-
 By President Russell M. Nelson - *President of The Church of Jesus Christ of Latter-day Saints*
 
 *Given in the October session of the 2024 General Conference*
@@ -145,7 +143,3 @@ Through the power of the sacred priesthood keys I hold, I declare this truth to 
 
 [^20]: [[Omni 1.26|Omni 1:26]].
 
-
-
-
-#Atonement #Jesus_Christ #Preparation #Second_Coming #Temples

@@ -1,7 +1,5 @@
 # You Can Get There from Here
 
-Joseph Fielding Smith
-
 By Elder Marvin J. Ashton - *Assistant to the Council of the Twelve*
 
 *Given in the October session of the 1971 General Conference*
@@ -87,4 +85,3 @@ And I say this in the name of Jesus Christ. Amen.
 
 
 
-#Love #Social_Services

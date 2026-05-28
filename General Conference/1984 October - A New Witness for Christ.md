@@ -1,7 +1,5 @@
 # A New Witness for Christ
 
-Gordon B. Hinckley
-
 By President Ezra Taft Benson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1984 General Conference*
@@ -95,4 +93,3 @@ I testify that the Book of Mormon is the word of God; and therefore Jesus is the
 
 
 
-#Book_Of_Mormon

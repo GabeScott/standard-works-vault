@@ -1,7 +1,5 @@
 # “Are You the Woman I Think You Are?”
 
-Gordon B. Hinckley
-
 By Sheri L. Dew - *Second Counselor in the Relief Society General Presidency*
 
 *Given in the October session of the 1997 General Conference*
@@ -73,4 +71,3 @@ May we this very hour arise by strengthening our resolve to follow our Savior an
 
 
 
-#Jesus_Christ #Prayer #Satan #Scriptures #Sin #Temples #Testimony #Women

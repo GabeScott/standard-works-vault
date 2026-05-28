@@ -1,7 +1,5 @@
 # “If Thou Wilt Enter into Life, Keep the Commandments”
 
-James E. Faust
-
 By Elder Robert D. Hales - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1996 General Conference*
@@ -95,4 +93,3 @@ I testify that God lives. Jesus is the Christ. May we remember who we are and ac
 
 
 
-#Atonement #Commandments #Covenants #Education #Example #Family #Friendship #Holy_Ghost #Jesus_Christ #Missionary_Work #Priesthood #Prophets #Sacrament #Spirituality #Youth

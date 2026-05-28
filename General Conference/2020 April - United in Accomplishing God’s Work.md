@@ -1,7 +1,5 @@
 # United in Accomplishing God’s Work
 
-Russell M. Nelson
-
 By Jean B. Bingham - *Relief Society General President*
 
 *Given in the April session of the 2020 General Conference*
@@ -111,7 +109,3 @@ May each of us choose to become united in the Lord’s inspired way to help His 
 
 [^19]: Russell M. Nelson, “[[2015 October - A Plea to My Sisters.md|A Plea to My Sisters]],” 97.
 
-
-
-
-#Priesthood #Unity #Women

@@ -1,7 +1,5 @@
 # Moving Closer to Him
 
-Gordon B. Hinckley
-
 By Elder Craig A. Cardon - *Of the Seventy*
 
 *Given in the October session of the 2006 General Conference*
@@ -118,7 +116,3 @@ In the name of Jesus Christ, amen.
 
 [^28]: “As the Dew from Heaven Distilling,” *Hymns,* no. 149.
 
-
-
-
-#Obedience #Ordinances #Priesthood

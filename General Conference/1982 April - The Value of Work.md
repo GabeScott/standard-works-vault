@@ -1,7 +1,5 @@
 # The Value of Work
 
-Spencer W. Kimball
-
 By Bishop J. Richard Clarke - *Second Counselor in the Presiding Bishopric*
 
 *Given in the April session of the 1982 General Conference*
@@ -101,4 +99,3 @@ To this I testify, in the name of the Lord Jesus Christ, amen.
 
 
 
-#Self-Control #Work

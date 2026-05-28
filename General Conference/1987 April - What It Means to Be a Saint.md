@@ -1,7 +1,5 @@
 # What It Means to Be a Saint
 
-Ezra Taft Benson
-
 By Elder William Grant Bangerter - *Of the Presidency of the First Quorum of the Seventy*
 
 *Given in the April session of the 1987 General Conference*
@@ -93,4 +91,3 @@ That the Saints will accept this priesthood, receive its ordinances, and keep th
 
 
 
-#Church_Membership #Covenants

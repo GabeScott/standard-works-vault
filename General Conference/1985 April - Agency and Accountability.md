@@ -1,7 +1,5 @@
 # Agency and Accountability
 
-Gordon B. Hinckley
-
 By Elder Victor L. Brown - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1985 General Conference*
@@ -107,4 +105,3 @@ The foolish virgins expected that they could borrow oil from others. To their so
 
 
 
-#Agency #Obedience #Responsibility

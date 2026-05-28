@@ -1,7 +1,5 @@
 # As Good As Our Bond
 
-Gordon B. Hinckley
-
 By Elder Sheldon F. Child - *Of the Seventy*
 
 *Given in the April session of the 1997 General Conference*
@@ -89,7 +87,3 @@ It is my prayer that we may honor the commitments and covenants that we make wit
 
 [^14]: *Finding Peace in Our Lives* (1995), 193–94.
 
-
-
-
-#Covenants #Honesty #Jesus_Christ #Plan_Of_Salvation #Temples

@@ -1,7 +1,5 @@
 # “I Will Go and Do the Things Which the Lord Hath Commanded”
 
-Harold B. Lee
-
 By Elder L. Tom Perry - *Assistant to the Council of the Twelve*
 
 *Given in the October session of the 1973 General Conference*
@@ -47,4 +45,3 @@ Let us sound the call today to revive the old profession of lamplighters. Let us
 
 
 
-#Church_History #Obedience #Patriotism

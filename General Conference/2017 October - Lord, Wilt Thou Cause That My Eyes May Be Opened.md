@@ -1,7 +1,5 @@
 # Lord, Wilt Thou Cause That My Eyes May Be Opened
 
-Sharon Eubank
-
 By Elder W. Craig Zwick - *Emeritus Member of the Seventy*
 
 *Given in the October session of the 2017 General Conference*
@@ -51,7 +49,3 @@ I witness that through the power of Jesus Christ, we become able to look spiritu
 
 [^2]: *[Teachings of Presidents of the Church: Gordon B. Hinckley](https://www.churchofjesuschrist.org/study/manual/teachings-of-presidents-of-the-church-gordon-b-hinckley/chapter-14-losing-ourselves-in-the-service-of-others?lang=eng)* (2016), 201.
 
-
-
-
-#Adversity #Criticism #Healing #Jesus_Christ #Perspective #Sacrament

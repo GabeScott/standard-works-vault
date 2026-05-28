@@ -1,7 +1,5 @@
 # Preserving Agency, Protecting Religious Freedom
 
-Cheryl A. Esplin
-
 By Elder Robert D. Hales - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2015 General Conference*
@@ -135,7 +133,3 @@ Of our Savior, we sing, “His precious blood he freely spilt; His life he freel
 
 [^24]: [[2 Nephi 2.27|2 Nephi 2:27]].
 
-
-
-
-#Agency #Jesus_Christ #Missionary_Work #Plan_Of_Salvation #Religious_Freedom

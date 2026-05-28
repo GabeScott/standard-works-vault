@@ -1,7 +1,5 @@
 # Who Will Forfeit the Harvest?
 
-Spencer W. Kimball
-
 By Elder Marvin J. Ashton - *Of the Council of the Twelve*
 
 *Given in the October session of the 1978 General Conference*
@@ -41,4 +39,3 @@ Most of all, we forfeit the gift of eternal growth and progress. May we avoid th
 
 
 
-#Endurance #Obedience #Scriptures

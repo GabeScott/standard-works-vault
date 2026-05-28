@@ -1,7 +1,5 @@
 # Good Health—A Key to Joyous Living
 
-Spencer W. Kimball
-
 By Barbara B. Smith - *Relief Society General President*
 
 *Given in the October session of the 1978 General Conference*
@@ -63,4 +61,3 @@ May the application of these principles help each of us live joyously, I pray, i
 
 
 
-#Health

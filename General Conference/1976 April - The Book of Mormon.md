@@ -1,7 +1,5 @@
 # The Book of Mormon
 
-Spencer W. Kimball
-
 By Elder James A. Cullimore - *Assistant to the Council of the Twelve*
 
 *Given in the April session of the 1976 General Conference*
@@ -99,4 +97,3 @@ I leave you my witness of the truth of this gospel and of the Book of Mormon, in
 
 
 
-#Book_Of_Mormon

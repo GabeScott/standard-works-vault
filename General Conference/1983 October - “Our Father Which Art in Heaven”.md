@@ -1,7 +1,5 @@
 # “Our Father Which Art in Heaven”
 
-Gordon B. Hinckley
-
 By Elder L. Tom Perry - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1983 General Conference*
@@ -109,4 +107,3 @@ May the power of prayer bless our homes, I pray in the name of Jesus Christ, ame
 
 
 
-#Prayer

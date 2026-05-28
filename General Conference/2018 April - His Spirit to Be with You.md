@@ -1,7 +1,5 @@
 # His Spirit to Be with You
 
-Henry B. Eyring
-
 By President Henry B. Eyring - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 2018 General Conference*
@@ -135,7 +133,3 @@ I have felt the love of the Father and of His Beloved Son for all the children o
 
 [^1]: “Abide with Me; ’Tis Eventide,” *Hymns,* no. 165.
 
-
-
-
-#Adversity #Holy_Ghost #Inspiration #Joseph_Smith #Love

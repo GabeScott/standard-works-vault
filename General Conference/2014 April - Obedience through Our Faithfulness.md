@@ -1,7 +1,5 @@
 # Obedience through Our Faithfulness
 
-Thomas S. Monson
-
 By Elder L. Tom Perry - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2014 General Conference*
@@ -61,4 +59,3 @@ May we become heirs to the covenant and the seed of Abraham through our faithful
 
 
 
-#Agency #Faith #Holy_Ghost #Obedience

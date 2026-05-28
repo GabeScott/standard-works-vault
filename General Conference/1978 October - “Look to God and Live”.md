@@ -1,7 +1,5 @@
 # “Look to God and Live”
 
-Spencer W. Kimball
-
 By Elder Carlos E. Asay - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1978 General Conference*
@@ -56,7 +54,7 @@ I encouraged the young man to look to God through the scriptures. I requested th
 
 ## Words of Christ—a Compass
 
-In the Book of Mormon we read of a people who had an instrument called a ball or director. This compass-like instrument was prepared by the Lord and worked according to the people’s faith in God. When they were righteous and exercised faith, the spindles would point the way they should go. When their faith or diligence in keeping the commandments was lacking, the instrument would not work. (See [[1 Nephi 16.1|1 Ne. 16]]; [[1 Nephi 18.12|18:12]].)
+In the Book of Mormon we read of a people who had an instrument called a ball or director. This compass-like instrument was prepared by the Lord and worked according to the people’s faith in God. When they were righteous and exercised faith, the spindles would point the way they should go. When their faith or diligence in keeping the commandments was lacking, the instrument would not work. (See [[1 Nephi 16.1|1 Ne. 16]][[1 Nephi 16.2|]][[1 Nephi 16.3|]][[1 Nephi 16.4|]][[1 Nephi 16.5|]][[1 Nephi 16.6|]][[1 Nephi 16.7|]][[1 Nephi 16.8|]][[1 Nephi 16.9|]][[1 Nephi 16.10|]][[1 Nephi 16.11|]][[1 Nephi 16.12|]][[1 Nephi 16.13|]][[1 Nephi 16.14|]][[1 Nephi 16.15|]][[1 Nephi 16.16|]][[1 Nephi 16.17|]][[1 Nephi 16.18|]][[1 Nephi 16.19|]][[1 Nephi 16.20|]][[1 Nephi 16.21|]][[1 Nephi 16.22|]][[1 Nephi 16.23|]][[1 Nephi 16.24|]][[1 Nephi 16.25|]][[1 Nephi 16.26|]][[1 Nephi 16.27|]][[1 Nephi 16.28|]][[1 Nephi 16.29|]][[1 Nephi 16.30|]][[1 Nephi 16.31|]][[1 Nephi 16.32|]][[1 Nephi 16.33|]][[1 Nephi 16.34|]][[1 Nephi 16.35|]][[1 Nephi 16.36|]][[1 Nephi 16.37|]][[1 Nephi 16.38|]][[1 Nephi 16.39|]]; [[1 Nephi 18.12|18:12]].)
 
 One writer stated that the compass and its operation was “not without a shadow” or type of things spiritual. He wrote:
 
@@ -143,4 +141,3 @@ I testify that we can hear the voice of Deity through the scriptures; I testify 
 
 
 
-#Jesus_Christ #Prophets #Scriptures #Spirituality

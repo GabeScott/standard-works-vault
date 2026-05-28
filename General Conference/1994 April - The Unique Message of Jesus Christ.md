@@ -1,7 +1,5 @@
 # The Unique Message of Jesus Christ
 
-James E. Faust
-
 By Elder Robert D. Hales - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1994 General Conference*
@@ -71,4 +69,3 @@ In the name of Jesus Christ, amen.
 
 
 
-#Jesus_Christ

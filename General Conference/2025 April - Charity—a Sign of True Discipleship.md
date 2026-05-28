@@ -1,7 +1,5 @@
 # Charity—a Sign of True Discipleship
 
-Dallin H. Oaks
-
 By Elder Michael B. Strong - *Of the Seventy*
 
 *Given in the April session of the 2025 General Conference*
@@ -133,7 +131,3 @@ I testify that Jesus Christ is our living, glorious Savior, Redeemer, Exemplar, 
 
 [^29]: [[Moroni 7.47|Moroni 7:47]].
 
-
-
-
-#Charity #Compassion #Discipleship #Jesus_Christ #Love

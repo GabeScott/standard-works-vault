@@ -1,7 +1,5 @@
 # David, a Future Missionary
 
-Gordon B. Hinckley
-
 By Elder Darwin B. Christenson - *Of the Seventy*
 
 *Given in the April session of the 2001 General Conference*
@@ -55,4 +53,3 @@ I say these things in the name of Jesus Christ, amen.
 
 
 
-#Book_Of_Mormon #Children #Fasting #Fatherhood #Home #Jesus_Christ #Media #Motherhood #Prayer #Sin #Testimony #Word_Of_Wisdom

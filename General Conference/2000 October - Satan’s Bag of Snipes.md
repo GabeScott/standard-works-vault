@@ -1,7 +1,5 @@
 # Satan’s Bag of Snipes
 
-Gordon B. Hinckley
-
 By Bishop Richard C. Edgley - *First Counselor in the Presiding Bishopric*
 
 *Given in the October session of the 2000 General Conference*
@@ -63,4 +61,3 @@ Because of His priesthood, we are empowered. We are royalty. And we have the pow
 
 
 
-#Joy #Media #Morality #Priesthood #Prophets #Satan #Spirituality #Temptation #Truth #Word_Of_Wisdom

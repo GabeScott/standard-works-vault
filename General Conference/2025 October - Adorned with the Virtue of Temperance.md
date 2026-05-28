@@ -1,7 +1,5 @@
 # Adorned with the Virtue of Temperance
 
-Dallin H. Oaks
-
 By Elder Ulisses Soares - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2025 General Conference*
@@ -93,7 +91,3 @@ I solemnly bear my testimony that the constant pursuit of temperance purifies ou
 
 [^20]: [[D&C 19.19|Doctrine and Covenants 19:19]].
 
-
-
-
-#Adversity #Anger #Discipleship #Jesus_Christ #Patience

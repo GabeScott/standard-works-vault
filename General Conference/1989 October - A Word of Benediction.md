@@ -1,7 +1,5 @@
 # A Word of Benediction
 
-Ezra Taft Benson
-
 By President Gordon B. Hinckley - *First Counselor in the First Presidency*
 
 *Given in the October session of the 1989 General Conference*
@@ -43,4 +41,3 @@ Our prayers go with you. May there come into your minds remembrances of the wond
 
 
 
-#Prophecy

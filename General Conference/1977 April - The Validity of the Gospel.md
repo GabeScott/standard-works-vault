@@ -1,7 +1,5 @@
 # The Validity of the Gospel
 
-Spencer W. Kimball
-
 By Elder G. Homer Durham - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1977 General Conference*
@@ -29,4 +27,3 @@ This gospel contains the saving principles which will help solve the ills of the
 
 
 
-#Testimony

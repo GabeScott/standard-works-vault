@@ -1,6 +1,6 @@
 # “The Principles of My Gospel”
 
-Russell M. Nelson
+([[D&C 42.12|Doctrine and Covenants 42:12]])
 
 By Elder David A. Bednar - *Of the Quorum of the Twelve Apostles*
 
@@ -127,7 +127,3 @@ I know that the doctrine and principles of the gospel of Jesus Christ are the fo
 
 [^15]: [[D&C 123.17|Doctrine and Covenants 123:17]].
 
-
-
-
-#Church_Doctrine #Gospel #Principles #Sabbath #Standards #Truth

@@ -1,7 +1,5 @@
 # We Serve That Which We Love
 
-Marion G. Romney
-
 By Elder Marvin J. Ashton - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1981 General Conference*
@@ -69,4 +67,3 @@ May God help us to love the right, love the truth, and love areas of service tha
 
 
 
-#Family #Love

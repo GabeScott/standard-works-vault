@@ -1,7 +1,5 @@
 # Light Cleaveth unto Light
 
-Russell M. Nelson
-
 By Elder Timothy J. Dyches - *Of the Seventy*
 
 *Given in the April session of the 2021 General Conference*
@@ -139,7 +137,3 @@ I bear witness that Jesus Christ fulfilled Heavenly Father’s plan as our Savio
 
 [^29]: See [[2 Nephi 10.14|2 Nephi 10:14]].
 
-
-
-
-#Faith #Holy_Ghost #Jesus_Christ #Light_Of_Christ

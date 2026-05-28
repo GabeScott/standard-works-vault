@@ -1,7 +1,5 @@
 # A Report and a Challenge
 
-Spencer W. Kimball
-
 By President Spencer W. Kimball - *President of the Church*
 
 *Given in the October session of the 1976 General Conference*
@@ -223,4 +221,3 @@ May God bless you with His divine Spirit as you yield to the spiritual sermons o
 
 
 
-#Church_Growth #Church_History #Family #Honesty #Media #Obedience

@@ -1,7 +1,5 @@
 # Where Your Treasure Is
 
-Thomas S. Monson
-
 By Elder Michael John U. Teh - *Of the Seventy*
 
 *Given in the April session of the 2014 General Conference*
@@ -95,7 +93,3 @@ I bear testimony that our priorities, tendencies, inclinations, desires, appetit
 
 [^9]: [[2 Nephi 32.3|2 Nephi 32:3]].
 
-
-
-
-#Humility #Priorities #Worldliness

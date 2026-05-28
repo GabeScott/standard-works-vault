@@ -1,7 +1,5 @@
 # The Gospel
 
-Gordon B. Hinckley
-
 By Elder Hartman Rector, Jr. - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1985 General Conference*

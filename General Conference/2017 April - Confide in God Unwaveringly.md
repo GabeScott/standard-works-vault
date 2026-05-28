@@ -1,7 +1,5 @@
 # Confide in God Unwaveringly
 
-Bonnie H. Cordon
-
 By Elder Ulisses Soares - *Of the Presidency of the Seventy*
 
 *Given in the April session of the 2017 General Conference*
@@ -99,7 +97,3 @@ I say these things in the sacred name of Jesus Christ, amen.
 
 [^14]: “Not Now but in the Coming Years,” translated from “Agora Não, mas Logo Mais,” *Hymns* (Portuguese), no. 156.
 
-
-
-
-#Adversity #Faith #Jesus_Christ #Trust

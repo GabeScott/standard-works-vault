@@ -1,7 +1,5 @@
 # He Knows You by Name
 
-Dallin H. Oaks
-
 By Elder Clement M. Matswagothata - *Of the Seventy*
 
 *Given in the April session of the 2026 General Conference*
@@ -117,5 +115,3 @@ I testify that Jesus Christ restored His Church, *The Church of Jesus Christ of 
 
 [^18]: [[3 Nephi 25.2|3 Nephi 25:2]].
 
-
-#Adversity #Individual_Worth #Jesus_Christ

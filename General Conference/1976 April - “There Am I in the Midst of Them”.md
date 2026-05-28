@@ -1,7 +1,5 @@
 # “There Am I in the Midst of Them”
 
-Spencer W. Kimball
-
 By Elder Joseph B. Wirthlin - *Assistant to the Council of the Twelve*
 
 *Given in the April session of the 1976 General Conference*
@@ -47,4 +45,3 @@ Wherever two or three of us are gathered together, I pray that the Savior may be
 
 
 
-#Jesus_Christ #Obedience

@@ -1,7 +1,5 @@
 # LDS Hymns—Worshiping with Song
 
-Spencer W. Kimball
-
 By Elder Franklin D. Richards - *Of the Presidency of the First Quorum of the Seventy*
 
 *Given in the October session of the 1982 General Conference*
@@ -116,4 +114,3 @@ As we sing our hymns, let us be conscious of the beauty and import of each hymn,
 
 
 
-#Music

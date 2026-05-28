@@ -1,7 +1,5 @@
 # Statistical Report, 2002
 
-Gordon B. Hinckley
-
 By Presented by F. Michael Watson - *Secretary to the First Presidency*
 
 *Given in the April session of the 2003 General Conference*

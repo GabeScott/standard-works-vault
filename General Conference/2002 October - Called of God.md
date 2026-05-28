@@ -1,7 +1,5 @@
 # Called of God
 
-Gordon B. Hinckley
-
 By Elder L. Tom Perry - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2002 General Conference*
@@ -119,7 +117,3 @@ May the Lord bless us, as members of His Church, that we may realize what a bles
 
 [^13]: [[D&C 107.99|D&C 107:99–100]][[D&C 107.100|]].
 
-
-
-
-#Fatherhood #Leadership #Marriage #Priesthood

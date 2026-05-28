@@ -1,7 +1,5 @@
 # Drawing Closer to the Savior
 
-Dallin H. Oaks
-
 By Elder Neil L. Andersen - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2022 General Conference*
@@ -155,7 +153,3 @@ It is a wondrous journey to be wheat among the tares, sometimes fraught with hea
 
 [^26]: [[D&C 101.65|Doctrine and Covenants 101:65]].
 
-
-
-
-#Covenants #Discipleship #Holy_Ghost #Jesus_Christ #Second_Coming

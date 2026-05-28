@@ -1,7 +1,5 @@
 # The First Great Commandment
 
-Thomas S. Monson
-
 By Elder Jeffrey R. Holland - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2012 General Conference*
@@ -85,7 +83,3 @@ To all within the sound of my voice, the voice of Christ comes ringing down thro
 
 [^17]: [[Luke 9.62|Luke 9:62]].
 
-
-
-
-#Discipleship #Love #Loyalty

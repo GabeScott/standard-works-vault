@@ -1,7 +1,5 @@
 # As We Meet Again
 
-Richard G. Scott
-
 By President Thomas S. Monson - *President of the Church*
 
 *Given in the October session of the 2011 General Conference*
@@ -41,4 +39,3 @@ Now, brothers and sisters, it is my prayer that we may be filled with the Spirit
 
 
 
-#General_Conference #Temple_Work #Temples

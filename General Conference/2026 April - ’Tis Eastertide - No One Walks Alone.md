@@ -1,7 +1,5 @@
 # ’Tis Eastertide: No One Walks Alone
 
-Dallin H. Oaks
-
 By Elder Gerrit W. Gong - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2026 General Conference*
@@ -153,5 +151,3 @@ As we walk our dusty roads to Emmaus, He will be with us. If you see someone wal
 
 [^38]: “I Know That My Redeemer Lives,” *Hymns*, no. 136.
 
-
-#Covenants #Easter #Jesus_Christ

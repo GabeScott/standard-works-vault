@@ -1,7 +1,5 @@
 # Who’s on the Lord’s Team?
 
-Gordon B. Hinckley
-
 By Elder J. Thomas Fyans - *Of the Presidency of the First Quorum of the Seventy*
 
 *Given in the April session of the 1984 General Conference*
@@ -69,4 +67,3 @@ And as you too retire at night, your hearts and thoughts and prayers will automa
 
 
 
-#Priesthood #Scripture_Study

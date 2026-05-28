@@ -1,7 +1,5 @@
 # Teach Them Correct Principles
 
-Thomas S. Monson
-
 By Elder Boyd K. Packer - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1990 General Conference*
@@ -117,4 +115,3 @@ I could not express to you, my brethren and sisters, the depths of my feeling ab
 
 
 
-#Activation #Financial_Management #Tithing

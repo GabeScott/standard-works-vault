@@ -1,7 +1,5 @@
 # Reach Out to Our Father’s Children
 
-Marion G. Romney
-
 By Elder Jack H Goaslind, Jr. - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1981 General Conference*
@@ -87,4 +85,3 @@ Let us decide today that we will reach out in love to our families, our less act
 
 
 
-#Love

@@ -1,7 +1,5 @@
 # Decide to Decide
 
-Spencer W. Kimball
-
 By Elder Rex D. Pinegar - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1980 General Conference*
@@ -63,4 +61,3 @@ May we all make our decisions in the favorable light of the gospel of Jesus Chri
 
 
 
-#Agency #Goals

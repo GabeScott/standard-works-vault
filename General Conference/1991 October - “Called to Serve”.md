@@ -1,7 +1,5 @@
 # “Called to Serve”
 
-Gordon B. Hinckley
-
 By President Thomas S. Monson - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 1991 General Conference*
@@ -120,4 +118,3 @@ May we ever be found serving faithfully, I pray humbly in the name of Jesus Chri
 
 
 
-#Example #Leadership #Missionary_Work #Priesthood #Service

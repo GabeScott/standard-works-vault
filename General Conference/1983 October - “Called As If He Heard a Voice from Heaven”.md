@@ -1,7 +1,5 @@
 # “Called As If He Heard a Voice from Heaven”
 
-Gordon B. Hinckley
-
 By Elder Vaughn J. Featherstone - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1983 General Conference*
@@ -129,4 +127,3 @@ A great truth. They *will* be the torchbearers. May we be the watchmen. In the n
 
 
 
-#Youth

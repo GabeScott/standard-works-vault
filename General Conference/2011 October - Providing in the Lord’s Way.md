@@ -1,7 +1,5 @@
 # Providing in the Lord’s Way
 
-Richard G. Scott
-
 By President Dieter F. Uchtdorf - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 2011 General Conference*
@@ -125,7 +123,3 @@ The temporal is intertwined with the spiritual. God has given us this mortal exp
 
 [^15]: [[Isaiah 58.10|Isaiah 58:10–11]][[Isaiah 58.11|]]; see also [[Isaiah 58.7|verses 7–9]][[Isaiah 58.8|]][[Isaiah 58.9|]].
 
-
-
-
-#Love #Self-Reliance #Service #Welfare

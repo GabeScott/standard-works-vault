@@ -1,7 +1,5 @@
 # Joy through Christ
 
-Wilford G. Edling
-
 By Elder Marion D. Hanks - *Assistant to the Council of the Twelve*
 
 *Given in the April session of the 1972 General Conference*
@@ -110,4 +108,3 @@ I know that God lives. I know that Jesus is the Christ. I pray for all of us tha
 
 
 
-#Jesus_Christ #Spirituality

@@ -1,7 +1,5 @@
 # Language: A Divine Way of Communicating
 
-Spencer W. Kimball
-
 By Elder Charles A. Didier - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1979 General Conference*
@@ -53,4 +51,3 @@ Our Heavenly Father lives; his Son is Jesus Christ, our Savior and Redeemer; his
 
 
 
-#Communication

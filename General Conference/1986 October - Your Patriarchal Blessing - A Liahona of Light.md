@@ -1,7 +1,5 @@
 # Your Patriarchal Blessing: A Liahona of Light
 
-Ezra Taft Benson
-
 By President Thomas S. Monson - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 1986 General Conference*

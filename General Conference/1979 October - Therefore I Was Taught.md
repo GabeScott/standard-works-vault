@@ -1,7 +1,5 @@
 # Therefore I Was Taught
 
-Spencer W. Kimball
-
 By Elder A. Theodore Tuttle - *Of the Presidency of the First Quorum of the Seventy*
 
 *Given in the October session of the 1979 General Conference*
@@ -59,4 +57,3 @@ Some few of us may receive public acclaim for our deeds. Most of us will live ou
 
 
 
-#Family #Teaching

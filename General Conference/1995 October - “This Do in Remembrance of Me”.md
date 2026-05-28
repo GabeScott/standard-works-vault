@@ -1,7 +1,5 @@
 # “This Do in Remembrance of Me”
 
-Gordon B. Hinckley
-
 By Elder Jeffrey R. Holland - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1995 General Conference*
@@ -93,4 +91,3 @@ One request Christ made of His disciples on that night of deep anguish and grief
 
 
 
-#Atonement #Church_Meetings #Covenants #Jesus_Christ #Music #Passover #Prayer #Priesthood #Sacrament

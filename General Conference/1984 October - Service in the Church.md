@@ -1,7 +1,5 @@
 # Service in the Church
 
-Gordon B. Hinckley
-
 By Elder Spencer H. Osborn - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1984 General Conference*
@@ -43,4 +41,3 @@ I know that God lives and responds to our petition. I know that Jesus Christ is 
 
 
 
-#Duty #Humility #Service

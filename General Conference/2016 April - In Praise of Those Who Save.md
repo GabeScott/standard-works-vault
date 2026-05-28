@@ -1,7 +1,5 @@
 # In Praise of Those Who Save
 
-Cheryl A. Esplin
-
 By President Dieter F. Uchtdorf - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 2016 General Conference*
@@ -157,7 +155,3 @@ May the Lord bless you in your untiring and righteous efforts to be numbered amo
 
 [^8]: “O God, the Eternal Father,” *Hymns,* no. 175.
 
-
-
-
-#Adversity #Charity #Family #Happiness #Jesus_Christ #Joy #Love #Marriage #Pride

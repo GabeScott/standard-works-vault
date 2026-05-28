@@ -1,7 +1,5 @@
 # The Keys and Authority of the Priesthood
 
-Thomas S. Monson
-
 By Elder Dallin H. Oaks - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2014 General Conference*
@@ -103,7 +101,3 @@ I testify of the power and blessings of the priesthood of God, available for His
 
 [^16]: M. Russell Ballard, *New Era,* Apr. 2014, 4; *Liahona,* Apr. 2014, 48; see also Sheri L. Dew, *Women and the Priesthood* (2013), especially chapter 6, for a valuable elaboration of the doctrines stated here.
 
-
-
-
-#Priesthood #Women

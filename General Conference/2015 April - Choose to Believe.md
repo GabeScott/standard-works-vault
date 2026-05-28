@@ -1,7 +1,5 @@
 # Choose to Believe
 
-Cheryl A. Esplin
-
 By Elder L. Whitney Clayton - *Of the Presidency of the Seventy*
 
 *Given in the April session of the 2015 General Conference*
@@ -75,7 +73,3 @@ I testify that Jesus Christ is the source of light and hope for all of us. I pra
 
 [^6]: [[D&C 59.23|Doctrine and Covenants 59:23]].
 
-
-
-
-#Adversity #Agency #Faith #Hope #Jesus_Christ

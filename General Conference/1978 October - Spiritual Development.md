@@ -1,7 +1,5 @@
 # Spiritual Development
 
-Spencer W. Kimball
-
 By Elder M. Russell Ballard - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1978 General Conference*
@@ -55,4 +53,3 @@ I know God lives and that all men are his children. I testify that Jesus is the 
 
 
 
-#Spirituality

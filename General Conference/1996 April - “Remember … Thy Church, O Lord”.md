@@ -1,7 +1,5 @@
 # “Remember … Thy Church, O Lord”
 
-James E. Faust
-
 By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the April session of the 1996 General Conference*
@@ -43,4 +41,3 @@ Brothers and sisters, let us now return to our homes with increased resolution i
 
 
 
-#Church_Growth #Criticism #General_Conference #Jesus_Christ #Tabernacle_Choir #Truth

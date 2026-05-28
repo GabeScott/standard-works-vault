@@ -1,7 +1,5 @@
 # The Role of Righteous Women
 
-Spencer W. Kimball
-
 By President Spencer W. Kimball - *Read by his wife, Sister Camilla Kimball*
 
 *Given in the October session of the 1979 General Conference*
@@ -73,4 +71,3 @@ I know that God lives, that Jesus is his Only Begotten Son, the Redeemer of the 
 
 
 
-#Women

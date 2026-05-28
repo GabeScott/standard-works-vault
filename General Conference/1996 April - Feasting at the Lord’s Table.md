@@ -1,7 +1,5 @@
 # Feasting at the Lord’s Table
 
-James E. Faust
-
 By Elder M. Russell Ballard - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1996 General Conference*
@@ -91,7 +89,3 @@ I testify to you that Jesus is the Christ. He lives and invites everyone to part
 
 [^12]: [[Revelation 3.20|Rev. 3:20]].
 
-
-
-
-#Church_Meetings #Family #Holy_Ghost #Individual_Worth #Jesus_Christ #Love #Prophets #Spirituality #Temple_Work #Testimony #Youth

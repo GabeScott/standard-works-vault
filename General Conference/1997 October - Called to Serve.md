@@ -1,7 +1,5 @@
 # Called to Serve
 
-Gordon B. Hinckley
-
 By President Boyd K. Packer - *Acting President of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1997 General Conference*
@@ -172,7 +170,3 @@ I bear witness that the power and inspiration of calls is present in the Church.
 
 [^13]: [[D&C 76.5|D&C 76:5–6]][[D&C 76.6|]].
 
-
-
-
-#Children #Church_Callings #Home #Ordinances #Service

@@ -1,7 +1,5 @@
 # Good Shepherd, Lamb of God
 
-Ulisses Soares
-
 By Elder Gerrit W. Gong - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2019 General Conference*
@@ -201,7 +199,3 @@ I testify of Him, our perfect Good Shepherd, the perfect Lamb of God. He calls u
 
 [^49]: [[D&C 109.79|Doctrine and Covenants 109:79]].
 
-
-
-
-#Jesus_Christ

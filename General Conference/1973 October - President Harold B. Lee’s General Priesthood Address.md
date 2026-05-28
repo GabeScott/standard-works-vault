@@ -1,7 +1,5 @@
 # President Harold B. Lee’s General Priesthood Address
 
-Harold B. Lee
-
 By President Harold B. Lee - *President of the Church*
 
 *Given in the October session of the 1973 General Conference*

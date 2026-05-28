@@ -1,7 +1,5 @@
 # Benediction
 
-Gordon B. Hinckley
-
 By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the October session of the 1998 General Conference*
@@ -33,4 +31,3 @@ Let us go on rearing our children in righteousness and truth. Let us be good nei
 
 
 
-#Atonement #Children #Church_Organization #Family #General_Conference #Jesus_Christ #Preparation #Service #Temples

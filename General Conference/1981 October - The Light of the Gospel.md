@@ -1,7 +1,5 @@
 # The Light of the Gospel
 
-Gordon B. Hinckley
-
 By Elder Adney Y. Komatsu - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1981 General Conference*
@@ -110,4 +108,3 @@ My dear brothers and sisters, I bear humble testimony that I know that Jesus is 
 
 
 
-#Charity #Faith

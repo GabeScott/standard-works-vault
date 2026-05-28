@@ -1,7 +1,5 @@
 # To the Aaronic Priesthood: Preparing for the Decade of Decision
 
-Thomas S. Monson
-
 By Elder Robert D. Hales - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2007 General Conference*
@@ -69,7 +67,7 @@ I testify that your Heavenly Father knows you are here tonight. You are part of 
 
 [^7]: [[Genesis 49.3|Genesis 49:3–4]][[Genesis 49.4|]].
 
-[^8]: See [[Alma 53.1|Alma 53]].
+[^8]: See [[Alma 53.1|Alma 53]][[Alma 53.2|]][[Alma 53.3|]][[Alma 53.4|]][[Alma 53.5|]][[Alma 53.6|]][[Alma 53.7|]][[Alma 53.8|]][[Alma 53.9|]][[Alma 53.10|]][[Alma 53.11|]][[Alma 53.12|]][[Alma 53.13|]][[Alma 53.14|]][[Alma 53.15|]][[Alma 53.16|]][[Alma 53.17|]][[Alma 53.18|]][[Alma 53.19|]][[Alma 53.20|]][[Alma 53.21|]][[Alma 53.22|]][[Alma 53.23|]].
 
 [^9]: [[D&C 6.33|D&C 6:33]].
 
@@ -79,7 +77,3 @@ I testify that your Heavenly Father knows you are here tonight. You are part of 
 
 [^12]: *Hymns,* no. 251.
 
-
-
-
-#Agency #Faith #Obedience #Preparation

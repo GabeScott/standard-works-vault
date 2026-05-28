@@ -1,7 +1,5 @@
 # In the Mountain of the Lord’s House
 
-Joseph Fielding Smith
-
 By Elder LeGrand Richards - *Of the Council of the Twelve*
 
 *Given in the April session of the 1971 General Conference*
@@ -93,4 +91,3 @@ With all my heart and soul, I bear you my witness of the divinity of this work, 
 
 
 
-#House_Of_Israel

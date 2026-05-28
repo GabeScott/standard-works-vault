@@ -1,7 +1,5 @@
 # Eternal Links that Bind
 
-Spencer W. Kimball
-
 By Elder A. Theodore Tuttle - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1980 General Conference*
@@ -51,4 +49,3 @@ O God, please grant that the spirit of Elijah may fall upon the vast body of pri
 
 
 
-#Family_History #Temple_Work

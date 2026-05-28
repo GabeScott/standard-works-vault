@@ -1,7 +1,5 @@
 # “Daughter, Be of Good Comfort”
 
-Gordon B. Hinckley
-
 By Elder Wayne M. Hancock - *Of the Seventy*
 
 *Given in the October session of the 1997 General Conference*
@@ -37,4 +35,3 @@ Of Him and His invitation to love one another as He loves us, I do testify in Hi
 
 
 
-#Blessings #Children #Jesus_Christ #Testimony #Women

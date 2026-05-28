@@ -1,7 +1,5 @@
 # Your Repentance Doesn’t Burden Jesus Christ; It Brightens His Joy
 
-Dallin H. Oaks
-
 By Sister Tamara W. Runia - *First Counselor in the Young Women General Presidency*
 
 *Given in the April session of the 2025 General Conference*
@@ -106,7 +104,7 @@ Remember King Benjamin’s people, who had no more disposition to do evil but on
 
 Once, at the beach, I saw a bird flying into the wind, flapping its wings so hard, almost frenetically, but staying in the same place. Then I noticed another bird, higher up. It had caught an updraft and was floating easily, unburdened in the wind. That’s the difference between trying to do this by ourselves and turning to our Savior, letting Him lift us, with “healing in his wings.”[^25]
 
-As mission leaders in Australia, during our last visit with each missionary, we talked about [[3 Nephi 17.1|3 Nephi 17]], where the people were close to the Savior and could hear Him praying for them. We asked, “If you could hear the Savior praying for *you*, what do you think He would say?”[^26]
+As mission leaders in Australia, during our last visit with each missionary, we talked about [[3 Nephi 17.1|3 Nephi 17]][[3 Nephi 17.2|]][[3 Nephi 17.3|]][[3 Nephi 17.4|]][[3 Nephi 17.5|]][[3 Nephi 17.6|]][[3 Nephi 17.7|]][[3 Nephi 17.8|]][[3 Nephi 17.9|]][[3 Nephi 17.10|]][[3 Nephi 17.11|]][[3 Nephi 17.12|]][[3 Nephi 17.13|]][[3 Nephi 17.14|]][[3 Nephi 17.15|]][[3 Nephi 17.16|]][[3 Nephi 17.17|]][[3 Nephi 17.18|]][[3 Nephi 17.19|]][[3 Nephi 17.20|]][[3 Nephi 17.21|]][[3 Nephi 17.22|]][[3 Nephi 17.23|]][[3 Nephi 17.24|]][[3 Nephi 17.25|]], where the people were close to the Savior and could hear Him praying for them. We asked, “If you could hear the Savior praying for *you*, what do you think He would say?”[^26]
 
 To hear their answers was one of the most Spirit-filled experiences of my life. Every one of those missionaries would pause, and tears would fill their eyes as we reminded them, “Your Savior knows the degree of difficulty you’re experiencing. He’s felt it!”
 
@@ -183,7 +181,3 @@ Bathed in His light, you’ll see people all around you who have felt alone too,
 
 [^28]: From a personal letter from Vincent Alma Wood, my father, while I was attending Brigham Young University in 1979.
 
-
-
-
-#Forgiveness #Hope #Individual_Worth #Jesus_Christ #Joy #Love #Obedience #Repentance

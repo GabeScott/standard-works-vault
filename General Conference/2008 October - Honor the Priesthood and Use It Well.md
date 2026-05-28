@@ -1,7 +1,5 @@
 # Honor the Priesthood and Use It Well
 
-Thomas S. Monson
-
 By Elder Richard G. Scott - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2008 General Conference*
@@ -69,7 +67,3 @@ God will hold us accountable for how we treat His precious daughters. Therefore,
 
 [^3]: Howard W. Hunter, “To the Women of the Church,” *Ensign,* Nov. 1992, 96.
 
-
-
-
-#Marriage #Priesthood #Women #Worthiness

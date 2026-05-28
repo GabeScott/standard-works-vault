@@ -1,7 +1,5 @@
 # We Have Made Covenants with the Lord
 
-N. Eldon Tanner
-
 By Elder ElRay L. Christiansen - *Assistant to the Council of the Twelve*
 
 *Given in the October session of the 1972 General Conference*
@@ -81,4 +79,3 @@ My brothers and sisters, we are a covenant-making people. Let us also be a coven
 
 
 
-#Commandments #Covenants

@@ -1,7 +1,5 @@
 # Developing Our Talent for Spirituality
 
-Gordon B. Hinckley
-
 By Carol B. Thomas - *First Counselor in the Young Women General Presidency*
 
 *Given in the April session of the 2001 General Conference*
@@ -67,4 +65,3 @@ Now that you have learned how the Spirit works and how you as young women can us
 
 
 
-#Example #Family #Holy_Ghost #Peace #Prayer #Spirituality #Talents #Testimony #Young_Women

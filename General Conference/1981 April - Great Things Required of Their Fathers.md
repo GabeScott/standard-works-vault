@@ -1,7 +1,5 @@
 # Great Things Required of Their Fathers
 
-Marion G. Romney
-
 By President Ezra Taft Benson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1981 General Conference*
@@ -114,4 +112,3 @@ God bless all the fathers in Israel to do well the work within the walls of our 
 
 
 
-#Family

@@ -1,7 +1,5 @@
 # A Witness and a Blessing
 
-Joseph Fielding Smith
-
 By President Joseph Fielding Smith - *President of the Church*
 
 *Given in the April session of the 1971 General Conference*
@@ -43,4 +41,3 @@ And may thy Spirit be with us now and forever, I pray, in the name of the Lord J
 
 
 
-#Gratitude #Testimony

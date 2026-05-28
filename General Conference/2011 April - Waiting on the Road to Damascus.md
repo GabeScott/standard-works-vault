@@ -1,7 +1,5 @@
 # Waiting on the Road to Damascus
 
-Thomas S. Monson
-
 By President Dieter F. Uchtdorf - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 2011 General Conference*
@@ -119,7 +117,3 @@ Brothers and sisters, dear friends, let us not wait too long on *our* road to Da
 
 [^13]: [[John 20.29|John 20:29]].
 
-
-
-
-#Faith #Holy_Ghost #Service

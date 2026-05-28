@@ -1,7 +1,5 @@
 # The Resurrection of Jesus Christ
 
-Thomas S. Monson
-
 By Elder D. Todd Christofferson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2014 General Conference*
@@ -169,7 +167,3 @@ Until then, I believe the many witnesses of the Savior’s Resurrection whose ex
 
 [^39]: [[D&C 76.22|Doctrine and Covenants 76:22–23]][[D&C 76.23|]].
 
-
-
-
-#Atonement #Jesus_Christ #Justice #Resurrection

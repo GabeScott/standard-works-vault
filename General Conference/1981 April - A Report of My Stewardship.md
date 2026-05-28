@@ -1,7 +1,5 @@
 # A Report of My Stewardship
 
-Marion G. Romney
-
 By President Spencer W. Kimball - *President of the Church*
 
 *Given in the April session of the 1981 General Conference*
@@ -63,4 +61,3 @@ I know that God lives and that His Son, Jesus Christ, lives. He is our Savior an
 
 
 
-#Church_Growth

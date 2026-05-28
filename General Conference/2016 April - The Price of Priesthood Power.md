@@ -1,7 +1,5 @@
 # The Price of Priesthood Power
 
-Cheryl A. Esplin
-
 By President Russell M. Nelson - *President of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2016 General Conference*
@@ -99,7 +97,3 @@ My dear brethren, we have been given a sacred trust—the authority of God to bl
 
 [^16]: See [[D&C 45.33|Doctrine and Covenants 45:33]].
 
-
-
-
-#Authority #Divine_Nature #Prayer #Priesthood #Scripture_Study #Service #Temple_Work

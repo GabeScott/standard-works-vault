@@ -1,7 +1,5 @@
 # Closing Remarks
 
-Harold B. Lee
-
 By President Harold B. Lee - *President of the Church*
 
 *Given in the October session of the 1973 General Conference*
@@ -147,4 +145,3 @@ Peace be with you, not the peace that comes from the legislation in the halls of
 
 
 
-#Commandments #Obedience #Prophecy #Prophets #Repentance

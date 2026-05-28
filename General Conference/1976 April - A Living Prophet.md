@@ -1,7 +1,5 @@
 # A Living Prophet
 
-Spencer W. Kimball
-
 By Elder Loren C. Dunn - *Of the First Council of the Seventy*
 
 *Given in the April session of the 1976 General Conference*
@@ -55,4 +53,3 @@ I bear you my witness that that prophet today is Spencer W. Kimball. I know that
 
 
 
-#Missionary_Work #Prophets

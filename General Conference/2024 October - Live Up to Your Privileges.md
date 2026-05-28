@@ -1,7 +1,5 @@
 # Live Up to Your Privileges
 
-Henry B. Eyring
-
 By President Emily Belle Freeman - *Young Women General President*
 
 *Given in the October session of the 2024 General Conference*
@@ -147,7 +145,3 @@ Of this gift I bear witness in the name of Jesus Christ, amen.
 
 [^33]: [[D&C 84.20|Doctrine and Covenants 84:20]].
 
-
-
-
-#Covenants #Ordinances #Priesthood_Power #Sacrament #Women

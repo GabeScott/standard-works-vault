@@ -1,7 +1,5 @@
 # A Broken Heart and a Contrite Spirit
 
-Gordon B. Hinckley
-
 By Elder Bruce D. Porter - *Of the Seventy*
 
 *Given in the October session of the 2007 General Conference*
@@ -51,4 +49,3 @@ As we make the sacrifice to Him of all that we have and all that we are, the Lor
 
 
 
-#Gratitude #Repentance #Sacrifice

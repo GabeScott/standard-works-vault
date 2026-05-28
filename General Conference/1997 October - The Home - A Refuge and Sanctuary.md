@@ -1,7 +1,5 @@
 # The Home: A Refuge and Sanctuary
 
-Gordon B. Hinckley
-
 By Elder Eran A. Call - *Of the Seventy*
 
 *Given in the October session of the 1997 General Conference*
@@ -91,7 +89,3 @@ May we join with John of old who said, “I have no greater joy than to hear tha
 
 [^13]: [[3 John 1.4|3 Jn. 1:4]].
 
-
-
-
-#Children #Family #Home #Parenthood #Safety

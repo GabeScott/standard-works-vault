@@ -1,7 +1,5 @@
 # Go and Do Likewise
 
-Dallin H. Oaks
-
 By Elder James E. Evanson - *Of the Seventy*
 
 *Given in the October session of the 2025 General Conference*
@@ -149,7 +147,3 @@ Christ “went about doing good.”[^34] He ministered to the sick,[^35] gave si
 
 [^41]: See [[Matthew 25.34|Matthew 25:34]]; [[Romans 12.1|Romans 12:1]].
 
-
-
-
-#Jesus_Christ #Missionary_Service #Service

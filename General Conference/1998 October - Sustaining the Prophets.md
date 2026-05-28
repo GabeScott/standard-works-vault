@@ -1,7 +1,5 @@
 # Sustaining the Prophets
 
-Gordon B. Hinckley
-
 By Elder David B. Haight - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1998 General Conference*
@@ -68,4 +66,3 @@ It’s as simple, it’s as pure and as clean as that little, simple song. It te
 
 
 
-#Adversity #Agency #Blessings #Jesus_Christ #Joseph_Smith #Prophets

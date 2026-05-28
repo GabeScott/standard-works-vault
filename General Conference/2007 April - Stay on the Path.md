@@ -1,7 +1,5 @@
 # Stay on the Path
 
-Thomas S. Monson
-
 By Elaine S. Dalton - *Second Counselor in the Young Women General Presidency*
 
 *Given in the April session of the 2007 General Conference*
@@ -43,4 +41,3 @@ I testify that this is true. He has not only marked the way, but He has even led
 
 
 
-#Covenants #Morality #Standards

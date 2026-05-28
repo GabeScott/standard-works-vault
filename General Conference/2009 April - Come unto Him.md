@@ -1,7 +1,5 @@
 # Come unto Him
 
-Thomas S. Monson
-
 By Elder Neil L. Andersen - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2009 General Conference*
@@ -71,4 +69,3 @@ Brothers and sisters, He lives. He is resurrected. He guides His holy work upon 
 
 
 
-#Jesus_Christ #Pioneers #Testimony

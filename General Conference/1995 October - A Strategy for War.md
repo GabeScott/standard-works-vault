@@ -1,7 +1,5 @@
 # A Strategy for War
 
-Gordon B. Hinckley
-
 By Elder Durrel A. Woolsey - *Released Member of the Seventy*
 
 *Given in the October session of the 1995 General Conference*
@@ -59,4 +57,3 @@ I testify that God lives, that His Son, Jesus Christ, has brought to pass the re
 
 
 
-#Abortion #Family #Homosexuality #Jesus_Christ #Media #Morality #Spirituality #Worldliness

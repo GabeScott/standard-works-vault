@@ -1,7 +1,5 @@
 # The Road to Happiness
 
-Spencer W. Kimball
-
 By Elder Joseph Anderson - *Assistant to the Council of the Twelve*
 
 *Given in the April session of the 1975 General Conference*
@@ -73,4 +71,3 @@ The day will come when the Lord shall compensate every man according to his work
 
 
 
-#Joy

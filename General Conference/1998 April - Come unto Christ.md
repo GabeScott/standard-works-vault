@@ -1,7 +1,5 @@
 # Come unto Christ
 
-Gordon B. Hinckley
-
 By Margaret D. Nadauld - *Young Women General President*
 
 *Given in the April session of the 1998 General Conference*
@@ -61,4 +59,3 @@ I bear testimony that as we accept the invitation to come unto Christ, we will f
 
 
 
-#Jesus_Christ #Youth

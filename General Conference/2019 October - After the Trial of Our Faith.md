@@ -1,7 +1,5 @@
 # After the Trial of Our Faith
 
-Jeffrey R. Holland
-
 By Elder Jorge M. Alvarado - *Of the Seventy*
 
 *Given in the October session of the 2019 General Conference*
@@ -105,7 +103,3 @@ I bear testimony of Jesus Christ and His atoning sacrifice. I know He is our Sav
 
 [^10]: [[1 Nephi 2.16|1 Nephi 2:16]].
 
-
-
-
-#Adversity #Children #Faith #Holy_Ghost #Parenthood #Teaching

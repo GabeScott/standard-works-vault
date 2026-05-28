@@ -1,7 +1,5 @@
 # Cleansing the Inner Vessel
 
-Ezra Taft Benson
-
 By President Ezra Taft Benson - *President of the Church*
 
 *Given in the April session of the 1986 General Conference*
@@ -93,4 +91,3 @@ We can do it. I know we can. That we will do so is my prayer for all of us. God 
 
 
 
-#Book_Of_Mormon #Pride #Repentance #Spirituality

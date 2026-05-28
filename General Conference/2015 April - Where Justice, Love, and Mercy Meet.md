@@ -1,7 +1,5 @@
 # Where Justice, Love, and Mercy Meet
 
-Cheryl A. Esplin
-
 By Elder Jeffrey R. Holland - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2015 General Conference*
@@ -75,7 +73,3 @@ In the sacred name of the resurrected Lord Jesus Christ, amen.
 
 [^11]: “How Great the Wisdom and the Love,” *Hymns,* no. 195.
 
-
-
-
-#Adam_And_Eve #Atonement #Brotherhood #Fall #Jesus_Christ #Resurrection

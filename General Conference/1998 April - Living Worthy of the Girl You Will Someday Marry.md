@@ -1,7 +1,5 @@
 # Living Worthy of the Girl You Will Someday Marry
 
-Gordon B. Hinckley
-
 By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the April session of the 1998 General Conference*
@@ -99,4 +97,3 @@ God bless you, my dear young men. I could wish for you nothing more wonderful th
 
 
 
-#Anger #Education #Family #Financial_Management #Joy #Love #Loyalty #Marriage #Media #Missionary_Work #Priesthood #Profanity #Temples #Word_Of_Wisdom #Youth

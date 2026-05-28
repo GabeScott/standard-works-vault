@@ -1,7 +1,5 @@
 # Why The Church of Jesus Christ of Latter-day Saints
 
-N. Eldon Tanner
-
 By President Marion G. Romney - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 1972 General Conference*
@@ -143,4 +141,3 @@ Amen.
 
 
 
-#Joseph_Smith #Restoration #Spirituality

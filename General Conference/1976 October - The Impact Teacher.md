@@ -1,7 +1,5 @@
 # The Impact Teacher
 
-Spencer W. Kimball
-
 By Elder Vaughn J. Featherstone - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1976 General Conference*
@@ -134,4 +132,3 @@ Our youth will hear the classical music of the gospel, and if they have an impac
 
 
 
-#Teaching #Youth

@@ -1,7 +1,5 @@
 # Daughters in the Covenant
 
-Thomas S. Monson
-
 By President Henry B. Eyring - *First Counselor in the First Presidency*
 
 *Given in the April session of the 2014 General Conference*
@@ -115,7 +113,3 @@ I know that the Savior paid the price of all of our sins and that the Holy Ghost
 
 [^7]: [[Proverbs 3.5|Proverbs 3:5–6]][[Proverbs 3.6|]].
 
-
-
-
-#Baptism #Covenants #Sisterhood

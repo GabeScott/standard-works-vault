@@ -1,7 +1,5 @@
 # The Joy of the Penetrating Light
 
-Gordon B. Hinckley
-
 By Elder F. Enzio Busche - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1984 General Conference*
@@ -65,4 +63,3 @@ I say this humbly in His name, amen.
 
 
 
-#Conversion #Repentance #Truth

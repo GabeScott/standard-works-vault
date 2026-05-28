@@ -1,7 +1,5 @@
 # Sin Will Not Prevail
 
-Gordon B. Hinckley
-
 By President Gordon B. Hinckley - *First Counselor in the First Presidency*
 
 *Given in the October session of the 1992 General Conference*
@@ -27,4 +25,3 @@ Such have been the declarations of this man who stands today as the Lord’s pro
 
 
 
-#Ezra_Taft_Benson #Obedience #Prophets

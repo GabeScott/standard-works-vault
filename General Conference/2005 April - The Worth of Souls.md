@@ -1,7 +1,5 @@
 # The Worth of Souls
 
-Gordon B. Hinckley
-
 By Elder Harold G. Hillam - *Of the Seventy*
 
 *Given in the April session of the 2005 General Conference*
@@ -47,4 +45,3 @@ I pray we all might consider what we can do individually to assist those who wil
 
 
 
-#Activation #Forgiveness #Individual_Worth #Obedience

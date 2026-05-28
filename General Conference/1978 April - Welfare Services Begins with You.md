@@ -1,7 +1,5 @@
 # Welfare Services Begins with You
 
-Spencer W. Kimball
-
 By Elder A. Theodore Tuttle - *Of the Presidency of the First Quorum of the Seventy*
 
 *Given in the April session of the 1978 General Conference*
@@ -63,4 +61,3 @@ This work is divine. It will yet save and exalt us. That exaltation will come by
 
 
 
-#Welfare

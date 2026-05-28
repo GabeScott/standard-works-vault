@@ -1,7 +1,5 @@
 # The Kingdom Progresses in Africa
 
-Gordon B. Hinckley
-
 By Elder James O. Mason - *Of the Seventy*
 
 *Given in the October session of the 1994 General Conference*
@@ -49,4 +47,3 @@ Brothers and sisters, I know that my Redeemer lives and is the Savior of the wor
 
 
 
-#Church_Growth #Couple_Missionaries #Missionary_Work

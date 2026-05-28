@@ -1,7 +1,5 @@
 # “The Standard of Truth Has Been Erected”
 
-Gordon B. Hinckley
-
 By President Boyd K. Packer - *Acting President of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2003 General Conference*
@@ -203,7 +201,3 @@ God bless you millions of youth in our Church who worthily follow the patterns o
 
 [^36]: “True to the Faith,” *Hymns,* no. 254.
 
-
-
-
-#Atonement #Morality #Plan_Of_Salvation #Restoration #Standards #Truth

@@ -1,7 +1,5 @@
 # Meek and Lowly of Heart
 
-Henry B. Eyring
-
 By Elder David A. Bednar - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2018 General Conference*
@@ -181,7 +179,3 @@ I testify that Jesus Christ is our resurrected and living Redeemer. And I promis
 
 [^31]: [[Matthew 5.5|Matthew 5:5]].
 
-
-
-
-#Divine_Nature #Humility #Jesus_Christ #Meekness #Prophets

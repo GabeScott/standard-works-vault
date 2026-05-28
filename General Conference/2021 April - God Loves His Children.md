@@ -1,7 +1,5 @@
 # God Loves His Children
 
-Russell M. Nelson
-
 By Elder Taniela B. Wakolo - *Of the Seventy*
 
 *Given in the April session of the 2021 General Conference*
@@ -77,7 +75,3 @@ I conclude. Our Eternal Father and His Son, Jesus Christ, show Their love by mak
 
 [^4]: “[The Living Christ: The Testimony of the Apostles](https://www.churchofjesuschrist.org/study/scriptures/the-living-christ-the-testimony-of-the-apostles/the-living-christ-the-testimony-of-the-apostles?lang=eng),” ChurchofJesusChrist.org.
 
-
-
-
-#Atonement #Chastening #Family #God_The_Father #Jesus_Christ #Love #Prophets

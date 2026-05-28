@@ -1,7 +1,5 @@
 # “These … Were Our Examples”
 
-Gordon B. Hinckley
-
 By Elder Russell M. Nelson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1991 General Conference*
@@ -137,4 +135,3 @@ Such are lessons taught by those who “serve unto the example and shadow of hea
 
 
 
-#Dedication #Education #Example #Faith #Humility #Kindness #Love #Obedience #Patience #Preparation #Spirituality #Tabernacle_Choir #Word_Of_Wisdom

@@ -1,7 +1,5 @@
 # Teaching Children to Walk Uprightly before the Lord
 
-James E. Faust
-
 By Ruth B. Wright - *Second Counselor in the Primary General Presidency*
 
 *Given in the April session of the 1994 General Conference*
@@ -62,4 +60,3 @@ May God bless us as parents to teach our children to walk uprightly before the L
 
 
 
-#Agency #Children #Example #Home #Parenthood #Prayer #Scripture_Study

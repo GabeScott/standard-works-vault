@@ -1,7 +1,5 @@
 # The Devil’s Throat
 
-Gordon B. Hinckley
-
 By President James E. Faust - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 2003 General Conference*
@@ -81,7 +79,3 @@ Brethren, we are living in a challenging time, and it is a time for us to stand 
 
 [^9]: [[James 1.6|James 1:6]].
 
-
-
-
-#Agency #Holy_Ghost #Obedience #Temptation

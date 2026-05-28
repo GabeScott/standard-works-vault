@@ -1,7 +1,5 @@
 # Stand in Holy Places
 
-Richard G. Scott
-
 By President Thomas S. Monson - *President of the Church*
 
 *Given in the October session of the 2011 General Conference*
@@ -58,7 +56,7 @@ It may appear to you at times that those out in the world are having much more f
 
 We must be vigilant in a world which has moved so far from that which is spiritual. It is essential that we reject anything that does not conform to our standards, refusing in the process to surrender that which we desire most: eternal life in the kingdom of God. The storms will still beat at our doors from time to time, for they are an inescapable part of our existence in mortality. We, however, will be far better equipped to deal with them, to learn from them, and to overcome them if we have the gospel at our core and the love of the Savior in our hearts. The prophet Isaiah declared, “The work of righteousness shall be peace; and the effect of righteousness quietness and assurance for ever.”[^5]
 
-As a means of being *in* the world but not being *of* the world, it is necessary that we communicate with our Heavenly Father through prayer. He wants us to do so; He’ll answer our prayers. The Savior admonished us, as recorded in [[3 Nephi 18.1|3 Nephi 18]], to “watch and pray always lest ye enter into temptation; for Satan desireth to have you. …
+As a means of being *in* the world but not being *of* the world, it is necessary that we communicate with our Heavenly Father through prayer. He wants us to do so; He’ll answer our prayers. The Savior admonished us, as recorded in [[3 Nephi 18.1|3 Nephi 18]][[3 Nephi 18.2|]][[3 Nephi 18.3|]][[3 Nephi 18.4|]][[3 Nephi 18.5|]][[3 Nephi 18.6|]][[3 Nephi 18.7|]][[3 Nephi 18.8|]][[3 Nephi 18.9|]][[3 Nephi 18.10|]][[3 Nephi 18.11|]][[3 Nephi 18.12|]][[3 Nephi 18.13|]][[3 Nephi 18.14|]][[3 Nephi 18.15|]][[3 Nephi 18.16|]][[3 Nephi 18.17|]][[3 Nephi 18.18|]][[3 Nephi 18.19|]][[3 Nephi 18.20|]][[3 Nephi 18.21|]][[3 Nephi 18.22|]][[3 Nephi 18.23|]][[3 Nephi 18.24|]][[3 Nephi 18.25|]][[3 Nephi 18.26|]][[3 Nephi 18.27|]][[3 Nephi 18.28|]][[3 Nephi 18.29|]][[3 Nephi 18.30|]][[3 Nephi 18.31|]][[3 Nephi 18.32|]][[3 Nephi 18.33|]][[3 Nephi 18.34|]][[3 Nephi 18.35|]][[3 Nephi 18.36|]][[3 Nephi 18.37|]][[3 Nephi 18.38|]][[3 Nephi 18.39|]], to “watch and pray always lest ye enter into temptation; for Satan desireth to have you. …
 
 “Therefore ye must always pray unto the Father in my name;
 
@@ -125,7 +123,3 @@ What a promise! May such be our blessing, I sincerely pray in the sacred name of
 
 [^9]: [[Isaiah 41.10|Isaiah 41:10]].
 
-
-
-
-#Commandments #Prayer #Spirituality

@@ -1,7 +1,5 @@
 # Where Will This Lead?
 
-Ulisses Soares
-
 By President Dallin H. Oaks - *First Counselor in the First Presidency*
 
 *Given in the April session of the 2019 General Conference*
@@ -63,7 +61,3 @@ I testify of Jesus Christ and of the effects of His Atonement and the other trut
 
 [^2]: See Russell M. Nelson, “[As We Go Forward Together](https://www.churchofjesuschrist.org/study/liahona/2018/04/as-we-go-forward-together?lang=eng),” *Ensign* or *Liahona,* Apr. 2018, 7.
 
-
-
-
-#Agency #Plan_Of_Salvation #Sacrifice

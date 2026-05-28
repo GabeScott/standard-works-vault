@@ -1,7 +1,5 @@
 # Choosing Charity: That Good Part
 
-Gordon B. Hinckley
-
 By Bonnie D. Parkin - *Relief Society General President*
 
 *Given in the October session of the 2003 General Conference*
@@ -103,7 +101,3 @@ For this I pray, in the name of Jesus Christ, amen.
 
 [^17]: [[Moroni 7.48|Moro. 7:48]]; emphasis added.
 
-
-
-
-#Agency #Charity #Judging #Love #Service

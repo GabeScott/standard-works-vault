@@ -1,7 +1,5 @@
 # “I Will Go and Do”
 
-Thomas S. Monson
-
 By Elaine L. Jack - *Relief Society General President*
 
 *Given in the April session of the 1990 General Conference*
@@ -33,4 +31,3 @@ My counselors and I look forward eagerly to serving. And we want to serve in a w
 
 
 
-#Fellowshipping #Women #Youth

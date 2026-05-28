@@ -1,7 +1,5 @@
 # Daughters of Heavenly Father
 
-Thomas S. Monson
-
 By Susan W. Tanner - *Young Women General President*
 
 *Given in the April session of the 2007 General Conference*
@@ -55,4 +53,3 @@ In conclusion let me share an experience that is tender and even sacred to me. W
 
 
 
-#Divine_Nature #Example #Individual_Worth #Love #Unity

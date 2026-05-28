@@ -1,7 +1,5 @@
 # Let the Spirit of Oneness Prevail
 
-Joseph Fielding Smith
-
 By President Joseph Fielding Smith - *President of the Church*
 
 *Given in the October session of the 1971 General Conference*
@@ -41,4 +39,3 @@ And I pray that this may be the happy lot of all of us, in our own due time, and
 
 
 
-#Faith #Service #Unity

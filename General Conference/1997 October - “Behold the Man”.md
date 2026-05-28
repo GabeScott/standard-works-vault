@@ -1,7 +1,5 @@
 # “Behold the Man”
 
-Gordon B. Hinckley
-
 By Bishop Keith B. McMullin - *Second Counselor in the Presiding Bishopric*
 
 *Given in the October session of the 1997 General Conference*
@@ -155,7 +153,3 @@ God bless you, noble men of the Aaronic Priesthood, in the name of Jesus Christ,
 
 [^18]: Poem by Keith B. McMullin.
 
-
-
-
-#Activation #Atonement #Priesthood #Youth

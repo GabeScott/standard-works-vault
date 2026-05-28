@@ -1,7 +1,5 @@
 # To Be in the World but Not of the World
 
-Harold B. Lee
-
 By Elder James A. Cullimore - *Assistant to the Council of the Twelve*
 
 *Given in the October session of the 1973 General Conference*
@@ -97,4 +95,3 @@ May we appreciate the privilege that is ours in living in this time, in the beau
 
 
 
-#Loyalty #Standards

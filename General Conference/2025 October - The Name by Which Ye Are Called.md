@@ -1,7 +1,5 @@
 # The Name by Which Ye Are Called
 
-Dallin H. Oaks
-
 By Elder B. Corey Cuvelier - *Of the Seventy*
 
 *Given in the October session of the 2025 General Conference*
@@ -133,7 +131,3 @@ I testify that Jesus Christ lives and has redeemed us. He is the One who said, â
 
 [^34]: [[Isaiah 43.1|Isaiah 43:1]].
 
-
-
-
-#Discipleship #Jesus_Christ

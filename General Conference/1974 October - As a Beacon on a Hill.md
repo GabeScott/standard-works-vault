@@ -1,7 +1,5 @@
 # As a Beacon on a Hill
 
-Spencer W. Kimball
-
 By Bishop H. Burke Peterson - *First Counselor in the Presiding Bishopric*
 
 *Given in the October session of the 1974 General Conference*
@@ -69,4 +67,3 @@ Remember, the brightest light and the clearest signal come from the cleanest ins
 
 
 
-#Leadership #Priesthood #Responsibility #Service

@@ -1,7 +1,5 @@
 # We Can Do Better and Be Better
 
-Ulisses Soares
-
 By President Russell M. Nelson
 
 *Given in the April session of the 2019 General Conference*
@@ -99,7 +97,3 @@ We are engaged in the work of Almighty God. Jesus is the Christ. We are Their se
 
 [^17]: [[D&C 33.7|Doctrine and Covenants 33:7]].
 
-
-
-
-#Repentance

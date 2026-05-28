@@ -1,7 +1,5 @@
 # Missionary Work: A Major Responsibility
 
-Spencer W. Kimball
-
 By President Ezra Taft Benson - *President of the Council of the Twelve*
 
 *Given in the April session of the 1974 General Conference*
@@ -79,4 +77,3 @@ This great work is divine—directed by the Lord Jesus Christ through his church
 
 
 
-#Missionary_Work

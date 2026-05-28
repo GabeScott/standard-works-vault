@@ -1,7 +1,5 @@
 # Teachings of Jesus
 
-Richard G. Scott
-
 By Elder Dallin H. Oaks - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2011 General Conference*
@@ -129,7 +127,3 @@ Jesus Christ *is* the Only Begotten and Beloved Son of God. He *is* our Creator.
 
 [^1]: See Neal A. Maxwell, *A Wonderful Flood of Light* (1990), 47.
 
-
-
-
-#Atonement #Jesus_Christ #Obedience

@@ -1,7 +1,5 @@
 # Behold Your Little Ones
 
-Gordon B. Hinckley
-
 By Margaret S. Lifferth - *First Counselor in the Primary General Presidency*
 
 *Given in the October session of the 2006 General Conference*
@@ -34,7 +32,7 @@ But all of us can help. Notice the children around you, and learn their names. A
 
 Vasily is a child who spends much of his time in the streets and is not supported by his parents in his search for truth. He found a small branch of the Church in his town, and he came to every event held at the church. He also brought his three younger brothers to church, and other friends joined him in Primary. In fact, at one time, the largest Primary in that area was made up of these little boys who are not members of the Church. They were drawn to the truth, and the light of the gospel began to be reflected in their faces. They were welcomed, protected, taught, and loved by all the members of that little branch, including youth, young adults, missionaries, teachers, and priesthood leaders. Think of the children in your neighborhood or Primary class. Who are the children in your branch or ward? Is there one, like Vasily, who needs you?
 
-When I think of these little boys and children like them, I take great hope from the account of the Savior’s visit to the American continent. Remember that before the Savior’s appearance, there were tempests, earthquakes, fires, and three days of profound darkness (see [[3 Nephi 8.1|3 Nephi 8]]). I have often thought about the children who experienced these events. And I can only imagine the fear and concern in the hearts of the parents.
+When I think of these little boys and children like them, I take great hope from the account of the Savior’s visit to the American continent. Remember that before the Savior’s appearance, there were tempests, earthquakes, fires, and three days of profound darkness (see [[3 Nephi 8.1|3 Nephi 8]][[3 Nephi 8.2|]][[3 Nephi 8.3|]][[3 Nephi 8.4|]][[3 Nephi 8.5|]][[3 Nephi 8.6|]][[3 Nephi 8.7|]][[3 Nephi 8.8|]][[3 Nephi 8.9|]][[3 Nephi 8.10|]][[3 Nephi 8.11|]][[3 Nephi 8.12|]][[3 Nephi 8.13|]][[3 Nephi 8.14|]][[3 Nephi 8.15|]][[3 Nephi 8.16|]][[3 Nephi 8.17|]][[3 Nephi 8.18|]][[3 Nephi 8.19|]][[3 Nephi 8.20|]][[3 Nephi 8.21|]][[3 Nephi 8.22|]][[3 Nephi 8.23|]][[3 Nephi 8.24|]][[3 Nephi 8.25|]]). I have often thought about the children who experienced these events. And I can only imagine the fear and concern in the hearts of the parents.
 
 And then the Savior appeared and commanded the multitude “that their little children should be brought” to Him ([[3 Nephi 17.11|3 Nephi 17:11]]). How eager those parents must have been to bring their children to the Savior. And then they watched as the Savior wept over their children, blessed them one by one, prayed unto the Father for them, and called down angels to minister unto them (see [[3 Nephi 17.21|3 Nephi 17:21, 24]][[3 Nephi 17.24|]]). This account reminds us that it is the Savior who is the great protector, the ultimate teacher, and the eternal source of love and healing.
 
@@ -49,4 +47,3 @@ I love the Savior and testify of His redeeming power for me and you and for our 
 
 
 
-#Children #Love #Safety

@@ -1,7 +1,5 @@
 # Lessons from the Lord’s Prayers
 
-Thomas S. Monson
-
 By Elder Russell M. Nelson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2009 General Conference*
@@ -197,7 +195,3 @@ In our daily lives and in our own crucial hours, may we fervently apply these pr
 
 [^48]: [[D&C 65.5|D&C 65:5]].
 
-
-
-
-#Fasting #Humility #Jesus_Christ #Prayer

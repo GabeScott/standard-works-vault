@@ -1,7 +1,5 @@
 # Personal Temple Worship
 
-Thomas S. Monson
-
 By Elder David B. Haight - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1993 General Conference*
@@ -91,4 +89,3 @@ God bless us to love our ancestors and to be worthy of temple participation. I d
 
 
 
-#Family_History #Temple_Work #Temples

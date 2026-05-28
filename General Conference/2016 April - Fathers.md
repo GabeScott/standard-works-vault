@@ -1,7 +1,5 @@
 # Fathers
 
-Cheryl A. Esplin
-
 By Elder D. Todd Christofferson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2016 General Conference*
@@ -139,7 +137,3 @@ That is the ministry of fathers today. God bless and make them equal to it, in t
 
 [^23]: [[Alma 39.15|Alma 39:15–16]][[Alma 39.16|]].
 
-
-
-
-#Discipline #Education #Example #Fatherhood #Love #Marriage #Teaching

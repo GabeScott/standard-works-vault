@@ -1,7 +1,5 @@
 # The State of the Church
 
-Thomas S. Monson
-
 By President Gordon B. Hinckley - *First Counselor in the First Presidency*
 
 *Given in the April session of the 1991 General Conference*
@@ -145,4 +143,3 @@ May the Lord smile with favor upon each of you. May each of us ever be grateful 
 
 
 
-#Church_Growth #Tithing

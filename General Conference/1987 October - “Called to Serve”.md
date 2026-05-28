@@ -1,7 +1,5 @@
 # “Called to Serve”
 
-Ezra Taft Benson
-
 By Elder Robert L. Backman - *Of the Presidency of the First Quorum of the Seventy*
 
 *Given in the October session of the 1987 General Conference*
@@ -159,4 +157,3 @@ In the name of Jesus Christ, amen.
 
 
 
-#Book_Of_Mormon #Missionary_Work #Spirituality #Testimony

@@ -1,7 +1,5 @@
 # “Because I Pray for You”
 
-Ezra Taft Benson
-
 By Elder Glen L. Rudd - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1988 General Conference*
@@ -35,4 +33,3 @@ May the Lord bless us and help us all to serve Him with simple, childlike faith,
 
 
 
-#Prayer #Priesthood

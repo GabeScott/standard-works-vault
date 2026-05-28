@@ -1,7 +1,5 @@
 # Receiving by the Spirit
 
-Gordon B. Hinckley
-
 By A. Roger Merrill - *Sunday School General President*
 
 *Given in the October session of the 2006 General Conference*
@@ -65,4 +63,3 @@ In the name of Jesus Christ, amen.
 
 
 
-#Holy_Ghost #Listening #Scriptures

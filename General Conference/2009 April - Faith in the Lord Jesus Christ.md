@@ -1,7 +1,5 @@
 # Faith in the Lord Jesus Christ
 
-Thomas S. Monson
-
 By Elder Kevin W. Pearson - *Of the Seventy*
 
 *Given in the April session of the 2009 General Conference*
@@ -59,4 +57,3 @@ I humbly declare that God, our Heavenly Father, lives and loves each of us, His 
 
 
 
-#Faith #Jesus_Christ #Obedience

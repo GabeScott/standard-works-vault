@@ -1,7 +1,5 @@
 # “Hope Ya Know, We Had a Hard Time”
 
-Thomas S. Monson
-
 By Elder Quentin L. Cook - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2008 General Conference*
@@ -145,7 +143,3 @@ I, with you, am eternally grateful to Jesus Christ, the rescuer of mankind. I be
 
 [^30]: Thomas S. Monson, quoted in Gerry Avant, “Prophet’s Birthday: Milestone of 81,” *Church News,* Aug. 23, 2008, 4.
 
-
-
-
-#Adversity #Attitude #Faith #Obedience #Peace

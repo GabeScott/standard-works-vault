@@ -1,7 +1,5 @@
 # Establishing the Church: Welfare Services Missionaries Are an Important Resource
 
-Spencer W. Kimball
-
 By Elder James E. Faust - *Of the Council of the Twelve*
 
 *Given in the October session of the 1979 General Conference*
@@ -113,4 +111,3 @@ May the Lord bless us all as we seek to establish his church. May we learn how t
 
 
 
-#Welfare

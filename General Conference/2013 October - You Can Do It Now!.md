@@ -1,7 +1,5 @@
 # You Can Do It Now!
 
-Thomas S. Monson
-
 By President Dieter F. Uchtdorf - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 2013 General Conference*
@@ -111,7 +109,3 @@ My dear friends and brethren, no matter how many times you have slipped or falle
 
 [^9]: [[Colossians 3.23|Colossians 3:23]].
 
-
-
-
-#Adversity #Goals #Repentance

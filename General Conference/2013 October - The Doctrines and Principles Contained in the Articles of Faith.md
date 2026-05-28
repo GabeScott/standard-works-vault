@@ -1,7 +1,5 @@
 # The Doctrines and Principles Contained in the Articles of Faith
 
-Thomas S. Monson
-
 By Elder L. Tom Perry - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2013 General Conference*
@@ -81,4 +79,3 @@ I add my testimony to the truthfulness of the thirteen Articles of Faith in the 
 
 
 
-#Articles_Of_Faith #Priesthood #Scripture_Study

@@ -1,7 +1,5 @@
 # Strength of the Spirit
 
-Spencer W. Kimball
-
 By Elder Joseph Anderson - *Assistant to the Council of the Twelve*
 
 *Given in the April session of the 1974 General Conference*
@@ -79,4 +77,3 @@ Again may I say it is of the utmost importance that people everywhere reflect up
 
 
 
-#Holy_Ghost #Spirituality

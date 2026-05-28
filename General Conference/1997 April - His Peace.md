@@ -1,7 +1,5 @@
 # His Peace
 
-Gordon B. Hinckley
-
 By Elder Dennis E. Simmons - *Of the Seventy*
 
 *Given in the April session of the 1997 General Conference*
@@ -95,4 +93,3 @@ Jesus’ invitation is extended to all: “Come unto me, all ye that labour and 
 
 
 
-#Adversity #Holy_Ghost #Jesus_Christ #Love #Peace

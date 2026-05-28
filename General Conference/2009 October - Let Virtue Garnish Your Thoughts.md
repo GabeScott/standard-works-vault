@@ -1,7 +1,5 @@
 # Let Virtue Garnish Your Thoughts
 
-Thomas S. Monson
-
 By Bishop H. David Burton - *Presiding Bishop*
 
 *Given in the October session of the 2009 General Conference*
@@ -47,4 +45,3 @@ I testify and declare that our Heavenly Father expects His children to exercise 
 
 
 
-#Character #Example #Honesty #Virtue

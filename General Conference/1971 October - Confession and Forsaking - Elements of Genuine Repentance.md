@@ -1,7 +1,5 @@
 # Confession and Forsaking: Elements of Genuine Repentance
 
-Joseph Fielding Smith
-
 By Elder James A. Cullimore - *Assistant to the Council of the Twelve*
 
 *Given in the October session of the 1971 General Conference*
@@ -87,4 +85,3 @@ It may not be easy—the road may be long, but I leave you my witness it is the 
 
 
 
-#Bishops #Repentance

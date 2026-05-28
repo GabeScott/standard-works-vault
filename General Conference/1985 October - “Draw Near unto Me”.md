@@ -1,7 +1,5 @@
 # “Draw Near unto Me”
 
-Gordon B. Hinckley
-
 By Elder J. Thomas Fyans - *Of the Presidency of the First Quorum of the Seventy*
 
 *Given in the October session of the 1985 General Conference*

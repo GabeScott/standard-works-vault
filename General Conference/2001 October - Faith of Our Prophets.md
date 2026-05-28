@@ -1,7 +1,5 @@
 # Faith of Our Prophets
 
-Gordon B. Hinckley
-
 By Elder David B. Haight - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2001 General Conference*
@@ -55,4 +53,3 @@ God lives. I know He’s real, that He is our Father, and I know that He loves u
 
 
 
-#Brigham_Young #Church_History #Faith #Leadership

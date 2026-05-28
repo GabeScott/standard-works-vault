@@ -1,7 +1,5 @@
 # The Way
 
-Thomas S. Monson
-
 By Elder Lawrence E. Corbridge - *Of the Seventy*
 
 *Given in the October session of the 2008 General Conference*
@@ -137,7 +135,3 @@ May we have the good sense to follow Him. In His holy name, even Jesus Christ, a
 
 [^23]: [[Matthew 11.28|Matthew 11:28–30]][[Matthew 11.29|]][[Matthew 11.30|]].
 
-
-
-
-#Holy_Ghost #Jesus_Christ #Obedience

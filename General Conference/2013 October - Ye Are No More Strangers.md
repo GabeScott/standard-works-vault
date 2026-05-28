@@ -1,7 +1,5 @@
 # Ye Are No More Strangers
 
-Thomas S. Monson
-
 By Bishop Gérald Caussé - *First Counselor in the Presiding Bishopric*
 
 *Given in the October session of the 2013 General Conference*
@@ -99,7 +97,3 @@ In the name of Jesus Christ, amen.
 
 [^10]: [[Matthew 25.35|Matthew 25:35, 38, 40]][[Matthew 25.38|]][[Matthew 25.40|]].
 
-
-
-
-#Fellowshipping #Unity

@@ -1,7 +1,5 @@
 # Take the Holy Spirit as Your Guide
 
-Henry B. Eyring
-
 By Elder Larry Y. Wilson - *Of the Seventy*
 
 *Given in the April session of the 2018 General Conference*
@@ -89,7 +87,7 @@ Following the feet of the people ahead of you on the path is not enough. We cann
 
 [^12]: See [[Galatians 5.22|Galatians 5:22]].
 
-[^13]: See [[1 Nephi 8.1|1 Nephi 8]]; [[1 Nephi 12.1|12]]; [[1 Nephi 15.1|15]].
+[^13]: See [[1 Nephi 8.1|1 Nephi 8]][[1 Nephi 8.2|]][[1 Nephi 8.3|]][[1 Nephi 8.4|]][[1 Nephi 8.5|]][[1 Nephi 8.6|]][[1 Nephi 8.7|]][[1 Nephi 8.8|]][[1 Nephi 8.9|]][[1 Nephi 8.10|]][[1 Nephi 8.11|]][[1 Nephi 8.12|]][[1 Nephi 8.13|]][[1 Nephi 8.14|]][[1 Nephi 8.15|]][[1 Nephi 8.16|]][[1 Nephi 8.17|]][[1 Nephi 8.18|]][[1 Nephi 8.19|]][[1 Nephi 8.20|]][[1 Nephi 8.21|]][[1 Nephi 8.22|]][[1 Nephi 8.23|]][[1 Nephi 8.24|]][[1 Nephi 8.25|]][[1 Nephi 8.26|]][[1 Nephi 8.27|]][[1 Nephi 8.28|]][[1 Nephi 8.29|]][[1 Nephi 8.30|]][[1 Nephi 8.31|]][[1 Nephi 8.32|]][[1 Nephi 8.33|]][[1 Nephi 8.34|]][[1 Nephi 8.35|]][[1 Nephi 8.36|]][[1 Nephi 8.37|]][[1 Nephi 8.38|]]; [[1 Nephi 12.1|12]][[1 Nephi 12.2|]][[1 Nephi 12.3|]][[1 Nephi 12.4|]][[1 Nephi 12.5|]][[1 Nephi 12.6|]][[1 Nephi 12.7|]][[1 Nephi 12.8|]][[1 Nephi 12.9|]][[1 Nephi 12.10|]][[1 Nephi 12.11|]][[1 Nephi 12.12|]][[1 Nephi 12.13|]][[1 Nephi 12.14|]][[1 Nephi 12.15|]][[1 Nephi 12.16|]][[1 Nephi 12.17|]][[1 Nephi 12.18|]][[1 Nephi 12.19|]][[1 Nephi 12.20|]][[1 Nephi 12.21|]][[1 Nephi 12.22|]][[1 Nephi 12.23|]]; [[1 Nephi 15.1|15]][[1 Nephi 15.2|]][[1 Nephi 15.3|]][[1 Nephi 15.4|]][[1 Nephi 15.5|]][[1 Nephi 15.6|]][[1 Nephi 15.7|]][[1 Nephi 15.8|]][[1 Nephi 15.9|]][[1 Nephi 15.10|]][[1 Nephi 15.11|]][[1 Nephi 15.12|]][[1 Nephi 15.13|]][[1 Nephi 15.14|]][[1 Nephi 15.15|]][[1 Nephi 15.16|]][[1 Nephi 15.17|]][[1 Nephi 15.18|]][[1 Nephi 15.19|]][[1 Nephi 15.20|]][[1 Nephi 15.21|]][[1 Nephi 15.22|]][[1 Nephi 15.23|]][[1 Nephi 15.24|]][[1 Nephi 15.25|]][[1 Nephi 15.26|]][[1 Nephi 15.27|]][[1 Nephi 15.28|]][[1 Nephi 15.29|]][[1 Nephi 15.30|]][[1 Nephi 15.31|]][[1 Nephi 15.32|]][[1 Nephi 15.33|]][[1 Nephi 15.34|]][[1 Nephi 15.35|]][[1 Nephi 15.36|]].
 
 [^14]: See [[1 Nephi 8.23|1 Nephi 8:23–24]][[1 Nephi 8.24|]]; [[1 Nephi 12.17|12:17]].
 
@@ -97,7 +95,3 @@ Following the feet of the people ahead of you on the path is not enough. We cann
 
 [^16]: [[D&C 112.10|Doctrine and Covenants 112:10]].
 
-
-
-
-#Holy_Ghost #Jesus_Christ #Prayer #Repentance #Revelation

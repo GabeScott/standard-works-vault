@@ -1,7 +1,5 @@
 # “Behold, the Enemy Is Combined” (D&C 38:12)
 
-Thomas S. Monson
-
 By Elder Neal A. Maxwell - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1993 General Conference*
@@ -109,4 +107,3 @@ Yes, “the enemy is combined,” but when we are combined with the Lord’s “
 
 
 
-#Commitment #Faith #Holy_Ghost #Last_Days

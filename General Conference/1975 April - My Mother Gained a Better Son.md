@@ -1,7 +1,5 @@
 # My Mother Gained a Better Son
 
-Spencer W. Kimball
-
 By Elder Adney Y. Komatsu - *Assistant to the Council of the Twelve*
 
 *Given in the April session of the 1975 General Conference*
@@ -41,4 +39,3 @@ I bear you this witness humbly in the name of Jesus Christ. Amen.
 
 
 
-#Testimony

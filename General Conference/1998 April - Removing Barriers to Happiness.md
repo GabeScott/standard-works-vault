@@ -1,7 +1,5 @@
 # Removing Barriers to Happiness
 
-Gordon B. Hinckley
-
 By Elder Richard G. Scott - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1998 General Conference*
@@ -63,4 +61,3 @@ I testify that you will remove barriers to happiness and find greater peace as y
 
 
 
-#Church_Membership #Family #Home #Jesus_Christ #Joy #Obedience #Ordinances #Plan_Of_Salvation #Satan #Unity

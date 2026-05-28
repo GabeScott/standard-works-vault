@@ -1,7 +1,5 @@
 # Stay in the Boat and Hold On!
 
-Thomas S. Monson
-
 By Elder M. Russell Ballard - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2014 General Conference*
@@ -113,7 +111,3 @@ Brothers and sisters, stay in the boat, use your life jackets, and hold on with 
 
 [^13]: [[Galatians 6.2|Galatians 6:2]].
 
-
-
-
-#Adversity #Apostasy #Prophets

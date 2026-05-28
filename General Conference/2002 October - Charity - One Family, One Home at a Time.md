@@ -1,7 +1,5 @@
 # Charity: One Family, One Home at a Time
 
-Gordon B. Hinckley
-
 By Anne C. Pingree - *Second Counselor in the Relief Society General Presidency*
 
 *Given in the October session of the 2002 General Conference*
@@ -61,7 +59,3 @@ I leave my witness that the greatest act of charity in time and all eternity was
 
 [^8]: [[Alma 37.6|Alma 37:6]].
 
-
-
-
-#Charity #Family #Home #Love #Service #Women

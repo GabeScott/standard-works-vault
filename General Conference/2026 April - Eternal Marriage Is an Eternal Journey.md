@@ -1,7 +1,5 @@
 # Eternal Marriage Is an Eternal Journey
 
-Dallin H. Oaks
-
 By Elder Neil L. Andersen - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2026 General Conference*
@@ -127,5 +125,3 @@ I solemnly testify of this sacred promise in the name of Jesus Christ, amen.
 
 [^16]: [[Isaiah 40.28|Isaiah 40:28–29, 31]][[Isaiah 40.29|]][[Isaiah 40.31|]]; emphasis added.
 
-
-#Covenants #Love #Marriage #Sealings

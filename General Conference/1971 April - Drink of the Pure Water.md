@@ -1,7 +1,5 @@
 # Drink of the Pure Water
 
-Joseph Fielding Smith
-
 By President Loren C. Dunn - *Of the First Council of the Seventy*
 
 *Given in the April session of the 1971 General Conference*
@@ -103,4 +101,3 @@ And to this invitation I bear you my witness that I know God lives. I know he li
 
 
 
-#Testimony

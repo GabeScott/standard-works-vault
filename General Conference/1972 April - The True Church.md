@@ -1,7 +1,5 @@
 # The True Church
 
-Wilford G. Edling
-
 By Elder LeGrand Richards - *Of the Council of the Twelve*
 
 *Given in the April session of the 1972 General Conference*
@@ -117,4 +115,3 @@ That is my witness and testimony to you, and I leave it in the name of the Lord 
 
 
 
-#Church_Organization #Restoration

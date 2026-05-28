@@ -1,7 +1,5 @@
 # Following Up
 
-Thomas S. Monson
-
 By Elder M. Russell Ballard - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2014 General Conference*
@@ -117,7 +115,3 @@ It is my testimony that as we work together, seeking the one, inviting, and foll
 
 [^11]: Personal letter, Mar. 10, 2014.
 
-
-
-
-#Missionary_Work #Name_Of_Church

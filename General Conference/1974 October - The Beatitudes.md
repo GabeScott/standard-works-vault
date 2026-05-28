@@ -1,7 +1,5 @@
 # The Beatitudes
 
-Spencer W. Kimball
-
 By Elder O. Leslie Stone - *Assistant to the Council of the Twelve*
 
 *Given in the October session of the 1974 General Conference*
@@ -99,4 +97,3 @@ May his blessings be with all of us, according to our needs, is my prayer in the
 
 
 
-#Teaching

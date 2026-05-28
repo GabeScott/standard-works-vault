@@ -1,7 +1,5 @@
 # Know Thyself, Control Thyself, Give Thyself
 
-Wilford G. Edling
-
 By President Paul H. Dunn - *Of the First Council of the Seventy*
 
 *Given in the April session of the 1972 General Conference*
@@ -137,4 +135,3 @@ The Lord bless us, young brethren, to remember who we are, to control ourselves,
 
 
 
-#Attitude #Commitment #Courage #Dedication

@@ -1,7 +1,5 @@
 # Coming to Ourselves: The Sacrament, the Temple, and Sacrifice in Service
 
-Thomas S. Monson
-
 By Elder Robert D. Hales - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2012 General Conference*
@@ -93,7 +91,3 @@ I share my special witness that God so loves each one of us “that he gave his 
 
 [^16]: [[2 Nephi 1.15|2 Nephi 1:15]].
 
-
-
-
-#Sacrament #Self-Reliance #Service #Temple_Work

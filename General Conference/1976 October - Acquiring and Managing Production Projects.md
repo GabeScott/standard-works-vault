@@ -1,7 +1,5 @@
 # Acquiring and Managing Production Projects
 
-Spencer W. Kimball
-
 By Bishop H. Burke Peterson - *First Counselor in the Presiding Bishopric*
 
 *Given in the October session of the 1976 General Conference*
@@ -104,4 +102,3 @@ May the Lord bless us to do this. In the name of Jesus Christ. Amen.
 
 
 
-#Welfare

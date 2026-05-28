@@ -1,7 +1,5 @@
 # The Sustaining of Church Officers
 
-Ezra Taft Benson
-
 By President Gordon B. Hinckley - *First Counselor in the First Presidency*
 
 *Given in the October session of the 1988 General Conference*

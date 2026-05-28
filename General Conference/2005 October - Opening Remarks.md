@@ -1,7 +1,5 @@
 # Opening Remarks
 
-Gordon B. Hinckley
-
 By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the October session of the 2005 General Conference*
@@ -51,4 +49,3 @@ I pray, my brethren and sisters, that the choicest blessings of heaven may rest 
 
 
 
-#Church_Growth #Obedience #Temples

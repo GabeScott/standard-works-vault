@@ -1,7 +1,5 @@
 # Healing Your Damaged Life
 
-Gordon B. Hinckley
-
 By Elder Richard G. Scott - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1992 General Conference*
@@ -87,4 +85,3 @@ May the Lord soften your heart that you may know the things we have discussed ar
 
 
 
-#Agency #Healing #Truth

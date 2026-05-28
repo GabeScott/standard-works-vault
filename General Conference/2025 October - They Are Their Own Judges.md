@@ -1,6 +1,6 @@
 # They Are Their Own Judges
 
-Dallin H. Oaks
+([[Alma 41.7|Alma 41:7]])
 
 By Elder David A. Bednar - *Of the Quorum of the Twelve Apostles*
 
@@ -217,7 +217,3 @@ I joyfully witness that Jesus Christ is our living Savior. Alma’s promise is t
 
 [^58]: [[Alma 41.13|Alma 41:13–14]][[Alma 41.14|]].
 
-
-
-
-#Agency #Atonement #Fear #Judging #Plan_Of_Salvation

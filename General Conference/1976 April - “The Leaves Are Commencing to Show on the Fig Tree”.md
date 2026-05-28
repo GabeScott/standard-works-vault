@@ -1,7 +1,5 @@
 # “The Leaves Are Commencing to Show on the Fig Tree”
 
-Spencer W. Kimball
-
 By Elder Bernard P. Brockbank - *Assistant to the Council of the Twelve*
 
 *Given in the April session of the 1976 General Conference*
@@ -111,4 +109,3 @@ One percent would be approximately 36,000,000 and that is a multitude of potenti
 
 
 
-#Jesus_Christ #Last_Days

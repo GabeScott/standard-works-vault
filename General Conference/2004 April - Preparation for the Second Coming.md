@@ -1,7 +1,5 @@
 # Preparation for the Second Coming
 
-Gordon B. Hinckley
-
 By Elder Dallin H. Oaks - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2004 General Conference*
@@ -129,4 +127,3 @@ I testify of Jesus Christ. I testify that He shall come, as He has promised. And
 
 
 
-#Covenants #Preparation #Repentance

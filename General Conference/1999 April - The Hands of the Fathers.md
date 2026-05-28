@@ -1,7 +1,5 @@
 # The Hands of the Fathers
 
-Gordon B. Hinckley
-
 By Elder Jeffrey R. Holland - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1999 General Conference*
@@ -122,7 +120,3 @@ Fathers, this Easter weekend may we be renewed in our task as parents, bolstered
 
 [^22]: [[Mark 14.36|Mark 14:36]].
 
-
-
-
-#Children #Fatherhood #God_The_Father #Jesus_Christ

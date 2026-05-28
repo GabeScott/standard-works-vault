@@ -1,7 +1,5 @@
 # The Supernal Gift of the Atonement
 
-Ezra Taft Benson
-
 By Elder James E. Faust - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1988 General Conference*
@@ -67,4 +65,3 @@ I pray that our Savior will heal our souls, dry our tears, and create in each of
 
 
 
-#Atonement #Jesus_Christ #Plan_Of_Salvation

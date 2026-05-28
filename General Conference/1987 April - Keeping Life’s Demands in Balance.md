@@ -1,7 +1,5 @@
 # Keeping Life’s Demands in Balance
 
-Ezra Taft Benson
-
 By Elder M. Russell Ballard - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1987 General Conference*
@@ -85,4 +83,3 @@ Live every day with joy in your heart, brothers and sisters. I humbly testify th
 
 
 
-#Attitude #Goals #Priorities

@@ -1,7 +1,5 @@
 # Faith and the Oath and Covenant of the Priesthood
 
-Dieter F. Uchtdorf
-
 By President Henry B. Eyring - *First Counselor in the First Presidency*
 
 *Given in the April session of the 2008 General Conference*
@@ -109,7 +107,3 @@ I testify that God the Father lives. You have made covenants with Him. He offers
 
 [^7]: [[Alma 13.12|Alma 13:12–13]][[Alma 13.13|]].
 
-
-
-
-#Covenants #Family #Priesthood #Service

@@ -1,7 +1,5 @@
 # We Have Been There All the Time
 
-Spencer W. Kimball
-
 By Elder Paul H. Dunn - *Of the Presidency of the First Quorum of the Seventy*
 
 *Given in the October session of the 1977 General Conference*
@@ -71,4 +69,3 @@ You remember what President Kimball said: “Prevention is far better than redem
 
 
 
-#Family #Love

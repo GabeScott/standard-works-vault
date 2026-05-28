@@ -1,7 +1,5 @@
 # Live True to the Faith
 
-Thomas S. Monson
-
 By Elder William R. Walker - *Of the Seventy*
 
 *Given in the April session of the 2014 General Conference*
@@ -93,4 +91,3 @@ It is the desire of my heart that, along with my children and grandchildren, we 
 
 
 
-#Conversion #Faith #Family_History #Pioneers #Prophets #Temples

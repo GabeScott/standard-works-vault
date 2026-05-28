@@ -1,7 +1,5 @@
 # Love Is Spoken Here
 
-David A. Bednar
-
 By Elder Gerrit W. Gong - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2023 General Conference*
@@ -101,7 +99,3 @@ In God’s plan, we will each transition one day from this life into the next li
 
 [^9]: [[Matthew 16.25|Matthew 16:25–26]][[Matthew 16.26|]]; see also [[Matthew 10.39|Matthew 10:39–40]][[Matthew 10.40|]]; [[Mark 8.35|Mark 8:35–36]][[Mark 8.36|]]; [[Luke 9.24|Luke 9:24–25]][[Luke 9.25|]]; [[Luke 17.33|17:33]]; [[John 12.25|John 12:25]].
 
-
-
-
-#Belonging #Church_Callings #Covenants #Jesus_Christ #Love #Reverence #Service #Unity

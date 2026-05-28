@@ -1,7 +1,5 @@
 # The Book of Mormon—a Book from God
 
-Richard G. Scott
-
 By Elder Tad R. Callister - *Of the Presidency of the Seventy*
 
 *Given in the October session of the 2011 General Conference*
@@ -75,7 +73,3 @@ I too have read every page of the Book of Mormon, again and again, and I bear my
 
 [^2]: C. S. Lewis, *Mere Christianity* (1952), 40–41.
 
-
-
-
-#Bible #Book_Of_Mormon #Testimony

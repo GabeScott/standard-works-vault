@@ -1,7 +1,5 @@
 # The Spirit of Relief Society
 
-Thomas S. Monson
-
 By President Thomas S. Monson - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 1992 General Conference*
@@ -119,7 +117,3 @@ In the name of the Prince of Peace, Jesus Christ the Lord, amen.
 
 [^6]: “Gifts,” in *The Complete Writings of Ralph Waldo Emerson* (New York: Wm. H. Wise and Co., 1929), p. 286.
 
-
-
-
-#Home #Relief_Society #Service #Talents

@@ -1,7 +1,5 @@
 # The Power of the Book of Mormon in Conversion
 
-Russell M. Nelson
-
 By Elder Benjamin M. Z. Tai - *Of the Seventy*
 
 *Given in the April session of the 2020 General Conference*
@@ -71,7 +69,7 @@ Dear friends, the Book of Mormon is the word of God, and we will draw nearer to 
 
 [^9]: See [[2 Nephi 25.7|2 Nephi 25:7]]; [[2 Nephi 31.2|31:2–3]][[2 Nephi 31.3|]].
 
-[^10]: See [[2 Nephi 2.25|2 Nephi 2:25]]; [[Alma 40.1|Alma 40]].
+[^10]: See [[2 Nephi 2.25|2 Nephi 2:25]]; [[Alma 40.1|Alma 40]][[Alma 40.2|]][[Alma 40.3|]][[Alma 40.4|]][[Alma 40.5|]][[Alma 40.6|]][[Alma 40.7|]][[Alma 40.8|]][[Alma 40.9|]][[Alma 40.10|]][[Alma 40.11|]][[Alma 40.12|]][[Alma 40.13|]][[Alma 40.14|]][[Alma 40.15|]][[Alma 40.16|]][[Alma 40.17|]][[Alma 40.18|]][[Alma 40.19|]][[Alma 40.20|]][[Alma 40.21|]][[Alma 40.22|]][[Alma 40.23|]][[Alma 40.24|]][[Alma 40.25|]][[Alma 40.26|]].
 
 [^11]: See [[Isaiah 29.4|Isaiah 29:4, 11–18]][[Isaiah 29.11|]][[Isaiah 29.12|]][[Isaiah 29.13|]][[Isaiah 29.14|]][[Isaiah 29.15|]][[Isaiah 29.16|]][[Isaiah 29.17|]][[Isaiah 29.18|]]; [[Ezekiel 37.16|Ezekiel 37:16–21]][[Ezekiel 37.17|]][[Ezekiel 37.18|]][[Ezekiel 37.19|]][[Ezekiel 37.20|]][[Ezekiel 37.21|]]; [[2 Corinthians 13.1|2 Corinthians 13:1]]; [[1 Nephi 13.38|1 Nephi 13:38–42]][[1 Nephi 13.39|]][[1 Nephi 13.40|]][[1 Nephi 13.41|]][[1 Nephi 13.42|]]; [[2 Nephi 3.12|2 Nephi 3:12]]; [[2 Nephi 25.26|25:26]].
 
@@ -85,7 +83,7 @@ Dear friends, the Book of Mormon is the word of God, and we will draw nearer to 
 
 [^16]: [[James 1.22|James 1:22]].
 
-[^17]: See [[2 Nephi 31.1|2 Nephi 31]]; [[3 Nephi 11.31|3 Nephi 11:31–40]][[3 Nephi 11.32|]][[3 Nephi 11.33|]][[3 Nephi 11.34|]][[3 Nephi 11.35|]][[3 Nephi 11.36|]][[3 Nephi 11.37|]][[3 Nephi 11.38|]][[3 Nephi 11.39|]][[3 Nephi 11.40|]]; [[3 Nephi 27.13|27:13–22]][[3 Nephi 27.14|]][[3 Nephi 27.15|]][[3 Nephi 27.16|]][[3 Nephi 27.17|]][[3 Nephi 27.18|]][[3 Nephi 27.19|]][[3 Nephi 27.20|]][[3 Nephi 27.21|]][[3 Nephi 27.22|]].
+[^17]: See [[2 Nephi 31.1|2 Nephi 31]][[2 Nephi 31.2|]][[2 Nephi 31.3|]][[2 Nephi 31.4|]][[2 Nephi 31.5|]][[2 Nephi 31.6|]][[2 Nephi 31.7|]][[2 Nephi 31.8|]][[2 Nephi 31.9|]][[2 Nephi 31.10|]][[2 Nephi 31.11|]][[2 Nephi 31.12|]][[2 Nephi 31.13|]][[2 Nephi 31.14|]][[2 Nephi 31.15|]][[2 Nephi 31.16|]][[2 Nephi 31.17|]][[2 Nephi 31.18|]][[2 Nephi 31.19|]][[2 Nephi 31.20|]][[2 Nephi 31.21|]]; [[3 Nephi 11.31|3 Nephi 11:31–40]][[3 Nephi 11.32|]][[3 Nephi 11.33|]][[3 Nephi 11.34|]][[3 Nephi 11.35|]][[3 Nephi 11.36|]][[3 Nephi 11.37|]][[3 Nephi 11.38|]][[3 Nephi 11.39|]][[3 Nephi 11.40|]]; [[3 Nephi 27.13|27:13–22]][[3 Nephi 27.14|]][[3 Nephi 27.15|]][[3 Nephi 27.16|]][[3 Nephi 27.17|]][[3 Nephi 27.18|]][[3 Nephi 27.19|]][[3 Nephi 27.20|]][[3 Nephi 27.21|]][[3 Nephi 27.22|]].
 
 [^18]: See [[1 Nephi 3.7|1 Nephi 3:7]]; [[Moroni 7.33|Moroni 7:33]].
 
@@ -119,7 +117,3 @@ Dear friends, the Book of Mormon is the word of God, and we will draw nearer to 
 
 [^33]: See [[2 Corinthians 5.17|2 Corinthians 5:17]]; [[Mosiah 3.19|Mosiah 3:19]]; [[Mosiah 5.2|5:2]]; [[Alma 5.14|Alma 5:14, 19]][[Alma 5.19|]].
 
-
-
-
-#Book_Of_Mormon #Conversion

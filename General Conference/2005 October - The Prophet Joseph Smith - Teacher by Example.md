@@ -1,7 +1,5 @@
 # The Prophet Joseph Smith: Teacher by Example
 
-Gordon B. Hinckley
-
 By President Thomas S. Monson - *First Counselor in the First Presidency*
 
 *Given in the October session of the 2005 General Conference*
@@ -99,7 +97,3 @@ I testify of this solemn truth, in the name of Jesus Christ, amen.
 
 [^10]: “Praise to the Man,” *Hymns,* no. 27.
 
-
-
-
-#Courage #Dedication #Example #Faith #Honesty #Joseph_Smith #Love #Missionary_Work #Patience #Teaching

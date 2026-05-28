@@ -1,7 +1,5 @@
 # Finding Joy in the Journey
 
-Thomas S. Monson
-
 By President Thomas S. Monson - *President of the Church*
 
 *Given in the October session of the 2008 General Conference*
@@ -143,7 +141,3 @@ Brothers and sisters, my sincere prayer is that we may adapt to the changes in o
 
 [^17]: [[D&C 11.6|D&C 11:6]].
 
-
-
-
-#Gratitude #Jesus_Christ #Joy #Opposition

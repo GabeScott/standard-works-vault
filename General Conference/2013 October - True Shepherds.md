@@ -1,7 +1,5 @@
 # True Shepherds
 
-Thomas S. Monson
-
 By President Thomas S. Monson - *President of the Church*
 
 *Given in the October session of the 2013 General Conference*
@@ -103,7 +101,3 @@ I speak of the Master Teacher, even Jesus Christ, the Son of God, the Savior and
 
 [^12]: [[Acts 10.38|Acts 10:38]].
 
-
-
-
-#Home_Teaching

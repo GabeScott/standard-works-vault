@@ -1,7 +1,5 @@
 # Come, Know the Lord Jesus
 
-Spencer W. Kimball
-
 By Elder Bruce R. McConkie - *Of the Council of the Twelve*
 
 *Given in the April session of the 1977 General Conference*
@@ -103,4 +101,3 @@ In the name of the Lord Jesus Christ, amen.
 
 
 
-#Jesus_Christ

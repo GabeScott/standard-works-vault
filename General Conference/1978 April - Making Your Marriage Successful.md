@@ -1,7 +1,5 @@
 # Making Your Marriage Successful
 
-Spencer W. Kimball
-
 By Elder O. Leslie Stone - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1978 General Conference*
@@ -97,4 +95,3 @@ May our Heavenly Father bless you abundantly in your efforts to make your marria
 
 
 
-#Marriage

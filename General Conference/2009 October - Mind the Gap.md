@@ -1,7 +1,5 @@
 # Mind the Gap
 
-Thomas S. Monson
-
 By Barbara Thompson - *Second Counselor in the Relief Society General Presidency*
 
 *Given in the October session of the 2009 General Conference*
@@ -115,7 +113,3 @@ My dear sisters, I love you. I know the Savior lives. I know He loves each one o
 
 [^13]: See [[D&C 76.22|D&C 76:22]].
 
-
-
-
-#Divine_Nature #Relief_Society #Testimony #Young_Women

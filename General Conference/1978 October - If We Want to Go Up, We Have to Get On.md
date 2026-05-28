@@ -1,7 +1,5 @@
 # If We Want to Go Up, We Have to Get On
 
-Spencer W. Kimball
-
 By Elaine Cannon - *Young Women General President*
 
 *Given in the October session of the 1978 General Conference*
@@ -37,4 +35,3 @@ As each challenge comes to us in life, and as our timetable varies a little from
 
 
 
-#Obedience #Prophets #Women

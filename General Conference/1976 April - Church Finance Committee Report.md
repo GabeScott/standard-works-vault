@@ -1,7 +1,5 @@
 # Church Finance Committee Report
 
-Spencer W. Kimball
-
 By Presented by Wilford G. Edling
 
 *Given in the April session of the 1976 General Conference*

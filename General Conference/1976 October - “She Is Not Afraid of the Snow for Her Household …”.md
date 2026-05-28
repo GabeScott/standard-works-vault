@@ -1,7 +1,5 @@
 # “She Is Not Afraid of the Snow for Her Household …”
 
-Spencer W. Kimball
-
 By Barbara B. Smith - *Relief Society General President*
 
 *Given in the October session of the 1976 General Conference*

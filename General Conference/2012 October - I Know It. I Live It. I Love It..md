@@ -1,7 +1,5 @@
 # I Know It. I Live It. I Love It.
 
-Thomas S. Monson
-
 By Ann M. Dibb - *Second Counselor in the Young Women General Presidency*
 
 *Given in the October session of the 2012 General Conference*
@@ -73,7 +71,3 @@ I have a testimony of our Heavenly Father’s great plan of eternal happiness. I
 
 [^9]: Personal correspondence.
 
-
-
-
-#Commitment #Obedience

@@ -1,7 +1,5 @@
 # “Witnesses unto Me”
 
-Gordon B. Hinckley
-
 By Elder Jeffrey R. Holland - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2001 General Conference*
@@ -91,7 +89,3 @@ Like all prophets and apostles, the Prophet Joseph Smith understood the deep mea
 
 [^13]: See [[Jeremiah 16.14|Jer. 16:14–16]][[Jeremiah 16.15|]][[Jeremiah 16.16|]].
 
-
-
-
-#Activation #Couple_Missionaries #Duty #Example #Holy_Ghost #Love #Missionary_Work #Obedience #Prayer #Sacrifice

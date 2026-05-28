@@ -1,7 +1,5 @@
 # That We May All Sit Down in Heaven Together
 
-Gordon B. Hinckley
-
 By Kathleen H. Hughes - *First Counselor in the Relief Society General Presidency*
 
 *Given in the October session of the 2005 General Conference*
@@ -59,7 +57,3 @@ I bear testimony of the Savior, that He lives and that He loves us. He knows wha
 
 [^6]: [[Alma 26.3|Alma 26:3]].
 
-
-
-
-#Covenants #Love #Relief_Society #Service

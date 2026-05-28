@@ -1,7 +1,5 @@
 # Gospel Teaching
 
-Gordon B. Hinckley
-
 By Elder Dallin H. Oaks - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1999 General Conference*
@@ -111,7 +109,3 @@ I testify that this is God’s work, and that we are His servants with the sacre
 
 [^10]: *The Teachings of Harold B. Lee,* ed. Clyde J. Williams (1996), 461.
 
-
-
-
-#Curriculum #Faith #False_Doctrines #Family #Holy_Ghost #Home #Leadership #Love #Parenthood #Success

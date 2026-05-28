@@ -1,7 +1,5 @@
 # The Responsibility of Young Aaronic Priesthood Bearers
 
-Marion G. Romney
-
 By Elder David B. Haight - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1981 General Conference*
@@ -163,4 +161,3 @@ We were part of the Church and the Church was part of us. We knew it; we felt it
 
 
 
-#Example #Priesthood

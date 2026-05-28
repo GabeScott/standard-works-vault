@@ -1,7 +1,5 @@
 # The Annual Report of the Church
 
-Wilford G. Edling
-
 By 
 
 *Given in the April session of the 1972 General Conference*

@@ -1,7 +1,5 @@
 # Welcome to the Church of Joy
 
-Henry B. Eyring
-
 By Elder Patrick Kearon - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2024 General Conference*
@@ -117,7 +115,3 @@ Welcome to the church of joy! In the name of Jesus Christ, amen.
 
 [^15]: [[Alma 26.35|Alma 26:35–37]][[Alma 26.36|]][[Alma 26.37|]].
 
-
-
-
-#Hymns #Jesus_Christ #Joy #Reverence #Sacrament #Sacrament_Meeting #Worship

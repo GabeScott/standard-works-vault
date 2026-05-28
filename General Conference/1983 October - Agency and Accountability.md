@@ -1,7 +1,5 @@
 # Agency and Accountability
 
-Gordon B. Hinckley
-
 By Elaine Cannon - *Young Women General President*
 
 *Given in the October session of the 1983 General Conference*
@@ -59,4 +57,3 @@ Let’s do it! In the name of Jesus Christ, amen.
 
 
 
-#Agency

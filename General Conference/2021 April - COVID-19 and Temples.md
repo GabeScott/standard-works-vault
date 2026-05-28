@@ -1,7 +1,5 @@
 # COVID-19 and Temples
 
-Russell M. Nelson
-
 By President Russell M. Nelson - *President of The Church of Jesus Christ of Latter-day Saints*
 
 *Given in the April session of the 2021 General Conference*
@@ -41,4 +39,3 @@ As we close this conference, we again express our love for you. We pray that God
 
 
 
-#Blessings #Covenants #Temple_Work #Temples

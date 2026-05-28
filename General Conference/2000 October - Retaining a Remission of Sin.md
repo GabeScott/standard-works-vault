@@ -1,7 +1,5 @@
 # Retaining a Remission of Sin
 
-Gordon B. Hinckley
-
 By Elder Keith Crockett - *Of the Seventy*
 
 *Given in the October session of the 2000 General Conference*
@@ -57,7 +55,3 @@ May God grant that we, too, may retain a remission of our sins. I testify that G
 
 [^5]: “The Living Christ: The Testimony of the Apostles,” *Ensign,* Apr. 2000, 2–3.
 
-
-
-
-#Children #Conscience #Faith #Forgiveness #Humility #Jesus_Christ #Missionary_Work #Obedience #Peace #Plan_Of_Salvation #Prayer #Repentance #Sin #Spirituality #Temptation #Testimony

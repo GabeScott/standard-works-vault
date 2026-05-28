@@ -1,7 +1,5 @@
 # The True Way of Life and Salvation
 
-Spencer W. Kimball
-
 By President Spencer W. Kimball - *President of the Church*
 
 *Given in the April session of the 1978 General Conference*
@@ -141,4 +139,3 @@ I bear testimony to this, the divinity of this cause, the truth of this church, 
 
 
 
-#Abuse #Family #Family_History #Jesus_Christ #Self-Reliance #Women

@@ -1,7 +1,5 @@
 # One Lord, One Faith, One Baptism
 
-Spencer W. Kimball
-
 By Elder LeGrand Richards - *Of the Council of the Twelve*
 
 *Given in the April session of the 1975 General Conference*
@@ -81,4 +79,3 @@ We have that restitution of all things and no one can believe that Peter was a p
 
 
 
-#Apostasy #Missionary_Work #Restoration

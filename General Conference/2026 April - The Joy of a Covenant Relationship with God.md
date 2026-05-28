@@ -1,7 +1,5 @@
 # The Joy of a Covenant Relationship with God
 
-Dallin H. Oaks
-
 By Elder Thierry K. Mutombo - *Of the Seventy*
 
 *Given in the April session of the 2026 General Conference*
@@ -101,5 +99,3 @@ Christ is risen. Truly, He is risen. In the name of Jesus Christ, amen.
 
 [^13]: See [[Mosiah 3.19|Mosiah 3:19.]]
 
-
-#Adversity #Covenants #Discipleship #Jesus_Christ #Joy #Love

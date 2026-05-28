@@ -1,7 +1,5 @@
 # The Beauty of Holiness
 
-Bonnie H. Cordon
-
 By Carol F. McConkie - *First Counselor in the Young Women General Presidency*
 
 *Given in the April session of the 2017 General Conference*
@@ -117,7 +115,3 @@ Heavenly Father has given each of us the capacity to become holy. May we do our 
 
 [^27]: [[Mosiah 4.2|Mosiah 4:2]].
 
-
-
-
-#Atonement #Covenants #Divine_Nature #Holy_Ghost #Jesus_Christ

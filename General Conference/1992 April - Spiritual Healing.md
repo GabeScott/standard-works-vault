@@ -1,7 +1,5 @@
 # Spiritual Healing
 
-Thomas S. Monson
-
 By Elder James E. Faust - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1992 General Conference*
@@ -79,4 +77,3 @@ In the celestial glory, we are told, “God shall wipe away all tears from their
 
 
 
-#Healing #Holy_Ghost #Sacrament

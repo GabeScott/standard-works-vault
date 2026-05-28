@@ -1,7 +1,5 @@
 # The Way of Life
 
-Spencer W. Kimball
-
 By President Marion G. Romney - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 1976 General Conference*
@@ -119,4 +117,3 @@ That we may all know by the witness of the Holy Spirit where we came from, why w
 
 
 
-#Commandments #Plan_Of_Salvation

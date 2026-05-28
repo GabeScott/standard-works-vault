@@ -1,7 +1,5 @@
 # Instruments to Accomplish His Purposes
 
-Thomas S. Monson
-
 By Barbara W. Winder - *Recently Released as Relief Society General President*
 
 *Given in the April session of the 1990 General Conference*
@@ -61,4 +59,3 @@ May we all feel his strength as we seek to serve him. In the name of Jesus Chris
 
 
 
-#Fellowshipping #Service

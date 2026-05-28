@@ -1,7 +1,5 @@
 # An Ensign to the Nations
 
-Ezra Taft Benson
-
 By President Gordon B. Hinckley - *First Counselor in the First Presidency*
 
 *Given in the October session of the 1989 General Conference*
@@ -115,4 +113,3 @@ While grubbing the sagebrush of these western valleys to lay the foundations for
 
 
 
-#Commitment #Example #Missionary_Work #Plan_Of_Salvation #Responsibility

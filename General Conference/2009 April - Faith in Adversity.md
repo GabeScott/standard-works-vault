@@ -1,7 +1,5 @@
 # Faith in Adversity
 
-Thomas S. Monson
-
 By Elder Rafael E. Pino - *Of the Seventy*
 
 *Given in the April session of the 2009 General Conference*
@@ -73,4 +71,3 @@ I bear solemn witness that Jesus is the Christ, our Savior and Redeemer. He dire
 
 
 
-#Adversity #Faith #Holy_Ghost

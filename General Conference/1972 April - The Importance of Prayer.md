@@ -1,7 +1,5 @@
 # The Importance of Prayer
 
-Wilford G. Edling
-
 By Elder Franklin D. Richards - *Assistant to the Council of the Twelve*
 
 *Given in the April session of the 1972 General Conference*
@@ -105,4 +103,3 @@ May the choice blessings of our Father in heaven attend you, I humbly pray in th
 
 
 
-#Prayer

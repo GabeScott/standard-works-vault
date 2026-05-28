@@ -1,7 +1,5 @@
 # The Bishop—Center Stage in Welfare
 
-Spencer W. Kimball
-
 By Elder Thomas S. Monson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1980 General Conference*
@@ -118,4 +116,3 @@ In the name of Jesus Christ, amen.
 
 
 
-#Charity #Welfare

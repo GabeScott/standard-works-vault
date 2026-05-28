@@ -1,7 +1,5 @@
 # Joseph Smith: Prophet to Our Generation
 
-Gordon B. Hinckley
-
 By President Ezra Taft Benson - *President of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1981 General Conference*
@@ -131,4 +129,3 @@ As God lives, I know these things are true and bear this witness to you, in the 
 
 
 
-#Joseph_Smith #Restoration

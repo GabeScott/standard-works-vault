@@ -1,7 +1,5 @@
 # Sacrifice
 
-Thomas S. Monson
-
 By Elder Dallin H. Oaks - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2012 General Conference*
@@ -109,7 +107,3 @@ I know that Jesus Christ is the Only Begotten Son of God the Eternal Father. I k
 
 [^13]: *Lectures on Faith* (1985), 69.
 
-
-
-
-#Missionary_Work #Sacrifice #Service #Temple_Work

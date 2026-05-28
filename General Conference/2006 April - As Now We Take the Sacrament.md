@@ -1,7 +1,5 @@
 # As Now We Take the Sacrament
 
-Robert D. Hales
-
 By Elder L. Tom Perry - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2006 General Conference*
@@ -101,4 +99,3 @@ May there be instilled in each of us an increased reverence for the Sabbath. May
 
 
 
-#Covenants #Priesthood #Sacrament

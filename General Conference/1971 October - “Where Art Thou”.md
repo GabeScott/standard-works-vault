@@ -1,7 +1,5 @@
 # “Where Art Thou?”
 
-Joseph Fielding Smith
-
 By President N. Eldon Tanner - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 1971 General Conference*
@@ -135,4 +133,3 @@ I appeal to each member of the Church to ask himself: Where am I? Am I ashamed s
 
 
 
-#Blessings #Commandments #Obedience #Temptation

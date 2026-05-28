@@ -1,7 +1,5 @@
 # “Come Home, Felila”
 
-Spencer W. Kimball
-
 By Elder John H. Groberg - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1978 General Conference*
@@ -73,4 +71,3 @@ Oh, may we all have a little Felila in our lives—and there are so many: the re
 
 
 
-#Disabilities #Faith

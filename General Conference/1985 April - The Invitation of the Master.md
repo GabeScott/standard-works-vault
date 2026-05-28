@@ -1,7 +1,5 @@
 # The Invitation of the Master
 
-Gordon B. Hinckley
-
 By Elder John Sonnenberg - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1985 General Conference*
@@ -43,4 +41,3 @@ My beloved brothers and sisters, I testify that the Book of Mormon is true, that
 
 
 
-#Missionary_Work

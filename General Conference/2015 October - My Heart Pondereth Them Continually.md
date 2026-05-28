@@ -1,7 +1,5 @@
 # My Heart Pondereth Them Continually
 
-Rosemary M. Wixom
-
 By Devin G. Durrant - *First Counselor in the Sunday School General Presidency*
 
 *Given in the October session of the 2015 General Conference*
@@ -145,7 +143,3 @@ Remember the words of Jesus Christ when He said, “Do the things which ye have 
 
 [^18]: [[2 Nephi 31.12|2 Nephi 31:12]]; see also [[3 Nephi 27.21|3 Nephi 27:21]].
 
-
-
-
-#Financial_Management #Scripture_Study #Scriptures

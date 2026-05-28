@@ -1,7 +1,5 @@
 # Brethren, We Have Work to Do
 
-Thomas S. Monson
-
 By Elder D. Todd Christofferson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2012 General Conference*
@@ -52,7 +50,7 @@ In April 2009 former Presiding Bishopric counselor Richard C. Edgley told the st
 
 “They shared their ideas with Phil; then they shared their plan with the members of their quorum. The barn was cleaned and renovated, the tools gathered, and all was put in order. Phil’s Auto was a success and eventually moved to better and more permanent quarters—all because his quorum brothers offered help in a time of crisis.”[^8]
 
-Of course, as has been repeated by prophets over the years, “The most important of the Lord’s work you will ever do will be within the walls of your own homes.”[^9] We have much to do to strengthen marriage in societies that increasingly trivialize its importance and purpose. We have much to do to teach our children “to pray, and to walk uprightly before the Lord” ([[D&C 68.28|D&C 68:28]]). Our task is nothing less than to help our children experience the mighty change of heart or conversion to the Lord spoken of so eloquently in the Book of Mormon (see [[Mosiah 5.1|Mosiah 5:1–12]][[Mosiah 5.2|]][[Mosiah 5.3|]][[Mosiah 5.4|]][[Mosiah 5.5|]][[Mosiah 5.6|]][[Mosiah 5.7|]][[Mosiah 5.8|]][[Mosiah 5.9|]][[Mosiah 5.10|]][[Mosiah 5.11|]][[Mosiah 5.12|]]; [[Alma 26.1|Alma 26]]). Together with the Relief Society, priesthood quorums can build up parents and marriages, and quorums can provide the blessings of the priesthood to single-parent families.
+Of course, as has been repeated by prophets over the years, “The most important of the Lord’s work you will ever do will be within the walls of your own homes.”[^9] We have much to do to strengthen marriage in societies that increasingly trivialize its importance and purpose. We have much to do to teach our children “to pray, and to walk uprightly before the Lord” ([[D&C 68.28|D&C 68:28]]). Our task is nothing less than to help our children experience the mighty change of heart or conversion to the Lord spoken of so eloquently in the Book of Mormon (see [[Mosiah 5.1|Mosiah 5:1–12]][[Mosiah 5.2|]][[Mosiah 5.3|]][[Mosiah 5.4|]][[Mosiah 5.5|]][[Mosiah 5.6|]][[Mosiah 5.7|]][[Mosiah 5.8|]][[Mosiah 5.9|]][[Mosiah 5.10|]][[Mosiah 5.11|]][[Mosiah 5.12|]]; [[Alma 26.1|Alma 26]][[Alma 26.2|]][[Alma 26.3|]][[Alma 26.4|]][[Alma 26.5|]][[Alma 26.6|]][[Alma 26.7|]][[Alma 26.8|]][[Alma 26.9|]][[Alma 26.10|]][[Alma 26.11|]][[Alma 26.12|]][[Alma 26.13|]][[Alma 26.14|]][[Alma 26.15|]][[Alma 26.16|]][[Alma 26.17|]][[Alma 26.18|]][[Alma 26.19|]][[Alma 26.20|]][[Alma 26.21|]][[Alma 26.22|]][[Alma 26.23|]][[Alma 26.24|]][[Alma 26.25|]][[Alma 26.26|]][[Alma 26.27|]][[Alma 26.28|]][[Alma 26.29|]][[Alma 26.30|]][[Alma 26.31|]][[Alma 26.32|]][[Alma 26.33|]][[Alma 26.34|]][[Alma 26.35|]][[Alma 26.36|]][[Alma 26.37|]]). Together with the Relief Society, priesthood quorums can build up parents and marriages, and quorums can provide the blessings of the priesthood to single-parent families.
 
 Yes, brethren, we have work to do. Thank you for the sacrifices you make and the good you do. Keep going, and the Lord will help you. At times you may not know quite what to do or what to say—just move forward. Begin to act, and the Lord assures that “an effectual door shall be opened for \[you\]” ([[D&C 118.3|D&C 118:3]]). Begin to speak, and He promises, “You shall not be confounded before men; for it shall be given you in the very hour, yea, in the very moment, what ye shall say” ([[D&C 100.5|D&C 100:5–6]][[D&C 100.6|]]). It is true that we are in many ways ordinary and imperfect, but we have a perfect Master who wrought a perfect Atonement, and we have call upon His grace and His priesthood. As we repent and purge our souls, we are promised that we will be taught and endowed with power from on high (see [[D&C 43.16|D&C 43:16]]).
 
@@ -81,7 +79,3 @@ The Church and the world and women are crying for men—men who are developing t
 
 [^10]: “Rise Up, O Men of God,” *Hymns,* no. 323.
 
-
-
-
-#Education #Marriage #Priesthood #Work

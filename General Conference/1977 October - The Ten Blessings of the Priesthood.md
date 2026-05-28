@@ -1,7 +1,5 @@
 # The Ten Blessings of the Priesthood
 
-Spencer W. Kimball
-
 By Elder Bruce R. McConkie - *Of the Council of the Twelve*
 
 *Given in the October session of the 1977 General Conference*
@@ -151,4 +149,3 @@ God grant that we may keep the commandments and be inheritors of all that a grac
 
 
 
-#Blessings #Priesthood

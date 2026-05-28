@@ -1,7 +1,5 @@
 # Eternal Life—to Know Our Heavenly Father and His Son, Jesus Christ
 
-Thomas S. Monson
-
 By Elder Robert D. Hales - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2014 General Conference*
@@ -137,7 +135,3 @@ I bear my special witness that our Savior is Jesus Christ, that He lives, that o
 
 [^32]: [[D&C 88.4|Doctrine and Covenants 88:4]].
 
-
-
-
-#God_The_Father #Holy_Ghost #Jesus_Christ #Love #Testimony #Unity

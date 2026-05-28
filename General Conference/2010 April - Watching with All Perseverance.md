@@ -1,7 +1,5 @@
 # Watching with All Perseverance
 
-Thomas S. Monson
-
 By Elder David A. Bednar - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2010 General Conference*
@@ -71,4 +69,3 @@ I bear witness that parents who consistently read and talk about the Book of Mor
 
 
 
-#Book_Of_Mormon #Children #Education #Family #Parenthood #Safety #Testimony

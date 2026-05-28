@@ -1,7 +1,5 @@
 # “Daughters in My Kingdom”: The History and Work of Relief Society
 
-Thomas S. Monson
-
 By Julie B. Beck - *Relief Society General President*
 
 *Given in the October session of the 2010 General Conference*

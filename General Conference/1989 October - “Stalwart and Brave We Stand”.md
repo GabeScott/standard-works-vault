@@ -1,7 +1,5 @@
 # “Stalwart and Brave We Stand”
 
-Ezra Taft Benson
-
 By Elder Marvin J. Ashton - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1989 General Conference*
@@ -96,4 +94,3 @@ Jesus is the Christ. He is our Redeemer, our Lord and Savior and friend. We cons
 
 
 
-#Courage #Endurance #Faith #Obedience

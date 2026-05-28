@@ -1,7 +1,5 @@
 # “Remember Who You Are”
 
-Gordon B. Hinckley
-
 By President N. Eldon Tanner - *First Counselor in the First Presidency*
 
 *Given in the October session of the 1981 General Conference*
@@ -29,4 +27,3 @@ My appeal to you today, brothers and sisters, is that all of us who desire to be
 
 
 
-#Example

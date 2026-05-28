@@ -1,7 +1,5 @@
 # Prepare the Way
 
-Bonnie H. Cordon
-
 By Bishop Gérald Caussé - *Presiding Bishop*
 
 *Given in the April session of the 2017 General Conference*
@@ -85,7 +83,3 @@ My dear brethren of the Melchizedek Priesthood, I invite you to strengthen the e
 
 [^10]: [[D&C 35.4|Doctrine and Covenants 35:4]].
 
-
-
-
-#Preparation #Priesthood #Service #Unity #Youth

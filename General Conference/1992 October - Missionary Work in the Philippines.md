@@ -1,7 +1,5 @@
 # Missionary Work in the Philippines
 
-Gordon B. Hinckley
-
 By Elder Augusto A. Lim - *Of the Seventy*
 
 *Given in the October session of the 1992 General Conference*
@@ -41,4 +39,3 @@ That the Lord will continue to bless our people with joy and peace of mind as th
 
 
 
-#Church_Growth #Faith #Missionary_Work

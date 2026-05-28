@@ -1,7 +1,5 @@
 # Two Principles for Any Economy
 
-Thomas S. Monson
-
 By President Dieter F. Uchtdorf - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 2009 General Conference*
@@ -103,7 +101,3 @@ I pray that during the coming months and years we can fill our hours and days wi
 
 [^15]: See [[D&C 42.61|D&C 42:61]].
 
-
-
-
-#Education #Endurance #Work

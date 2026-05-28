@@ -1,7 +1,5 @@
 # Welfare Services
 
-Spencer W. Kimball
-
 By President Marion G. Romney - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 1975 General Conference*
@@ -186,4 +184,3 @@ Now, brothers and sisters, I have a witness and a testimony of this great work. 
 
 
 
-#Welfare

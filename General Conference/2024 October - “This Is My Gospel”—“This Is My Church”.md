@@ -1,7 +1,5 @@
 # “This Is My Gospel”—“This Is My Church”
 
-Henry B. Eyring
-
 By Elder Dale G. Renlund - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2024 General Conference*
@@ -129,7 +127,3 @@ I invite you to commit yourself more fully to the Savior, His gospel, and His Ch
 
 [^36]: [[Helaman 5.44|Helaman 5:44]].
 
-
-
-
-#Conversion #Covenants #Gospel #Jesus_Christ #Ordinances #Priesthood_Power

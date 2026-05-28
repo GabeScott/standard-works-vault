@@ -1,7 +1,5 @@
 # An Invitation to Grow
 
-Spencer W. Kimball
-
 By Dwan J. Young - *Primary General President*
 
 *Given in the April session of the 1982 General Conference*
@@ -57,4 +55,3 @@ May our Heavenly Father strengthen and guide us as we accept his invitation to g
 
 
 
-#Education #Individual_Worth

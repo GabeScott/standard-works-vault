@@ -1,7 +1,5 @@
 # Call to the Holy Apostleship
 
-Gordon B. Hinckley
-
 By Elder Russell M. Nelson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1984 General Conference*
@@ -47,4 +45,3 @@ The testimony that I bear is but an echo of the resounding testimonies of the ei
 
 
 
-#Quorum_Of_The_Twelve_Apostles

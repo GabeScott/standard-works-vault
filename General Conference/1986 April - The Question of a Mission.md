@@ -1,7 +1,5 @@
 # The Question of a Mission
 
-Ezra Taft Benson
-
 By President Gordon B. Hinckley - *First Counselor in the First Presidency*
 
 *Given in the April session of the 1986 General Conference*
@@ -87,4 +85,3 @@ God bless you, my beloved brethren, young and old, to be faithful to the great r
 
 
 
-#Conversion #Missionary_Work

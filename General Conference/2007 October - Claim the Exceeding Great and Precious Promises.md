@@ -1,7 +1,5 @@
 # Claim the Exceeding Great and Precious Promises
 
-Gordon B. Hinckley
-
 By Elder Spencer J. Condie - *Of the Seventy*
 
 *Given in the October session of the 2007 General Conference*
@@ -65,4 +63,3 @@ When heaven’s promises sometimes seem afar off, I pray that each of us will em
 
 
 
-#Covenants #Faith #Obedience

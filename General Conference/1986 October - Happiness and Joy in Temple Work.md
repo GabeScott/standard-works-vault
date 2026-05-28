@@ -1,7 +1,5 @@
 # Happiness and Joy in Temple Work
 
-Ezra Taft Benson
-
 By Elder Franklin D. Richards - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1986 General Conference*
@@ -69,4 +67,3 @@ May we leave this conference strengthened and motivated with a greater desire to
 
 
 
-#Plan_Of_Salvation #Temples

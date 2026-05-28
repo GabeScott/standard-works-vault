@@ -1,7 +1,5 @@
 # Beautiful Mornings
 
-Thomas S. Monson
-
 By Elder Bruce D. Porter - *Of the Seventy*
 
 *Given in the April session of the 2013 General Conference*
@@ -51,4 +49,3 @@ Of the triumph of Jesus Christ over sin and death, I bear witness. Of the mercif
 
 
 
-#Adversity #Hope #Jesus_Christ

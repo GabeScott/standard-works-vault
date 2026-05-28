@@ -1,7 +1,5 @@
 # We Can Do Hard Things through Him
 
-Dallin H. Oaks
-
 By Elder Isaac K. Morrison - *Of the Seventy*
 
 *Given in the October session of the 2022 General Conference*
@@ -87,7 +85,3 @@ I testify that we grow in our discipleship when we exercise faith in the Lord du
 
 [^13]: [[Hebrews 5.8|Hebrews 5:8]].
 
-
-
-
-#Adversity #Discipleship #Endurance #Faith

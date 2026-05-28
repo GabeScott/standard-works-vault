@@ -1,7 +1,5 @@
 # Belonging Is Our Sacred Birthright
 
-Gordon B. Hinckley
-
 By Bonnie D. Parkin - *Relief Society General President*
 
 *Given in the October session of the 2004 General Conference*
@@ -93,7 +91,3 @@ In the name of Jesus Christ, amen.
 
 [^14]: Roger Hoffman, “Consider the Lilies.”
 
-
-
-
-#Preparation #Relief_Society #Service #Sisterhood

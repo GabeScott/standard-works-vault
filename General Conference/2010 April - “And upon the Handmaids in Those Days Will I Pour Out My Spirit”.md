@@ -1,7 +1,5 @@
 # “And upon the Handmaids in Those Days Will I Pour Out My Spirit”
 
-Thomas S. Monson
-
 By Julie B. Beck - *Relief Society General President*
 
 *Given in the April session of the 2010 General Conference*
@@ -71,7 +69,3 @@ I bear my witness that the gospel of Jesus Christ is true. The Lord depends on H
 
 [^11]: *Teachings of Presidents of the Church: Spencer W. Kimball* (2006), 222–23.
 
-
-
-
-#Holy_Ghost #Relief_Society #Spirituality #Women

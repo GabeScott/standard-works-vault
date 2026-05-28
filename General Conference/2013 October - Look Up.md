@@ -1,7 +1,5 @@
 # Look Up
 
-Thomas S. Monson
-
 By Elder Adrián Ochoa - *Of the Seventy*
 
 *Given in the October session of the 2013 General Conference*
@@ -47,4 +45,3 @@ I know we can live together as families for eternity, that our loving Heavenly F
 
 
 
-#Media #Testimony

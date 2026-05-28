@@ -1,7 +1,5 @@
 # Temptation
 
-James E. Faust
-
 By Elder Rulon G. Craven - *Of the Seventy*
 
 *Given in the April session of the 1996 General Conference*
@@ -55,4 +53,3 @@ My brothers and sisters, I know this work is true. I know prophets travel the ea
 
 
 
-#Agency #Evil #Holy_Ghost #Jesus_Christ #Obedience #Temptation #Testimony

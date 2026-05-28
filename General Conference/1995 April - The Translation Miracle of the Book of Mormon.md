@@ -1,7 +1,5 @@
 # The Translation Miracle of the Book of Mormon
 
-Thomas S. Monson
-
 By Elder Robert K. Dellenbach - *Of the Seventy*
 
 *Given in the April session of the 1995 General Conference*
@@ -55,4 +53,3 @@ I testify that the translation miracle of the Book of Mormon clearly evidences t
 
 
 
-#Book_Of_Mormon #Joseph_Smith

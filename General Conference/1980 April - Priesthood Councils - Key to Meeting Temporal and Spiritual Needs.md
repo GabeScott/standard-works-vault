@@ -1,7 +1,5 @@
 # Priesthood Councils: Key to Meeting Temporal and Spiritual Needs
 
-Spencer W. Kimball
-
 By Elder Ronald E. Poelman - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1980 General Conference*
@@ -93,4 +91,3 @@ Through priesthood councils we may, in wisdom and order, most effectively use we
 
 
 
-#Priesthood #Welfare

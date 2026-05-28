@@ -1,7 +1,5 @@
 # Prepare to Meet God
 
-Henry B. Eyring
-
 By Elder Quentin L. Cook - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2018 General Conference*
@@ -157,7 +155,3 @@ We have all had the privilege of sustaining President Russell M. Nelson as our p
 
 [^37]: Neal A. Maxwell, *All These Things Shall Give Thee Experience* (2007), 31.
 
-
-
-
-#Family_History #Missionary_Work #Preparation #Responsibility #Righteousness #Sealings #Temple_Work #Unity

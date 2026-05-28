@@ -1,7 +1,5 @@
 # With Hand and Heart
 
-Joseph Fielding Smith
-
 By Elder Thomas S. Monson - *Of the Council of the Twelve*
 
 *Given in the October session of the 1971 General Conference*
@@ -103,4 +101,3 @@ May we succor the weak, lift up the hands which hang down, and strengthen the fe
 
 
 
-#Jesus_Christ #Love

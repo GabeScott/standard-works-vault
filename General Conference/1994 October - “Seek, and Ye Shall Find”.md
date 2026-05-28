@@ -1,7 +1,5 @@
 # “Seek, and Ye Shall Find”
 
-Gordon B. Hinckley
-
 By Elaine L. Jack - *Relief Society General President*
 
 *Given in the October session of the 1994 General Conference*
@@ -89,4 +87,3 @@ I bear testimony that these truths are given to us by a loving Heavenly Father. 
 
 
 
-#Education #Holy_Ghost #Jesus_Christ #Literacy #Relief_Society #Truth

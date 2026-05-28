@@ -1,7 +1,5 @@
 # “We Beheld His Glory”
 
-Spencer W. Kimball
-
 By Elder David B. Haight - *Of the Council of the Twelve*
 
 *Given in the April session of the 1977 General Conference*
@@ -73,4 +71,3 @@ I testify in all sincerity to the truth of these things, in the name of Him whom
 
 
 
-#Jesus_Christ

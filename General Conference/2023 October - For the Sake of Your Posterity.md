@@ -1,7 +1,5 @@
 # For the Sake of Your Posterity
 
-David A. Bednar
-
 By Elder Carlos A. Godoy - *Of the Presidency of the Seventy*
 
 *Given in the October session of the 2023 General Conference*
@@ -83,7 +81,3 @@ From the bottom of my heart, I invite you to think about it, to look ahead and e
 
 [^5]: M. Russell Ballard, “[[2016 October - To Whom Shall We Go.md|To Whom Shall We Go]]?,” *Ensign* or *Liahona*, Nov. 2016, 90–91; emphasis added.
 
-
-
-
-#Activation #Covenants #Family

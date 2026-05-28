@@ -1,7 +1,5 @@
 # Believe!
 
-Gordon B. Hinckley
-
 By Elaine S. Dalton - *Second Counselor in the Young Women General Presidency*
 
 *Given in the April session of the 2004 General Conference*
@@ -63,4 +61,3 @@ I believe that each one of you has the power to change the world. Believe in you
 
 
 
-#Endurance #Prayer #Scripture_Study #Trust

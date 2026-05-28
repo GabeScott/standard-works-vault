@@ -1,7 +1,5 @@
 # Responsibilities of the Priesthood
 
-Joseph Fielding Smith
-
 By President Harold B. Lee - *First Counselor in the First Presidency*
 
 *Given in the October session of the 1971 General Conference*
@@ -49,4 +47,3 @@ Please, we ask you priesthood holders, wake up these fathers now, while it is ye
 
 
 
-#Priesthood

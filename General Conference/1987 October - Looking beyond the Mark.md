@@ -1,7 +1,5 @@
 # Looking beyond the Mark
 
-Ezra Taft Benson
-
 By Elder Dean L. Larsen - *Of the Presidency of the First Quorum of the Seventy*
 
 *Given in the October session of the 1987 General Conference*
@@ -63,4 +61,3 @@ May God help us to do so and to keep from looking beyond that mark, I pray earne
 
 
 
-#Spirituality #Truth

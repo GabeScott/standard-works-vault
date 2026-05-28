@@ -1,7 +1,5 @@
 # Mother, Catch the Vision of Your Call
 
-Spencer W. Kimball
-
 By Bishop H. Burke Peterson - *First Counselor in the Presiding Bishopric*
 
 *Given in the April session of the 1974 General Conference*
@@ -69,4 +67,3 @@ To you mothers who haven’t yet caught the vision of your eternal call, may you
 
 
 
-#Home #Motherhood

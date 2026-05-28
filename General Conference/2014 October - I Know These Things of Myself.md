@@ -1,7 +1,5 @@
 # I Know These Things of Myself
 
-Thomas S. Monson
-
 By Elder Craig C. Christensen - *Of the Presidency of the Seventy*
 
 *Given in the October session of the 2014 General Conference*
@@ -77,7 +75,7 @@ Like the young deacon I spoke of earlier, I admire President Monson for his test
 
 [^8]: [[1 Nephi 11.1|1 Nephi 11:1–3]][[1 Nephi 11.2|]][[1 Nephi 11.3|]].
 
-[^9]: See [[1 Nephi 11.1|1 Nephi 11–14]].
+[^9]: See [[1 Nephi 11.1|1 Nephi 11–14]][[1 Nephi 11.2|]][[1 Nephi 11.3|]][[1 Nephi 11.4|]][[1 Nephi 11.5|]][[1 Nephi 11.6|]][[1 Nephi 11.7|]][[1 Nephi 11.8|]][[1 Nephi 11.9|]][[1 Nephi 11.10|]][[1 Nephi 11.11|]][[1 Nephi 11.12|]][[1 Nephi 11.13|]][[1 Nephi 11.14|]][[1 Nephi 11.15|]][[1 Nephi 11.16|]][[1 Nephi 11.17|]][[1 Nephi 11.18|]][[1 Nephi 11.19|]][[1 Nephi 11.20|]][[1 Nephi 11.21|]][[1 Nephi 11.22|]][[1 Nephi 11.23|]][[1 Nephi 11.24|]][[1 Nephi 11.25|]][[1 Nephi 11.26|]][[1 Nephi 11.27|]][[1 Nephi 11.28|]][[1 Nephi 11.29|]][[1 Nephi 11.30|]][[1 Nephi 11.31|]][[1 Nephi 11.32|]][[1 Nephi 11.33|]][[1 Nephi 11.34|]][[1 Nephi 11.35|]][[1 Nephi 11.36|]].
 
 [^10]: See [[Joseph Smith History 1.8|Joseph Smith—History 1:8–10]][[Joseph Smith History 1.9|]][[Joseph Smith History 1.10|]].
 
@@ -91,7 +89,3 @@ Like the young deacon I spoke of earlier, I admire President Monson for his test
 
 [^15]: Thomas S. Monson, *Ensign* or *Liahona,* Nov. 2011, 67.
 
-
-
-
-#Joseph_Smith #Testimony

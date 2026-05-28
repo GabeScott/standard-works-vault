@@ -1,7 +1,5 @@
 # The Temple, the Priesthood
 
-Thomas S. Monson
-
 By Elder Boyd K. Packer - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1993 General Conference*
@@ -191,7 +189,3 @@ May God grant that we may be worthy to enter there and receive the fulness of th
 
 [^29]: [[D&C 124.44|D&C 124:44–46]][[D&C 124.45|]][[D&C 124.46|]]; emphasis added.
 
-
-
-
-#Authority #Priesthood #Temples

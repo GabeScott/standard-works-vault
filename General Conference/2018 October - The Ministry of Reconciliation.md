@@ -1,7 +1,5 @@
 # The Ministry of Reconciliation
 
-Russell M. Nelson
-
 By Elder Jeffrey R. Holland - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2018 General Conference*
@@ -89,7 +87,3 @@ My beloved friends, in our shared ministry of reconciliation, I ask us to be pea
 
 [^18]: [[Zechariah 13.6|Zechariah 13:6]]; see also [[D&C 45.52|Doctrine and Covenants 45:52]].
 
-
-
-
-#Atonement #Forgiveness #Ministering #Peace

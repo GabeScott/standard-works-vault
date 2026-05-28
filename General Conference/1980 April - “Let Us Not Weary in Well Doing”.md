@@ -1,7 +1,5 @@
 # “Let Us Not Weary in Well Doing”
 
-Spencer W. Kimball
-
 By President Spencer W. Kimball - *President of the Church*
 
 *Given in the April session of the 1980 General Conference*
@@ -29,4 +27,3 @@ I know with all my soul that Jesus Christ is the Son of God, that he died on the
 
 
 
-#Dedication #Obedience

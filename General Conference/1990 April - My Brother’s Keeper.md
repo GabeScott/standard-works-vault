@@ -1,7 +1,5 @@
 # My Brother’s Keeper
 
-Thomas S. Monson
-
 By President Thomas S. Monson - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 1990 General Conference*
@@ -105,4 +103,3 @@ May all of us who hold the priesthood of God demonstrate by our lives that we ar
 
 
 
-#Love #Service

@@ -1,7 +1,5 @@
 # “Upon This Rock”
 
-Marion G. Romney
-
 By Elder Bruce R. McConkie - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1981 General Conference*
@@ -101,4 +99,3 @@ And may I add, speaking as an Apostle of the Lord, Jesus Christ, that mingled an
 
 
 
-#Jesus_Christ

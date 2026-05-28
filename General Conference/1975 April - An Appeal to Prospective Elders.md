@@ -1,7 +1,5 @@
 # An Appeal to Prospective Elders
 
-Spencer W. Kimball
-
 By Elder Boyd K. Packer - *Of the Council of the Twelve*
 
 *Given in the April session of the 1975 General Conference*
@@ -166,4 +164,3 @@ God grant that you who are fathers, who are without that inspiration in your hom
 
 
 
-#Activation #Conversion #Priesthood

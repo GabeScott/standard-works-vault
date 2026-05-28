@@ -1,7 +1,5 @@
 # Introduction to the Proclamation
 
-Spencer W. Kimball
-
 By President Spencer W. Kimball - *President of the Church*
 
 *Given in the April session of the 1980 General Conference*
@@ -23,4 +21,3 @@ Now, my brothers and sisters, with the future before us, and sensing deeply the 
 
 
 
-#Restoration

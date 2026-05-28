@@ -1,7 +1,5 @@
 # Be Ye Clean That Bear the Vessels of the Lord
 
-Spencer W. Kimball
-
 By President Marion G. Romney - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 1974 General Conference*
@@ -121,4 +119,3 @@ May it be so, I humbly pray in the name of Jesus Christ. Amen.
 
 
 
-#Morality #Obedience #Priesthood

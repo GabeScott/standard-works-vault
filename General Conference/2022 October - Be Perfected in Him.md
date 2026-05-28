@@ -1,7 +1,5 @@
 # Be Perfected in Him
 
-Dallin H. Oaks
-
 By Elder Paul V. Johnson - *Of the Presidency of the Seventy*
 
 *Given in the October session of the 2022 General Conference*
@@ -95,7 +93,3 @@ Our Heavenly Father and our Savior, Jesus Christ, love us and have graciously of
 
 [^24]: See [[Moses 1.39|Moses 1:39]].
 
-
-
-
-#Atonement #Faith #Grace #Healing #Jesus_Christ

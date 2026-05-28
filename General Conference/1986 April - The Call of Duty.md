@@ -1,7 +1,5 @@
 # The Call of Duty
 
-Ezra Taft Benson
-
 By President Thomas S. Monson - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 1986 General Conference*
@@ -99,4 +97,3 @@ We will discover He is more than the Babe in Bethlehem, more than the carpenterâ
 
 
 
-#Duty

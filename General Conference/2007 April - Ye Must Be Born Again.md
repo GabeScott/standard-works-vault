@@ -1,7 +1,5 @@
 # Ye Must Be Born Again
 
-Thomas S. Monson
-
 By Elder David A. Bednar - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2007 General Conference*
@@ -103,4 +101,3 @@ I witness the reality and divinity of a living Savior who invites us to come unt
 
 
 
-#Conversion #Covenants #Spirituality

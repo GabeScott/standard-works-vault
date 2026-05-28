@@ -1,7 +1,5 @@
 # Welfare Services Essentials: The Bishops Storehouse
 
-Spencer W. Kimball
-
 By Bishop Victor L. Brown - *Presiding Bishop*
 
 *Given in the October session of the 1976 General Conference*
@@ -79,4 +77,3 @@ That this may be our goal, and that we may accomplish it, is my prayer in the na
 
 
 
-#Bishops #Welfare

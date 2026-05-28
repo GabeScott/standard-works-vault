@@ -1,7 +1,5 @@
 # Solutions from the Scriptures
 
-Ezra Taft Benson
-
 By Elder George R. Hill III - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1988 General Conference*
@@ -51,4 +49,3 @@ Let me close by expressing my love and gratitude for goodly parents, to my choic
 
 
 
-#Leadership #Scripture_Study

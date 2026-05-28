@@ -1,7 +1,5 @@
 # A Loving, Communicating God
 
-Gordon B. Hinckley
-
 By Elder Marion D. Hanks - *Emeritus Member of the Seventy*
 
 *Given in the October session of the 1992 General Conference*
@@ -83,4 +81,3 @@ I thank God for his love and the love of his Son. Those who have taken upon them
 
 
 
-#Adversity #Love #Patience #Truth

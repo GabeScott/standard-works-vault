@@ -1,7 +1,5 @@
 # Remember the Mission of the Church
 
-Spencer W. Kimball
-
 By President Spencer W. Kimball - *President of the Church*
 
 *Given in the April session of the 1982 General Conference*
@@ -57,4 +55,3 @@ Again, I express my love for the Lord, for my wife and family, for my Brethren, 
 
 
 
-#Mission_Of_The_Church

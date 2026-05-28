@@ -1,7 +1,5 @@
 # A Priesthood Quorum
 
-Gordon B. Hinckley
-
 By Elder Henry B. Eyring - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2006 General Conference*
@@ -83,7 +81,3 @@ I so testify, in the sacred name of Jesus Christ, amen.
 
 [^8]: [[Matthew 4.19|Matthew 4:19]].
 
-
-
-
-#Priesthood #Service #Unity

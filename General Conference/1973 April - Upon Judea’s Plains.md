@@ -1,7 +1,5 @@
 # Upon Judea’s Plains
 
-Harold B. Lee
-
 By Elder Bruce R. McConkie - *Of the Council of the Twelve*
 
 *Given in the April session of the 1973 General Conference*
@@ -121,4 +119,3 @@ And of this I testify, in solemnity and sobriety, with full knowledge of what I 
 
 
 
-#Plan_Of_Salvation #Teaching

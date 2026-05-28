@@ -1,7 +1,5 @@
 # “Plow in Hope”
 
-Gordon B. Hinckley
-
 By Elder Neal A. Maxwell - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2001 General Conference*
@@ -79,4 +77,3 @@ In the holy name of Jesus Christ, amen!
 
 
 
-#Adversity #Atonement #Discipleship #Faith #Family #Hope #Jesus_Christ #Media #Patience #Peace #Perspective #Satan #Scripture_Study #Understanding

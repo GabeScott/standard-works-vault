@@ -1,7 +1,5 @@
 # The Blessing of Scripture
 
-Thomas S. Monson
-
 By Elder D. Todd Christofferson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2010 General Conference*
@@ -36,7 +34,7 @@ In Tyndale’s day, scriptural ignorance abounded because people lacked access t
 
 God uses scripture to unmask erroneous thinking, false traditions, and sin with its devastating effects. He is a tender parent who would spare us needless suffering and grief and at the same time help us realize our divine potential. The scriptures, for example, discredit an ancient philosophy that has come back into vogue in our day—the philosophy of Korihor that there are no absolute moral standards, that “every man prosper\[s\] according to his genius, and that every man conquer\[s\] according to his strength; and whatsoever a man \[does is\] no crime,” and “that when a man \[is\] dead, that \[is\] the end thereof” ([[Alma 30.17|Alma 30:17–18]][[Alma 30.18|]]). Alma, who had dealt with Korihor, did not leave his own son Corianton in doubt about the reality and substance of a divine moral code. Corianton had been guilty of sexual sin, and his father spoke to him in love but plainly: “Know ye not, my son, that these things are an abomination in the sight of the Lord; yea, most abominable above all sins save it be the shedding of innocent blood or denying the Holy Ghost?” ([[Alma 39.5|Alma 39:5]]).
 
-In a complete reversal from a century ago, many today would dispute with Alma about the seriousness of immorality. Others would argue that it’s all relative or that God’s love is permissive. If there is a God, they say, He excuses all sins and misdeeds because of His love for us—there is no need for repentance. Or at most, a simple confession will do. They have imagined a Jesus who wants people to work for social justice but who makes no demands upon their personal life and behavior.[^2] But a God of love does not leave us to learn by sad experience that “wickedness never was happiness” ([[Alma 41.10|Alma 41:10]]; see also [[Helaman 13.38|Helaman 13:38]]). His commandments are the voice of reality and our protection against self-inflicted pain. The scriptures are the touchstone for measuring correctness and truth, and they are clear that real happiness lies not in denying the justice of God or trying to circumvent the consequences of sin but in repentance and forgiveness through the atoning grace of the Son of God (see [[Alma 42.1|Alma 42]]).
+In a complete reversal from a century ago, many today would dispute with Alma about the seriousness of immorality. Others would argue that it’s all relative or that God’s love is permissive. If there is a God, they say, He excuses all sins and misdeeds because of His love for us—there is no need for repentance. Or at most, a simple confession will do. They have imagined a Jesus who wants people to work for social justice but who makes no demands upon their personal life and behavior.[^2] But a God of love does not leave us to learn by sad experience that “wickedness never was happiness” ([[Alma 41.10|Alma 41:10]]; see also [[Helaman 13.38|Helaman 13:38]]). His commandments are the voice of reality and our protection against self-inflicted pain. The scriptures are the touchstone for measuring correctness and truth, and they are clear that real happiness lies not in denying the justice of God or trying to circumvent the consequences of sin but in repentance and forgiveness through the atoning grace of the Son of God (see [[Alma 42.1|Alma 42]][[Alma 42.2|]][[Alma 42.3|]][[Alma 42.4|]][[Alma 42.5|]][[Alma 42.6|]][[Alma 42.7|]][[Alma 42.8|]][[Alma 42.9|]][[Alma 42.10|]][[Alma 42.11|]][[Alma 42.12|]][[Alma 42.13|]][[Alma 42.14|]][[Alma 42.15|]][[Alma 42.16|]][[Alma 42.17|]][[Alma 42.18|]][[Alma 42.19|]][[Alma 42.20|]][[Alma 42.21|]][[Alma 42.22|]][[Alma 42.23|]][[Alma 42.24|]][[Alma 42.25|]][[Alma 42.26|]][[Alma 42.27|]][[Alma 42.28|]][[Alma 42.29|]][[Alma 42.30|]][[Alma 42.31|]]).
 
 Scripture tutors us in principles and moral values essential to maintaining civil society, including integrity, responsibility, selflessness, fidelity, and charity. In scripture, we find vivid portrayals of the blessings that come from honoring true principles, as well as the tragedies that befall when individuals and civilizations discard them. Where scriptural truths are ignored or abandoned, the essential moral core of society disintegrates and decay is close behind. In time, nothing is left to sustain the institutions that sustain society.
 
@@ -59,7 +57,3 @@ Consider the magnitude of our blessing to have the Holy Bible and some 900 addit
 
 [^2]: See interview of Richard Neitzel Holzapfel, in Michael De Groote, “Questioning the Alternative Jesus,” *Deseret News,* Nov. 26, 2009, M5.
 
-
-
-
-#Bible #Jesus_Christ #Scriptures #Truth

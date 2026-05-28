@@ -1,7 +1,5 @@
 # Missionary Service Blessed My Life Forever
 
-Russell M. Nelson
-
 By President M. Russell Ballard - *Acting President of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2022 General Conference*
@@ -69,7 +67,3 @@ May God bless the youth of the Church to desire to prepare and serve Him is my h
 
 [^5]: [[Alma 17.11|Alma 17:11]].
 
-
-
-
-#Blessings #Missionary_Work #Service #Youth

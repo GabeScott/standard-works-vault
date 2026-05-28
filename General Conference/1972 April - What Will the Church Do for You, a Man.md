@@ -1,7 +1,5 @@
 # What Will the Church Do for You, a Man?
 
-Wilford G. Edling
-
 By Elder Gordon B. Hinckley - *Of the Council of the Twelve*
 
 *Given in the April session of the 1972 General Conference*
@@ -109,4 +107,3 @@ I bear witness of these things in soberness and with appreciation, in the name o
 
 
 
-#Family #Priesthood #Spirituality

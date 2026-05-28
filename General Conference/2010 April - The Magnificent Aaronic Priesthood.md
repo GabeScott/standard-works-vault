@@ -1,7 +1,5 @@
 # The Magnificent Aaronic Priesthood
 
-Thomas S. Monson
-
 By David L. Beck - *Young Men General President*
 
 *Given in the April session of the 2010 General Conference*
@@ -79,4 +77,3 @@ I pray that we may all understand the magnificent Aaronic Priesthood and trust, 
 
 
 
-#Duty #Priesthood

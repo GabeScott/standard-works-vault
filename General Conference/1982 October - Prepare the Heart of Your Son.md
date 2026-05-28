@@ -1,7 +1,5 @@
 # Prepare the Heart of Your Son
 
-Spencer W. Kimball
-
 By Bishop H. Burke Peterson - *First Counselor in the Presiding Bishopric*
 
 *Given in the October session of the 1982 General Conference*
@@ -59,4 +57,3 @@ Brethren, I testify to you that the priesthood is divine. We have been given it 
 
 
 
-#Fatherhood

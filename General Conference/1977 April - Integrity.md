@@ -1,7 +1,5 @@
 # Integrity
 
-Spencer W. Kimball
-
 By President N. Eldon Tanner - *First Counselor in the First Presidency*
 
 *Given in the April session of the 1977 General Conference*
@@ -111,4 +109,3 @@ I would this day, with all my soul, pray that the hearts of men everywhere will 
 
 
 
-#Honesty

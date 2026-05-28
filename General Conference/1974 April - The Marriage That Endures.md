@@ -1,7 +1,5 @@
 # The Marriage That Endures
 
-Spencer W. Kimball
-
 By Elder Gordon B. Hinckley - *Of the Council of the Twelve*
 
 *Given in the April session of the 1974 General Conference*
@@ -93,4 +91,3 @@ I bear witness of the living reality of the Lord Jesus Christ through whom this 
 
 
 
-#Love #Marriage

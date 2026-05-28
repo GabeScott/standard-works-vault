@@ -1,7 +1,5 @@
 # Abundantly Blessed
 
-Dieter F. Uchtdorf
-
 By President Thomas S. Monson - *President of the Church*
 
 *Given in the April session of the 2008 General Conference*
@@ -67,4 +65,3 @@ My dear brothers and sisters, I love you, and I pray for you. Please pray for me
 
 
 
-#Adversity #Family #Love

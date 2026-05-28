@@ -1,7 +1,5 @@
 # Removing the Poison of an Unforgiving Spirit
 
-Gordon B. Hinckley
-
 By Bishop H. Burke Peterson - *First Counselor in the Presiding Bishopric*
 
 *Given in the October session of the 1983 General Conference*
@@ -65,4 +63,3 @@ I testify to the importance of this principle of salvation, the principle of for
 
 
 
-#Forgiveness

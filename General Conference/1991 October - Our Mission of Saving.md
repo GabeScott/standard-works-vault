@@ -1,7 +1,5 @@
 # Our Mission of Saving
 
-Gordon B. Hinckley
-
 By President Gordon B. Hinckley - *First Counselor in the First Presidency*
 
 *Given in the October session of the 1991 General Conference*
@@ -103,4 +101,3 @@ Let us never forget that we have a marvelous heritage received from great and co
 
 
 
-#Love #Pioneers

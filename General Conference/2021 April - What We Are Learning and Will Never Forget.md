@@ -1,7 +1,5 @@
 # What We Are Learning and Will Never Forget
 
-Russell M. Nelson
-
 By President Russell M. Nelson - *President of The Church of Jesus Christ of Latter-day Saints*
 
 *Given in the April session of the 2021 General Conference*
@@ -103,7 +101,3 @@ The future is bright for God’s covenant-keeping people.[^16] The Lord will inc
 
 [^16]: See [[D&C 82.14|Doctrine and Covenants 82:14]].
 
-
-
-
-#Adversity #Faith #Home #Love #Priesthood_Quorums #Revelation #Unity

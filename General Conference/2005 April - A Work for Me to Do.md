@@ -1,7 +1,5 @@
 # A Work for Me to Do
 
-Gordon B. Hinckley
-
 By Julie B. Beck - *First Counselor in the Young Women General Presidency*
 
 *Given in the April session of the 2005 General Conference*
@@ -49,4 +47,3 @@ The Lord sent an angel to Joseph Smith to tell him that he had a work to do. Tha
 
 
 
-#Joseph_Smith #Missionary_Work #Service #Testimony

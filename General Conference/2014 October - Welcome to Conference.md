@@ -1,7 +1,5 @@
 # Welcome to Conference
 
-Thomas S. Monson
-
 By President Thomas S. Monson - *President of the Church*
 
 *Given in the October session of the 2014 General Conference*
@@ -31,4 +29,3 @@ Now I invite you to give your attention to the brethren and sisters who will par
 
 
 
-#Church_Growth #Missionary_Work #Temples

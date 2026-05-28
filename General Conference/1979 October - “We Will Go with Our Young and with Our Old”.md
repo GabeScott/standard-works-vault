@@ -1,7 +1,5 @@
 # “We Will Go with Our Young and with Our Old”
 
-Spencer W. Kimball
-
 By Elder Hugh W. Pinnock - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1979 General Conference*
@@ -59,4 +57,3 @@ In closing, I say to you—our elder mentors, our examples, some of our dearest 
 
 
 
-#Elderly

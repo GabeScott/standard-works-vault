@@ -1,7 +1,5 @@
 # Which Road Will You Travel?
 
-Spencer W. Kimball
-
 By Elder Thomas S. Monson - *Of the Council of the Twelve*
 
 *Given in the October session of the 1976 General Conference*
@@ -87,4 +85,3 @@ May such be our goal and our reward is my prayer, in the name of Jesus Christ. A
 
 
 
-#Dedication #Goals

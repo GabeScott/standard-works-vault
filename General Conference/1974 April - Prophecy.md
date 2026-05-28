@@ -1,7 +1,5 @@
 # Prophecy
 
-Spencer W. Kimball
-
 By Elder LeGrand Richards - *Of the Council of the Twelve*
 
 *Given in the April session of the 1974 General Conference*
@@ -117,4 +115,3 @@ God bless you, brothers and sisters. I don’t know why we should hesitate to ra
 
 
 
-#Prophecy #Scriptures

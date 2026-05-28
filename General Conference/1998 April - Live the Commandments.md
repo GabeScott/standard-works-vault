@@ -1,7 +1,5 @@
 # Live the Commandments
 
-Gordon B. Hinckley
-
 By Elder David B. Haight - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1998 General Conference*
@@ -47,4 +45,3 @@ Brothers and sisters, live the commandments. Do what is right. Take advantage of
 
 
 
-#Commandments #Family_History #God_The_Father #Jesus_Christ #Media #Restoration

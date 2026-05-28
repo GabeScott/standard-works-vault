@@ -1,7 +1,5 @@
 # True Happiness: A Conscious Decision
 
-Gordon B. Hinckley
-
 By Elder Benjamín De Hoyos - *Of the Seventy*
 
 *Given in the October session of the 2005 General Conference*
@@ -67,7 +65,3 @@ I leave with you my love and my humble testimony, in the name of the Lord Jesus 
 
 [^9]: [[Matthew 11.28|Matthew 11:28]].
 
-
-
-
-#Agency #Jesus_Christ #Joy #Obedience

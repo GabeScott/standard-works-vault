@@ -1,7 +1,5 @@
 # The Powers of Heaven
 
-Thomas S. Monson
-
 By Elder David A. Bednar - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2012 General Conference*
@@ -85,4 +83,3 @@ I testify the holy priesthood indeed has been restored to the earth in these lat
 
 
 
-#Authority #Fatherhood #Priesthood

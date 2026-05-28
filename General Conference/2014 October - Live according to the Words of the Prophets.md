@@ -1,7 +1,5 @@
 # Live according to the Words of the Prophets
 
-Thomas S. Monson
-
 By Carol F. McConkie - *First Counselor in the Young Women General Presidency*
 
 *Given in the October session of the 2014 General Conference*
@@ -103,7 +101,3 @@ I bear my witness that Joseph Smith was and is the prophet called of God to rest
 
 [^20]: See [[Mosiah 2.9|Mosiah 2:9]].
 
-
-
-
-#Faith #Prophets

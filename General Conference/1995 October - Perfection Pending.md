@@ -1,7 +1,5 @@
 # Perfection Pending
 
-Gordon B. Hinckley
-
 By Elder Russell M. Nelson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1995 General Conference*
@@ -179,7 +177,3 @@ We need not be dismayed if our earnest efforts toward perfection now seem so ard
 
 [^42]: This concept is supported by the fact that in verses of the New Testament that refer to the *end* for which we are to endure, the Greek word from which *end* was translated was also derived from *telos* (see [[Matthew 10.22|Matt. 10:22]]; [[Matthew 24.13|24:13]]; [[Mark 13.13|Mark 13:13]]).
 
-
-
-
-#Atonement #Commandments #Example #Forgiveness #Jesus_Christ #Joy #Plan_Of_Salvation #Resurrection #Temples

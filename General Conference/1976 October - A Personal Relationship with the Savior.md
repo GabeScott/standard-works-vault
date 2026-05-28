@@ -1,7 +1,5 @@
 # A Personal Relationship with the Savior
 
-Spencer W. Kimball
-
 By Elder James E. Faust - *Of the First Council of the Seventy*
 
 *Given in the October session of the 1976 General Conference*
@@ -63,4 +61,3 @@ I know and I testify with an absolute awareness in every fiber and innermost rec
 
 
 
-#Jesus_Christ #Testimony

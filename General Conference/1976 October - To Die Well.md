@@ -1,7 +1,5 @@
 # To Die Well
 
-Spencer W. Kimball
-
 By Elder Sterling W. Sill - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1976 General Conference*
@@ -63,4 +61,3 @@ And may God bless us, everyone, that we may magnify our callings and our opportu
 
 
 
-#Death #Plan_Of_Salvation

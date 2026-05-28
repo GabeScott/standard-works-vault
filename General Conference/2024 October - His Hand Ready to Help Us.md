@@ -1,7 +1,5 @@
 # His Hand Ready to Help Us
 
-Henry B. Eyring
-
 By Elder Juan Pablo Villar - *Of the Seventy*
 
 *Given in the October session of the 2024 General Conference*
@@ -73,7 +71,3 @@ If I think celestial, I know that we are not left alone in this life. While we m
 
 [^9]: See [[Isaiah 49.16|Isaiah 49:16]].
 
-
-
-
-#Adversity #Faith #Jesus_Christ #Ministering

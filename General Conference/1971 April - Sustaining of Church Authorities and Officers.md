@@ -1,7 +1,5 @@
 # Sustaining of Church Authorities and Officers
 
-Joseph Fielding Smith
-
 By 
 
 *Given in the April session of the 1971 General Conference*

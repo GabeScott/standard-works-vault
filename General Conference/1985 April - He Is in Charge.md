@@ -1,7 +1,5 @@
 # He Is in Charge
 
-Gordon B. Hinckley
-
 By Elder Helio da Rocha Camargo - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1985 General Conference*
@@ -19,4 +17,3 @@ I know that the Lord lives. I know that President Kimball is a prophet—oh, I k
 
 
 
-#Jesus_Christ

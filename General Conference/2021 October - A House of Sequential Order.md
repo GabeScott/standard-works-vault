@@ -1,7 +1,5 @@
 # A House of Sequential Order
 
-Russell M. Nelson
-
 By Elder Vaiangina Sikahema - *Of the Seventy*
 
 *Given in the October session of the 2021 General Conference*
@@ -79,4 +77,3 @@ May we live our lives with order and seek to follow the sequence the Lord has ou
 
 
 
-#Faith #Learning #Ordinances #Spirituality

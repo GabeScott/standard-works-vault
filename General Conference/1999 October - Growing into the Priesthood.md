@@ -1,7 +1,5 @@
 # Growing into the Priesthood
 
-Gordon B. Hinckley
-
 By Elder Joseph B. Wirthlin - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1999 General Conference*
@@ -147,7 +145,3 @@ It is my prayer that we may all grow into the priesthood and be the kind of men 
 
 [^12]: *Church News,* 4 Sept. 1999, 3.
 
-
-
-
-#Commandments #God_The_Father #Gratitude #Holy_Ghost #Jesus_Christ #Joseph_Smith #Media #Music #Priesthood #Priorities #Prophets #Sacrament #Scripture_Study #Word_Of_Wisdom

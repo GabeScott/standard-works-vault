@@ -1,7 +1,5 @@
 # The Aaronic Priesthood Pathway
 
-Gordon B. Hinckley
-
 By Elder Thomas S. Monson - *Of the Quorum of The Twelve Apostles*
 
 *Given in the October session of the 1984 General Conference*
@@ -61,4 +59,3 @@ I invite each of you men to walk with me, shoulder to shoulder, together with al
 
 
 
-#Marriage #Missionary_Work #Priesthood

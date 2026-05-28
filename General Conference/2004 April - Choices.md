@@ -1,7 +1,5 @@
 # Choices
 
-Gordon B. Hinckley
-
 By President James E. Faust - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 2004 General Conference*
@@ -89,7 +87,3 @@ Brethren, it is my belief and testimony that collectively we have the responsibi
 
 [^10]: [[2 Nephi 15.20|2 Nephi 15:20]].
 
-
-
-
-#Agency #Prayer #Repentance #Responsibility

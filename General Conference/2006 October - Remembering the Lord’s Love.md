@@ -1,7 +1,5 @@
 # Remembering the Lord’s Love
 
-Gordon B. Hinckley
-
 By Kathleen H. Hughes - *First Counselor in the Relief Society General Presidency*
 
 *Given in the October session of the 2006 General Conference*
@@ -39,4 +37,3 @@ My prayer for each of us is that we will remember when the Lord has spoken His p
 
 
 
-#Holy_Ghost #Jesus_Christ #Peace #Scriptures

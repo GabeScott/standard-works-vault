@@ -1,7 +1,5 @@
 # “No Man Is an Island”
 
-Gordon B. Hinckley
-
 By Elder Richard H. Winkel - *Of the Seventy*
 
 *Given in the October session of the 1999 General Conference*
@@ -59,4 +57,3 @@ I am thankful for the web of friendship that has nurtured me throughout my life,
 
 
 
-#Conversion #Creation #Fellowshipping #Friendship #Love #Service

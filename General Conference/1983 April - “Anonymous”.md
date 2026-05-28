@@ -1,7 +1,5 @@
 # “Anonymous”
 
-Ezra Taft Benson
-
 By Elder Thomas S. Monson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1983 General Conference*
@@ -97,4 +95,3 @@ Loving service anonymously given may be unknown to man—but the gift and the gi
 
 
 
-#Charity #Generosity #Service

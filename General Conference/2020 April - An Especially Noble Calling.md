@@ -1,7 +1,5 @@
 # An Especially Noble Calling
 
-Russell M. Nelson
-
 By Joy D. Jones - *Primary General President*
 
 *Given in the April session of the 2020 General Conference*
@@ -137,7 +135,3 @@ Elder James E. Talmage tenderly reminded us, “The world’s greatest champion 
 
 [^29]: See [[2 Nephi 33.6|2 Nephi 33:6]]; [[D&C 76.22|Doctrine and Covenants 76:22]].
 
-
-
-
-#Restoration #Revelation #Women

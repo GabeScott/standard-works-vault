@@ -1,7 +1,5 @@
 # “But They Were in One”
 
-Spencer W. Kimball
-
 By Elder George P. Lee - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1976 General Conference*
@@ -63,4 +61,3 @@ I know that Joseph Smith really was a true prophet of God, that God the Father a
 
 
 
-#Love #Unity

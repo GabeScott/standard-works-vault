@@ -1,7 +1,5 @@
 # Light and Knowledge to the World
 
-N. Eldon Tanner
-
 By Elder Joseph Anderson - *Assistant to the Council of the Twelve*
 
 *Given in the October session of the 1972 General Conference*
@@ -93,4 +91,3 @@ I testify to these truths in the name of the Lord Jesus Christ. Amen.
 
 
 
-#Education #Joseph_Smith #Restoration #Spirituality

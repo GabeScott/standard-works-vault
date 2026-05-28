@@ -1,7 +1,5 @@
 # Atonement, Agency, Accountability
 
-Ezra Taft Benson
-
 By Elder Boyd K. Packer - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1988 General Conference*
@@ -137,4 +135,3 @@ In the name of Jesus Christ, amen.
 
 
 
-#Accountability #Agency #Atonement #Repentance

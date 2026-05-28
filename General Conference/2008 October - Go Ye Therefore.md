@@ -1,7 +1,5 @@
 # Go Ye Therefore
 
-Thomas S. Monson
-
 By Silvia H. Allred - *First Counselor in the Relief Society General Presidency*
 
 *Given in the October session of the 2008 General Conference*
@@ -95,7 +93,3 @@ We are the children of a loving Heavenly Father. He sent His Son to open the way
 
 [^7]: See *Preach My Gospel,* 219.
 
-
-
-
-#Book_Of_Mormon #Conversion #Missionary_Work

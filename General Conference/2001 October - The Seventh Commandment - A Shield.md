@@ -1,7 +1,5 @@
 # The Seventh Commandment: A Shield
 
-Gordon B. Hinckley
-
 By Elder Neal A. Maxwell - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2001 General Conference*
@@ -69,4 +67,3 @@ As we take our stand, the faithful will not be alone—not that alone, however. 
 
 
 
-#Agency #Commandments #Conscience #Discipleship #Duty #Evil #Faith #Family #Love #Morality #Satan

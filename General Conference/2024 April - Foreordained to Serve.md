@@ -1,7 +1,5 @@
 # Foreordained to Serve
 
-Dallin H. Oaks
-
 By Elder Steven R. Bangerter - *Of the Seventy*
 
 *Given in the April session of the 2024 General Conference*
@@ -97,7 +95,3 @@ Our Father in Heaven will answer your prayers, especially your prayers offered d
 
 [^19]: See Russell M. Nelson, “[[2018 April - Revelation for the Church, Revelation for Our Lives.md|Revelation for the Church, Revelation for Our Lives]],” *Ensign* or *Liahona*, May 2018, 93–96.
 
-
-
-
-#Divine_Nature #Foreordination #Gathering #Missionary_Service #Plan_Of_Salvation #Premortal_Existence #Service #Youth

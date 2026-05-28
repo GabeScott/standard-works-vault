@@ -1,7 +1,5 @@
 # Inspired Church Welfare
 
-Gordon B. Hinckley
-
 By Elder Joseph B. Wirthlin - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1999 General Conference*
@@ -140,7 +138,3 @@ May we follow His example is my prayer. In the name of Jesus Christ, amen.
 
 [^16]: [[D&C 81.5|D&C 81:5]].
 
-
-
-
-#Bishops #Covetousness #Education #Financial_Management #Generosity #Jesus_Christ #Preparation #Sacrifice #Self-Reliance #Welfare #Work

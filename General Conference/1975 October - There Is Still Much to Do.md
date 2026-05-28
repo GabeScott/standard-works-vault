@@ -1,7 +1,5 @@
 # There Is Still Much to Do
 
-Spencer W. Kimball
-
 By President Spencer W. Kimball - *President of the Church*
 
 *Given in the October session of the 1975 General Conference*
@@ -19,4 +17,3 @@ I leave my blessings, the blessings of the Lord, upon you as you go back to your
 
 
 
-#Welfare

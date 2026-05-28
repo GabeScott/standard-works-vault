@@ -1,7 +1,5 @@
 # The Keys That Never Rust
 
-Gordon B. Hinckley
-
 By Elder James E. Faust - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1994 General Conference*
@@ -107,7 +105,3 @@ As we conclude this historic conference, I am pleased to testify to the world of
 
 [^18]: [[2 Peter 1.20|2 Pet. 1:20]].
 
-
-
-
-#Authority #Obedience #Priesthood #Prophets

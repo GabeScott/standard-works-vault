@@ -1,7 +1,5 @@
 # Duties, Rewards, and Risks
 
-Ezra Taft Benson
-
 By Elder M. Russell Ballard - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1989 General Conference*
@@ -61,4 +59,3 @@ Brothers and sisters, the missionaries need our faith and prayers. Pray ferventl
 
 
 
-#Adversity #Missionary_Work

@@ -1,7 +1,5 @@
 # Living Welfare Principles
 
-Gordon B. Hinckley
-
 By President Marion G. Romney - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 1981 General Conference*
@@ -61,4 +59,3 @@ Let us have these things in mind and let us go forward with this great program. 
 
 
 
-#Charity

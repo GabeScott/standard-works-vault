@@ -1,7 +1,5 @@
 # The Language of the Spirit
 
-Spencer W. Kimball
-
 By Elder Joseph B. Wirthlin - *Assistant to the Council of the Twelve*
 
 *Given in the October session of the 1975 General Conference*
@@ -57,4 +55,3 @@ May I add to his words these of my own: I know that God lives, that Jesus is the
 
 
 
-#Missionary_Work #Spirituality

@@ -1,7 +1,5 @@
 # Becoming a Shepherd
 
-Russell M. Nelson
-
 By Bonnie H. Cordon - *Young Women General President*
 
 *Given in the October session of the 2018 General Conference*
@@ -115,7 +113,3 @@ When the day comes that we will kneel at the feet of our beloved Savior, having 
 
 [^10]: [[John 21.15|John 21:15]].
 
-
-
-
-#Jesus_Christ #Ministering #Service

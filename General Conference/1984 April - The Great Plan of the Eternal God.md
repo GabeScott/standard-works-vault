@@ -1,7 +1,5 @@
 # The Great Plan of the Eternal God
 
-Gordon B. Hinckley
-
 By Elder Neal A. Maxwell - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1984 General Conference*
@@ -20,7 +18,7 @@ So vital is this framework that if one stays or strays outside it, he risks prov
 
 At the center of the Father’s plan is Jesus Christ, mankind’s Redeemer. Yet, as foreseen, many judge Jesus “to be a thing of naught” ([[1 Nephi 19.9|1 Ne. 19:9]]), or “consider him” merely “a man.” ([[Mosiah 3.9|Mosiah 3:9]].) Whether others deny or delimit Jesus, for us He is our Lord and Savior! Comparatively, brothers and sisters, it matters very little what people think of us, but it matters very much what we think of Him. It matters very little, too, who others say we are; what matters is who we say Jesus is. (See [[Matthew 16.13|Matt. 16:13–17]][[Matthew 16.14|]][[Matthew 16.15|]][[Matthew 16.16|]][[Matthew 16.17|]].)
 
-For instance, we appreciate not only the towering divinity of Jesus Christ, but His breathtaking mobility and the scope of His shepherding. The resurrected Jesus revisited the Middle East scene of His mortal messiahship. Then some souls in the Americas. (See [[3 Nephi 11.1|3 Ne. 11]].) And then His other lost sheep. (See [[3 Nephi 17.4|3 Ne. 17:4]].)
+For instance, we appreciate not only the towering divinity of Jesus Christ, but His breathtaking mobility and the scope of His shepherding. The resurrected Jesus revisited the Middle East scene of His mortal messiahship. Then some souls in the Americas. (See [[3 Nephi 11.1|3 Ne. 11]][[3 Nephi 11.2|]][[3 Nephi 11.3|]][[3 Nephi 11.4|]][[3 Nephi 11.5|]][[3 Nephi 11.6|]][[3 Nephi 11.7|]][[3 Nephi 11.8|]][[3 Nephi 11.9|]][[3 Nephi 11.10|]][[3 Nephi 11.11|]][[3 Nephi 11.12|]][[3 Nephi 11.13|]][[3 Nephi 11.14|]][[3 Nephi 11.15|]][[3 Nephi 11.16|]][[3 Nephi 11.17|]][[3 Nephi 11.18|]][[3 Nephi 11.19|]][[3 Nephi 11.20|]][[3 Nephi 11.21|]][[3 Nephi 11.22|]][[3 Nephi 11.23|]][[3 Nephi 11.24|]][[3 Nephi 11.25|]][[3 Nephi 11.26|]][[3 Nephi 11.27|]][[3 Nephi 11.28|]][[3 Nephi 11.29|]][[3 Nephi 11.30|]][[3 Nephi 11.31|]][[3 Nephi 11.32|]][[3 Nephi 11.33|]][[3 Nephi 11.34|]][[3 Nephi 11.35|]][[3 Nephi 11.36|]][[3 Nephi 11.37|]][[3 Nephi 11.38|]][[3 Nephi 11.39|]][[3 Nephi 11.40|]][[3 Nephi 11.41|]].) And then His other lost sheep. (See [[3 Nephi 17.4|3 Ne. 17:4]].)
 
 In His selfless plan, the Lord doeth nothing save it be for the benefit of the children of men. (See [[2 Nephi 26.24|2 Ne. 26:24]].) He labors, lovingly and constantly, as Moses and Jeremiah declared, “for our good always.” ([[Deuteronomy 6.24|Deut. 6:24]]; see also [[Jeremiah 32.38|Jer. 32:38–40]][[Jeremiah 32.39|]][[Jeremiah 32.40|]].) In His grand design, His “work” and “glory” are “to bring to pass the immortality and eternal life of man.” ([[Moses 1.39|Moses 1:39]].) Thus, even when we truly learn to love God, we must humbly acknowledge that He loved us first. (See [[1 John 4.19|1 Jn. 4:19]].)
 
@@ -119,4 +117,3 @@ I so testify and assure in apostolic authority and in the holy name of Jesus Chr
 
 
 
-#Plan_Of_Salvation

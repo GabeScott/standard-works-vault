@@ -1,7 +1,5 @@
 # Hear the Prophet’s Voice and Obey
 
-Thomas S. Monson
-
 By Elder Robert D. Hales - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1995 General Conference*
@@ -116,4 +114,3 @@ I humbly add my testimony to the testimonies of all who have sustained the proph
 
 
 
-#Ezra_Taft_Benson #Howard_W._Hunter #Prophets #Restoration

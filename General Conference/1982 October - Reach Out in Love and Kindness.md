@@ -1,7 +1,5 @@
 # Reach Out in Love and Kindness
 
-Spencer W. Kimball
-
 By President Gordon B. Hinckley - *Counselor in the First Presidency*
 
 *Given in the October session of the 1982 General Conference*
@@ -61,4 +59,3 @@ God bless all of us to open our eyes and to unstop our ears, to look, to listen,
 
 
 
-#Love

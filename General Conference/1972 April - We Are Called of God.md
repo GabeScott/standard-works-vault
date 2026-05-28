@@ -1,7 +1,5 @@
 # We Are Called of God
 
-Wilford G. Edling
-
 By President Loren C. Dunn - *Of the First Council of the Seventy*
 
 *Given in the April session of the 1972 General Conference*
@@ -79,4 +77,3 @@ May the Lord so bless us now that we may sustain those whom he has called and do
 
 
 
-#Authority #Church_Callings #Church_Leaders

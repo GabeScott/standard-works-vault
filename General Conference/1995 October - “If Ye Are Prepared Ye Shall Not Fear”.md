@@ -1,7 +1,5 @@
 # “If Ye Are Prepared Ye Shall Not Fear”
 
-Gordon B. Hinckley
-
 By Elder L. Tom Perry - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1995 General Conference*
@@ -71,4 +69,3 @@ May God bless us with the wisdom to follow the counsel we have received as we pr
 
 
 
-#Education #Employment #Financial_Management #Goals #Preparation #Self-Reliance #Worldliness

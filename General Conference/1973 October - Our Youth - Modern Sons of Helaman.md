@@ -1,7 +1,5 @@
 # Our Youth: Modern Sons of Helaman
 
-Harold B. Lee
-
 By Bishop Victor L. Brown - *Presiding Bishop*
 
 *Given in the October session of the 1973 General Conference*
@@ -83,4 +81,3 @@ May the Lord bless this royal generation that they may achieve that which he has
 
 
 
-#Youth

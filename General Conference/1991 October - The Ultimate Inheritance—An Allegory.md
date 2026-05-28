@@ -1,7 +1,5 @@
 # The Ultimate Inheritance—An Allegory
 
-Gordon B. Hinckley
-
 By Elder Cree-L Kofford - *Of the Seventy*
 
 *Given in the October session of the 1991 General Conference*
@@ -71,4 +69,3 @@ In the name of the Lord Jesus Christ, amen.
 
 
 
-#Adversity #Jesus_Christ #Obedience #Plan_Of_Salvation

@@ -1,7 +1,5 @@
 # University for Eternal Life
 
-Ezra Taft Benson
-
 By Elder F. Enzio Busche - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1989 General Conference*
@@ -59,4 +57,3 @@ I leave you this testimony as your brother and your servant, and I do this in th
 
 
 
-#Honesty #Repentance #Temple_Work

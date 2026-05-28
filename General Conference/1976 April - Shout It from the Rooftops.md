@@ -1,7 +1,5 @@
 # Shout It from the Rooftops
 
-Spencer W. Kimball
-
 By Elder Jacob de Jager - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1976 General Conference*
@@ -41,4 +39,3 @@ This conference will touch our hearts and change our lives, and I bear witness t
 
 
 
-#Missionary_Work #Preparation

@@ -1,7 +1,5 @@
 # The Gospel of Love
 
-Gordon B. Hinckley
-
 By Elder Loren C. Dunn - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1985 General Conference*
@@ -101,4 +99,3 @@ By way of testimony, I wish to express my love for my Father in Heaven, for his 
 
 
 
-#Charity #Love

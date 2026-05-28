@@ -1,7 +1,5 @@
 # Waiting for the Prodigal
 
-Cheryl A. Esplin
-
 By Elder Brent H. Nielson - *Of the Seventy*
 
 *Given in the April session of the 2015 General Conference*
@@ -57,4 +55,3 @@ May you and I receive the revelation to know how to best approach those in our l
 
 
 
-#Activation #Family #Jesus_Christ #Love #Patience

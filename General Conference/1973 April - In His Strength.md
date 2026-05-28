@@ -1,7 +1,5 @@
 # In His Strength
 
-Harold B. Lee
-
 By Elder Marvin J. Ashton - *Of the Council of the Twelve*
 
 *Given in the April session of the 1973 General Conference*
@@ -119,4 +117,3 @@ God lives. He too is someone—real and eternal—and he wants us to be someone 
 
 
 
-#Individual_Worth #Teaching

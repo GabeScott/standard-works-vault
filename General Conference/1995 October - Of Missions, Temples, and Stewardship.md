@@ -1,7 +1,5 @@
 # Of Missions, Temples, and Stewardship
 
-Gordon B. Hinckley
-
 By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the October session of the 1995 General Conference*
@@ -117,4 +115,3 @@ It is true. It is our Father’s work. It is the church of our Redeemer. The pri
 
 
 
-#Church_Growth #Financial_Management #Jesus_Christ #Missionary_Work #Prayer #Temple_Work #Temples #Tithing #Worship

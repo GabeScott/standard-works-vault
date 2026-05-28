@@ -1,7 +1,5 @@
 # That Your Joy Might Be Full
 
-Sharon Eubank
-
 By Jean B. Bingham - *Relief Society General President*
 
 *Given in the October session of the 2017 General Conference*
@@ -105,7 +103,3 @@ Come unto Him. I testify that as you center your life on Jesus Christ, you will 
 
 [^23]: “[The Living Christ](https://www.churchofjesuschrist.org/study/scriptures/the-living-christ-the-testimony-of-the-apostles/the-living-christ-the-testimony-of-the-apostles?lang=eng),” 3.
 
-
-
-
-#Adversity #Faith #Healing #Jesus_Christ #Joy #Peace #Testimony

@@ -1,7 +1,5 @@
 # Growing into the Priesthood
 
-Gordon B. Hinckley
-
 By Elder David B. Haight - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2003 General Conference*
@@ -51,4 +49,3 @@ This work is true. In the name of Jesus Christ, amen.
 
 
 
-#Example #Priesthood #Service #Testimony

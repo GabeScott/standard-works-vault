@@ -1,7 +1,5 @@
 # The Sustaining of Church Officers
 
-Thomas S. Monson
-
 By President Thomas S. Monson - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 1993 General Conference*

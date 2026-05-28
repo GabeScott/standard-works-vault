@@ -1,7 +1,5 @@
 # Returning Home
 
-Thomas S. Monson
-
 By Elder Eduardo Gavarret - *Of the Seventy*
 
 *Given in the October session of the 2008 General Conference*
@@ -88,4 +86,3 @@ I bear my testimony of the love of our Father and Savior. He loved us first and 
 
 
 
-#Activation #Home #Missionary_Work #Service

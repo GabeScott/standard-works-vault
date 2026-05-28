@@ -1,7 +1,5 @@
 # The Power to Make a Difference
 
-Gordon B. Hinckley
-
 By Elder Richard G. Scott - *Of the Presidency of the First Quorum of the Seventy*
 
 *Given in the October session of the 1983 General Conference*
@@ -61,4 +59,3 @@ Begin now with your best effort. Reach out to another. You will feel the power o
 
 
 
-#Service

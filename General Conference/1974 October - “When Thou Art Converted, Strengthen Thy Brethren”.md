@@ -1,7 +1,5 @@
 # “When Thou Art Converted, Strengthen Thy Brethren”
 
-Spencer W. Kimball
-
 By Elder L. Tom Perry - *Of the Council of the Twelve*
 
 *Given in the October session of the 1974 General Conference*
@@ -107,4 +105,3 @@ May I add my witness to this conference that God lives, that Jesus is the Savior
 
 
 
-#Commitment #Conversion

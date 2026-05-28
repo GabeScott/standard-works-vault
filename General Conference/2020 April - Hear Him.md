@@ -1,7 +1,5 @@
 # Hear Him
 
-Russell M. Nelson
-
 By President Russell M. Nelson - *President of The Church of Jesus Christ of Latter-day Saints*
 
 *Given in the April session of the 2020 General Conference*
@@ -139,7 +137,3 @@ God lives! Jesus is the Christ! His Church has been restored! He and His Father,
 
 [^14]: See [[2 Corinthians 3.3|2 Corinthians 3:3]].
 
-
-
-
-#Holy_Ghost #Jesus_Christ #Revelation #Scripture_Study #Temple_Work

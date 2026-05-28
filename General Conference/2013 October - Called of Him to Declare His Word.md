@@ -1,7 +1,5 @@
 # Called of Him to Declare His Word
 
-Thomas S. Monson
-
 By Elder Randy D. Funk - *Of the Seventy*
 
 *Given in the October session of the 2013 General Conference*
@@ -101,7 +99,3 @@ I bear witness of our Savior, Jesus Christ, and of His “divine command”[^18]
 
 [^21]: [[3 Nephi 5.13|3 Nephi 5:13]].
 
-
-
-
-#Atonement #Missionary_Work

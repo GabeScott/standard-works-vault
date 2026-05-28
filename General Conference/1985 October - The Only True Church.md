@@ -1,7 +1,5 @@
 # The Only True Church
 
-Gordon B. Hinckley
-
 By Elder Boyd K. Packer - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1985 General Conference*
@@ -161,4 +159,3 @@ If we can stand without shame, without hesitancy, without embarrassment, without
 
 
 
-#Church_Organization #Jesus_Christ #Testimony

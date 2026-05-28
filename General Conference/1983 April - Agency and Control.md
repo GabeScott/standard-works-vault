@@ -1,7 +1,5 @@
 # Agency and Control
 
-Ezra Taft Benson
-
 By Elder Boyd K. Packer - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1983 General Conference*
@@ -85,4 +83,3 @@ The Lord was a teacher. I bear testimony of Him, and pray that He will bless all
 
 
 
-#Agency #Scriptures #Self-Control

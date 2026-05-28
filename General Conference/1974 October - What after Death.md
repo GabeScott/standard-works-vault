@@ -1,7 +1,5 @@
 # What after Death?
 
-Spencer W. Kimball
-
 By Elder LeGrand Richards - *Of the Council of the Twelve*
 
 *Given in the October session of the 1974 General Conference*
@@ -77,4 +75,3 @@ I close my remarks today with my faith that the Lord knows what he is doing and 
 
 
 
-#Death #Jesus_Christ

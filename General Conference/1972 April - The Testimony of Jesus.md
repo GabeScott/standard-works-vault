@@ -1,7 +1,5 @@
 # The Testimony of Jesus
 
-Wilford G. Edling
-
 By President Bruce R. McConkie - *Of the First Council of the Seventy*
 
 *Given in the April session of the 1972 General Conference*
@@ -114,4 +112,3 @@ I proclaim these truths and desire in my heart to have men believe and obey. I t
 
 
 
-#Jesus_Christ #Testimony

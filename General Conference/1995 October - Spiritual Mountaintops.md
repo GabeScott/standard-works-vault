@@ -1,7 +1,5 @@
 # Spiritual Mountaintops
 
-Gordon B. Hinckley
-
 By Elder Jack H Goaslind - *Of the Presidency of the Seventy*
 
 *Given in the October session of the 1995 General Conference*
@@ -49,4 +47,3 @@ God bless you, parents. We love you. We know it is not easy to do what you are d
 
 
 
-#Adversity #Atonement #Holy_Ghost #Jesus_Christ #Obedience #Parenthood #Peace #Spirituality #Teaching #Temples #Testimony #Truth

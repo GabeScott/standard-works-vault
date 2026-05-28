@@ -1,7 +1,5 @@
 # Couple Missionaries: Blessings from Sacrifice and Service
 
-Gordon B. Hinckley
-
 By Elder Robert D. Hales - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2005 General Conference*
@@ -95,7 +93,3 @@ As members of The Church of Jesus Christ of Latter-day Saints, it is our greates
 
 [^19]: [[D&C 98.13|D&C 98:13]].
 
-
-
-
-#Couple_Missionaries #Example #Faith #Missionary_Work #Sacrifice #Service

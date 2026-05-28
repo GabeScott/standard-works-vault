@@ -1,7 +1,5 @@
 # The Power of Prayer
 
-Thomas S. Monson
-
 By President Thomas S. Monson - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 1991 General Conference*
@@ -49,4 +47,3 @@ I heartily endorse this plea of our prophet and President, in the name of Jesus 
 
 
 
-#Peace #Prayer #Worship

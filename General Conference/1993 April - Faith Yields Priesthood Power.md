@@ -1,7 +1,5 @@
 # Faith Yields Priesthood Power
 
-Thomas S. Monson
-
 By Elder John K. Carmack - *Of the Seventy*
 
 *Given in the April session of the 1993 General Conference*
@@ -93,4 +91,3 @@ So, brethren, let’s plead fervently with the Lord as the Apostles of old did: 
 
 
 
-#Faith #Priesthood

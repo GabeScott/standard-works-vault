@@ -1,7 +1,5 @@
 # May We Be Faithful and True
 
-Gordon B. Hinckley
-
 By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the April session of the 1997 General Conference*
@@ -57,4 +55,3 @@ May we be faithful and true, doing our duty to move forward the eternal work of 
 
 
 
-#Church_Growth #Church_Leaders #Faith #Jesus_Christ #Kingdom_Of_God #Pioneers #Quorums_Of_Seventy #Relief_Society #Temples

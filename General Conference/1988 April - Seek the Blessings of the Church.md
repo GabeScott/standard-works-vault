@@ -1,7 +1,5 @@
 # Seek the Blessings of the Church
 
-Ezra Taft Benson
-
 By Elder James M. Paramore - *Of the Presidency of the First Quorum of the Seventy*
 
 *Given in the April session of the 1988 General Conference*
@@ -77,4 +75,3 @@ Beloved brothers and sisters, this is the Lord’s church, to which we are highl
 
 
 
-#Church_Organization

@@ -1,7 +1,5 @@
 # The Joyful Burden of Discipleship
 
-Thomas S. Monson
-
 By Elder Ronald A. Rasband - *Of the Presidency of the Seventy*
 
 *Given in the April session of the 2014 General Conference*
@@ -111,7 +109,3 @@ May we all find the joy that comes from the sacred service of bearing one anothe
 
 [^11]: [[Mosiah 2.17|Mosiah 2:17]].
 
-
-
-
-#Adversity #Discipleship #Service

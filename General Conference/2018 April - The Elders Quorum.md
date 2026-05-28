@@ -1,7 +1,5 @@
 # The Elders Quorum
 
-Henry B. Eyring
-
 By Elder D. Todd Christofferson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2018 General Conference*
@@ -83,7 +81,3 @@ The First Presidency, the Quorum of the Twelve Apostles, and the Presidency of t
 
 [^6]: D. Todd Christofferson, “[[1998 October - The Priesthood Quorum.md|The Priesthood Quorum]],” *Ensign,* Nov. 1998, 40–41; *Liahona,* Jan. 1999, 47; see also Vaughn J. Featherstone, “[[1973 April - “Now Abideth Faith, Hope, and Charity”.md|Now Abideth Faith, Hope, and Charity]],” *Ensign,* July 1973, 36–37.
 
-
-
-
-#Melchizedek_Priesthood #Ministering #Priesthood_Quorums #Service

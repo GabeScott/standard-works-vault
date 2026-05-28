@@ -1,7 +1,5 @@
 # Obedience to Law Is Liberty
 
-Thomas S. Monson
-
 By Elder L. Tom Perry - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2013 General Conference*
@@ -87,7 +85,3 @@ May we ever be a light on the hill, an example in keeping the commandments, whic
 
 [^5]: “The Family: A Proclamation to the World,” *Ensign* or *Liahona,* Nov. 2010, 129.
 
-
-
-
-#Agency #Commandments #Obedience

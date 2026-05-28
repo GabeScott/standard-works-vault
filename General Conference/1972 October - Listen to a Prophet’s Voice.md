@@ -1,7 +1,5 @@
 # Listen to a Prophet’s Voice
 
-N. Eldon Tanner
-
 By Elder Ezra Taft Benson - *Of the Council of the Twelve*
 
 *Given in the October session of the 1972 General Conference*
@@ -91,4 +89,3 @@ And now, may I leave you my witness that I know that God lives—he is not dead;
 
 
 
-#Commandments #Joseph_Smith #Prophets #Restoration

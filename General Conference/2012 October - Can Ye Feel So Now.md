@@ -1,7 +1,5 @@
 # Can Ye Feel So Now?
 
-Thomas S. Monson
-
 By Elder Quentin L. Cook - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2012 General Conference*
@@ -107,7 +105,7 @@ My sincere prayer is that each of us will take any necessary action to feel the 
 
 [^16]: “Love at Home,” *Hymns,* no. 294.
 
-[^17]: See [[Alma 39.1|Alma 39]].
+[^17]: See [[Alma 39.1|Alma 39]][[Alma 39.2|]][[Alma 39.3|]][[Alma 39.4|]][[Alma 39.5|]][[Alma 39.6|]][[Alma 39.7|]][[Alma 39.8|]][[Alma 39.9|]][[Alma 39.10|]][[Alma 39.11|]][[Alma 39.12|]][[Alma 39.13|]][[Alma 39.14|]][[Alma 39.15|]][[Alma 39.16|]][[Alma 39.17|]][[Alma 39.18|]][[Alma 39.19|]].
 
 [^18]: See Ezra Taft Benson, “[[1986 April - Cleansing the Inner Vessel.md|Cleansing the Inner Vessel]],” *Ensign,* May 1986, 4.
 
@@ -131,7 +129,3 @@ My sincere prayer is that each of us will take any necessary action to feel the 
 
 [^28]: [[Isaiah 1.18|Isaiah 1:18]].
 
-
-
-
-#Atonement #Conversion #Morality #Pornography

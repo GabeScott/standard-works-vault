@@ -1,7 +1,5 @@
 # Holiness to the Lord in Everyday Life
 
-Henry B. Eyring
-
 By Elder Gerrit W. Gong - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2024 General Conference*
@@ -38,7 +36,7 @@ What does holiness to the Lord in everyday life look like?
 
 Holiness to the Lord in everyday life looks like two faithful young adults, married for a year, sharing with authenticity and vulnerability gospel covenants, sacrifice, and service in their unfolding lives.[^4]
 
-She begins, “In high school, I was in a dark place. I felt like God wasn’t there for me. One night, a text from a friend said, ‘Hey, have you read [[Alma 36.1|Alma 36]] ever?’
+She begins, “In high school, I was in a dark place. I felt like God wasn’t there for me. One night, a text from a friend said, ‘Hey, have you read [[Alma 36.1|Alma 36]][[Alma 36.2|]][[Alma 36.3|]][[Alma 36.4|]][[Alma 36.5|]][[Alma 36.6|]][[Alma 36.7|]][[Alma 36.8|]][[Alma 36.9|]][[Alma 36.10|]][[Alma 36.11|]][[Alma 36.12|]][[Alma 36.13|]][[Alma 36.14|]][[Alma 36.15|]][[Alma 36.16|]][[Alma 36.17|]][[Alma 36.18|]][[Alma 36.19|]][[Alma 36.20|]][[Alma 36.21|]][[Alma 36.22|]][[Alma 36.23|]][[Alma 36.24|]][[Alma 36.25|]][[Alma 36.26|]][[Alma 36.27|]][[Alma 36.28|]][[Alma 36.29|]][[Alma 36.30|]] ever?’
 
 “As I started reading,” she said, “I was overcome with peace and love. I felt like I was being given this big hug. When I read [[Alma 36.12|Alma 36:12]], I knew Heavenly Father saw me and knew exactly how I was feeling.”
 
@@ -137,7 +135,3 @@ As did my friend, you may wonder if your Heavenly Father loves you. The answer i
 
 [^11]: On our temples, the standard inscription is “Holiness to the Lord, the House of the Lord.” A few temples include more than this inscription, such as adding the name of the Church. A few temples have the inscription reversed: “The House of the Lord, Holiness to the Lord” (in Atlanta, Los Angeles, and San Diego in the United States). The Logan Utah Temple inscription simply states, “Holiness to the Lord.”
 
-
-
-
-#Discipleship #Holiness #Missionary_Service #Temples

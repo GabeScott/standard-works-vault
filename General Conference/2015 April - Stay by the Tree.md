@@ -1,7 +1,5 @@
 # Stay by the Tree
 
-Cheryl A. Esplin
-
 By Elder Kevin W. Pearson - *Of the Seventy*
 
 *Given in the April session of the 2015 General Conference*
@@ -95,7 +93,3 @@ I bear witness of the resurrected, living Christ. I know that He lives. My great
 
 [^13]: [[1 Nephi 15.24|1 Nephi 15:24–25]][[1 Nephi 15.25|]].
 
-
-
-
-#Book_Of_Mormon #Conversion #Covenants #Discipleship #Endurance #Jesus_Christ

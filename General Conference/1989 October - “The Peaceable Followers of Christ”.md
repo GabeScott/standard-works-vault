@@ -1,7 +1,5 @@
 # “The Peaceable Followers of Christ”
 
-Ezra Taft Benson
-
 By Elder L. Tom Perry - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1989 General Conference*
@@ -75,4 +73,3 @@ I love the gospel of our Lord and Savior. It has brought into my life the greate
 
 
 
-#Adversity #Love #Missionary_Work #Peace #Service

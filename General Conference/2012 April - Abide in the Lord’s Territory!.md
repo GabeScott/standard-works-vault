@@ -1,7 +1,5 @@
 # Abide in the Lord’s Territory!
 
-Thomas S. Monson
-
 By Elder Ulisses Soares - *Of the Seventy*
 
 *Given in the April session of the 2012 General Conference*
@@ -49,4 +47,3 @@ My prayer, brothers and sisters, as we think about our covenants, is that we may
 
 
 
-#Agency #Covenants #Obedience

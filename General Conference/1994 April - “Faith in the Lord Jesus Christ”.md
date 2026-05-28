@@ -1,7 +1,5 @@
 # “Faith in the Lord Jesus Christ”
 
-James E. Faust
-
 By Elder Dallin H. Oaks - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1994 General Conference*
@@ -79,4 +77,3 @@ I testify that these things are true. I invoke the blessings of Almighty God upo
 
 
 
-#Atonement #Death #Faith #Jesus_Christ #Love #Plan_Of_Salvation #Prayer #Trust #Women

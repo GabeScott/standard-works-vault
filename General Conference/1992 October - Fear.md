@@ -1,7 +1,5 @@
 # Fear
 
-Gordon B. Hinckley
-
 By Virginia H. Pearce - *First Counselor in the Young Women General Presidency*
 
 *Given in the October session of the 1992 General Conference*
@@ -85,4 +83,3 @@ All that are with me salute you. We love you and are aware of your fears and you
 
 
 
-#Courage #Faith #Fear

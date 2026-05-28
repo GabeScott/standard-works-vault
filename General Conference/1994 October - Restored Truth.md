@@ -1,7 +1,5 @@
 # Restored Truth
 
-Gordon B. Hinckley
-
 By Elder M. Russell Ballard - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1994 General Conference*
@@ -105,4 +103,3 @@ If you will do so, I believe you will come to know as I know that The Church of 
 
 
 
-#Apostasy #Book_Of_Mormon #Joseph_Smith #Restoration #Truth

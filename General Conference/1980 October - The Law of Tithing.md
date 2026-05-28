@@ -1,7 +1,5 @@
 # The Law of Tithing
 
-Spencer W. Kimball
-
 By President Spencer W. Kimball - *President of the Church*
 
 *Given in the October session of the 1980 General Conference*
@@ -47,4 +45,3 @@ I bear my testimony, brothers and sisters, and witness to the divinity of this i
 
 
 
-#Tithing

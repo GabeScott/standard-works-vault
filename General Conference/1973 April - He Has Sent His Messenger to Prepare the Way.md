@@ -1,7 +1,5 @@
 # He Has Sent His Messenger to Prepare the Way
 
-Harold B. Lee
-
 By Elder LeGrand Richards - *Of the Council of the Twelve*
 
 *Given in the April session of the 1973 General Conference*
@@ -123,4 +121,3 @@ I bear you my witness that there isn’t a man or a woman in this world who real
 
 
 
-#Missionary_Work #Restoration

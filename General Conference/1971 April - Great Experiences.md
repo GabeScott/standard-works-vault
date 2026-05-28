@@ -1,7 +1,5 @@
 # Great Experiences
 
-Joseph Fielding Smith
-
 By Elder Sterling W. Sill - *Assistant to the Council of the Twelve*
 
 *Given in the April session of the 1971 General Conference*
@@ -87,4 +85,3 @@ And my wish for each one of you is that you may spend your eternal life in the c
 
 
 
-#Success

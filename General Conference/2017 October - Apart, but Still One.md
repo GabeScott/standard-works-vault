@@ -1,7 +1,5 @@
 # Apart, but Still One
 
-Sharon Eubank
-
 By Elder Joni L. Koch - *Of the Seventy*
 
 *Given in the October session of the 2017 General Conference*
@@ -65,7 +63,3 @@ Brothers and sisters, I testify that as we decide to be one with the members and
 
 [^4]: [[John 17.21|John 17:21]].
 
-
-
-
-#Criticism #Unity

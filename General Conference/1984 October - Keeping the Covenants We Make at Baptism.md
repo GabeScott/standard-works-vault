@@ -1,7 +1,5 @@
 # Keeping the Covenants We Make at Baptism
 
-Gordon B. Hinckley
-
 By Dwan J. Young - *Primary General President*
 
 *Given in the October session of the 1984 General Conference*
@@ -88,4 +86,3 @@ I pray that we will have unity and love as we strive together to keep the covena
 
 
 
-#Covenants #Ordinances

@@ -1,7 +1,5 @@
 # That We May Always Have His Spirit to Be with Us
 
-Robert D. Hales
-
 By Elder David A. Bednar - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2006 General Conference*
@@ -81,4 +79,3 @@ My beloved brothers and sisters, I testify of the living reality of God the Eter
 
 
 
-#Covenants #Holy_Ghost #Ordinances #Sacrament

@@ -1,7 +1,5 @@
 # “Ye Shall Feast upon This Fruit”
 
-Thomas S. Monson
-
 By Janette C. Hales - *Young Women General President*
 
 *Given in the April session of the 1995 General Conference*
@@ -63,4 +61,3 @@ This is our Heavenly Father’s promise to us if we respond to the invitation to
 
 
 
-#Scripture_Study #Young_Women

@@ -1,7 +1,5 @@
 # The Finest Homes
 
-Russell M. Nelson
-
 By Elder L. Whitney Clayton - *Of the Presidency of the Seventy*
 
 *Given in the April session of the 2020 General Conference*
@@ -83,7 +81,3 @@ I gratefully testify that the God and Father of us all lives. His Son, the Lord 
 
 [^13]: [[Psalms 127.1|Psalm 127:1]].
 
-
-
-
-#Family #Jesus_Christ #Temples

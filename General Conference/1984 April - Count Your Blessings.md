@@ -1,7 +1,5 @@
 # Count Your Blessings
 
-Gordon B. Hinckley
-
 By Elder Yoshihiko Kikuchi - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1984 General Conference*
@@ -120,4 +118,3 @@ I know that he lives; I know that he loves us; and I bear you my witness in the 
 
 
 
-#Adversity #Blessings

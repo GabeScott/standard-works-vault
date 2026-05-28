@@ -1,7 +1,5 @@
 # Christ: The Light That Shines in Darkness
 
-Ulisses Soares
-
 By Sharon Eubank - *First Counselor in the Relief Society General Presidency*
 
 *Given in the April session of the 2019 General Conference*
@@ -123,7 +121,3 @@ Take a few more steps on the covenant path, even if it’s too dark to see very 
 
 [^29]: [[D&C 88.63|Doctrine and Covenants 88:63]].
 
-
-
-
-#Faith #Hope #Jesus_Christ

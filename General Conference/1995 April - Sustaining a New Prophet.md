@@ -1,7 +1,5 @@
 # Sustaining a New Prophet
 
-Thomas S. Monson
-
 By Elder David B. Haight - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1995 General Conference*
@@ -77,4 +75,3 @@ This work is true. It will move forward to carry out all the divine plans of our
 
 
 
-#Church_Leaders #Gordon_B._Hinckley #Howard_W._Hunter

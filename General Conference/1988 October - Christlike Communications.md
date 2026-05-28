@@ -1,7 +1,5 @@
 # Christlike Communications
 
-Ezra Taft Benson
-
 By Elder L. Lionel Kendrick - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1988 General Conference*
@@ -45,4 +43,3 @@ Christlike communications will help us to develop righteous relationships and ul
 
 
 
-#Accountability #Communication #Honesty

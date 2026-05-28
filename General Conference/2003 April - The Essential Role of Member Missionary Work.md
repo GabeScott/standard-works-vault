@@ -1,7 +1,5 @@
 # The Essential Role of Member Missionary Work
 
-Gordon B. Hinckley
-
 By Elder M. Russell Ballard - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2003 General Conference*
@@ -63,4 +61,3 @@ We can and we must do better, brothers and sisters. I pray that the Lord will gr
 
 
 
-#Love #Missionary_Work #Prayer #Worthiness

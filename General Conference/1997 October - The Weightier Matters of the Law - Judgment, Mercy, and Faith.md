@@ -1,7 +1,5 @@
 # The Weightier Matters of the Law: Judgment, Mercy, and Faith
 
-Gordon B. Hinckley
-
 By President James E. Faust - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 1997 General Conference*
@@ -177,7 +175,3 @@ Those who extend judgment, mercy, faith, and forgiveness exhibit a greatness of 
 
 [^28]: [[2 Nephi 9.41|2 Ne. 9:41]].
 
-
-
-
-#Agency #Church_Leaders #Commandments #Faith #Family #Forgiveness #Holy_Ghost #Home #Honesty #Jesus_Christ #Judging #Love #Mercy #Priesthood

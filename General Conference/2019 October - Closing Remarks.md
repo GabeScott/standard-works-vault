@@ -1,7 +1,5 @@
 # Closing Remarks
 
-Jeffrey R. Holland
-
 By President Russell M. Nelson
 
 *Given in the October session of the 2019 General Conference*
@@ -93,7 +91,3 @@ I so bless you, reaffirming my love for you, with my testimony that God lives! J
 
 [^3]: [Teachings of Presidents of the Church: Joseph Smith](https://www.churchofjesuschrist.org/study/manual/teachings-joseph-smith/chapter-11?lang=eng&id=p23#p23) (2007), 142.
 
-
-
-
-#First_Vision #Restoration #Temples

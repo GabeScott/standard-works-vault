@@ -1,7 +1,5 @@
 # Raised in Hope
 
-Gordon B. Hinckley
-
 By Chieko N. Okazaki - *First Counselor in the Relief Society General Presidency*
 
 *Given in the October session of the 1996 General Conference*
@@ -71,4 +69,3 @@ I testify that my Christ is my hope. He is my hope on rainy Monday mornings, my 
 
 
 
-#Agency #Atonement #Death #Hope #Jesus_Christ #Women

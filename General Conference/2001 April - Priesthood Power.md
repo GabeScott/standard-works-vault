@@ -1,7 +1,5 @@
 # Priesthood Power
 
-Gordon B. Hinckley
-
 By Elder John H. Groberg - *Of the Seventy*
 
 *Given in the April session of the 2001 General Conference*
@@ -79,7 +77,3 @@ In the name of Jesus Christ, amen.
 
 [^4]: [[Psalms 24.3|Ps. 24:3–4]][[Psalms 24.4|]].
 
-
-
-
-#Example #Family #Fatherhood #Healing #Jesus_Christ #Leadership #Morality #Obedience #Ordinances #Priesthood #Sacrifice #Satan #Service #Sin

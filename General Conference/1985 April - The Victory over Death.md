@@ -1,7 +1,5 @@
 # The Victory over Death
 
-Gordon B. Hinckley
-
 By President Gordon B. Hinckley - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 1985 General Conference*
@@ -125,4 +123,3 @@ You responded in a magnificent way in sharing of your plenty with those who are 
 
 
 
-#Jesus_Christ #Resurrection

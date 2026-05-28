@@ -1,7 +1,5 @@
 # Serve
 
-Jean B. Bingham
-
 By Elder Carl B. Cook - *Of the Seventy*
 
 *Given in the October session of the 2016 General Conference*
@@ -117,7 +115,3 @@ May the Lord bless each of us in our efforts to serve and become true followers 
 
 [^22]: See [[Moroni 7.48|Moroni 7:48]].
 
-
-
-
-#Church_Callings #Jesus_Christ #Service #Unity

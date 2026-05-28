@@ -1,7 +1,5 @@
 # If Ye Are Prepared Ye Shall Not Fear
 
-Gordon B. Hinckley
-
 By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the October session of the 2005 General Conference*
@@ -121,4 +119,3 @@ I have faith, my dear brethren, that the Lord will bless us and watch over us an
 
 
 
-#Faith #Obedience #Preparation #Priesthood #Safety #Self-Reliance #Service

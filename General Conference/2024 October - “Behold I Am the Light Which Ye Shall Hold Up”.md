@@ -1,7 +1,5 @@
 # “Behold I Am the Light Which Ye Shall Hold Up”
 
-Henry B. Eyring
-
 By Elder Ronald A. Rasband - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2024 General Conference*
@@ -133,7 +131,3 @@ I bear my apostolic witness that Jesus Christ is “the light … of the world.�
 
 [^28]: [[3 Nephi 11.11|3 Nephi 11:11]].
 
-
-
-
-#Jesus_Christ #Prophets #Sustaining #Temples

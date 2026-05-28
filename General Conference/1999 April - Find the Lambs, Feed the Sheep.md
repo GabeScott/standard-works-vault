@@ -1,7 +1,5 @@
 # Find the Lambs, Feed the Sheep
 
-Gordon B. Hinckley
-
 By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the April session of the 1999 General Conference*
@@ -183,4 +181,3 @@ This is God’s holy work. This is His Church and kingdom. The vision that occur
 
 
 
-#Activation #Fellowshipping #Missionary_Work

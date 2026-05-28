@@ -1,7 +1,5 @@
 # Letter to a Returned Missionary
 
-Spencer W. Kimball
-
 By Elder Charles A. Didier - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1977 General Conference*
@@ -53,4 +51,3 @@ Now the time has come to leave, but you should know that what you once were you 
 
 
 
-#Activation #Missionary_Work

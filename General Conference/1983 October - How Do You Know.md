@@ -1,7 +1,5 @@
 # How Do You Know?
 
-Gordon B. Hinckley
-
 By Elder William R. Bradford - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1983 General Conference*
@@ -87,4 +85,3 @@ The Book of Mormon holds out to us a fulness of what we must be saved from. It g
 
 
 
-#Atonement

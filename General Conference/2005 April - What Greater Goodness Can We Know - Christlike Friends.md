@@ -1,7 +1,5 @@
 # What Greater Goodness Can We Know: Christlike Friends
 
-Gordon B. Hinckley
-
 By Kathleen H. Hughes - *First Counselor in the Relief Society General Presidency*
 
 *Given in the April session of the 2005 General Conference*
@@ -61,4 +59,3 @@ I bear you my testimony today that Christ lives. I give thanks for Him. I pray t
 
 
 
-#Friendship #Kindness #Service

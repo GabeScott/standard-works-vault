@@ -1,7 +1,5 @@
 # The Plan of Happiness
 
-Cheryl A. Esplin
-
 By President Boyd K. Packer - *President of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2015 General Conference*
@@ -75,4 +73,3 @@ I bear witness that God lives, that Jesus is the Christ, that the Atonement is n
 
 
 
-#Children #Family #Love #Morality #Plan_Of_Salvation #Temples

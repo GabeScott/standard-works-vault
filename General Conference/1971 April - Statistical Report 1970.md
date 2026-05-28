@@ -1,7 +1,5 @@
 # Statistical Report 1970
 
-Joseph Fielding Smith
-
 By Elder Joseph Anderson
 
 *Given in the April session of the 1971 General Conference*

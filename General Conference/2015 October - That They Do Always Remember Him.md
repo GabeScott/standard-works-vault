@@ -1,7 +1,5 @@
 # That They Do Always Remember Him
 
-Rosemary M. Wixom
-
 By Elder Claudio R. M. Costa - *Of the Seventy*
 
 *Given in the October session of the 2015 General Conference*
@@ -181,7 +179,3 @@ I love the Sabbath, the sacrament, and what they mean. I love the Savior with al
 
 [^30]: [[Matthew 7.7|Matthew 7:7]].
 
-
-
-
-#Jesus_Christ #Revelation #Sabbath #Sacrament

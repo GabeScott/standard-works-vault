@@ -1,7 +1,5 @@
 # The Time Is Now
 
-Spencer W. Kimball
-
 By Elder Marvin J. Ashton - *Of the Council of the Twelve*
 
 *Given in the April session of the 1975 General Conference*
@@ -95,4 +93,3 @@ God help us to forsake our procrastinating ways and straightway follow him. Now 
 
 
 
-#Time_Management

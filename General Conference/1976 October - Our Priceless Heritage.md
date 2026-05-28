@@ -1,7 +1,5 @@
 # Our Priceless Heritage
 
-Spencer W. Kimball
-
 By President Ezra Taft Benson - *Of the Council of the Twelve*
 
 *Given in the October session of the 1976 General Conference*
@@ -103,4 +101,3 @@ As one with you, charged with the responsibility of protecting and perpetuating 
 
 
 
-#Faith #Family #Freedom #Work

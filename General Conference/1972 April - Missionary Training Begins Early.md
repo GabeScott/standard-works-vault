@@ -1,7 +1,5 @@
 # Missionary Training Begins Early
 
-Wilford G. Edling
-
 By President S. Dilworth Young - *Of the First Council of the Seventy*
 
 *Given in the April session of the 1972 General Conference*
@@ -67,4 +65,3 @@ I bear this witness in the name of the Lord Jesus Christ. Amen.
 
 
 
-#Home #Missionary_Work #Parents

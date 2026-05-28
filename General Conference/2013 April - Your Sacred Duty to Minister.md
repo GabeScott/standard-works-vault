@@ -1,7 +1,5 @@
 # Your Sacred Duty to Minister
 
-Thomas S. Monson
-
 By David L. Beck - *Young Men General President*
 
 *Given in the April session of the 2013 General Conference*
@@ -111,7 +109,3 @@ May you experience the joy of fulfilling your sacred duty to minister, I pray in
 
 [^11]: See *Handbook 2,* 3.2.3.
 
-
-
-
-#Family #Priesthood #Service

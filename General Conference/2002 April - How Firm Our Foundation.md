@@ -1,7 +1,5 @@
 # How Firm Our Foundation
 
-Gordon B. Hinckley
-
 By Elder Russell M. Nelson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2002 General Conference*
@@ -190,7 +188,3 @@ How firm our foundation? The foundation of this Church was forged long before th
 
 [^43]: Our mortal probation has been likened to the second act of a three-act play. When the curtain comes down on act two, the play is not over. Without the vision gained from acts one and three, the second act could seem either too short, too long, too hard, or too confusing. When we know about all three acts, the second act acquires greater significance; thus the need for an eternal perspective.
 
-
-
-
-#Atonement #Plan_Of_Salvation #Temple_Work #Truth

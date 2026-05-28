@@ -1,7 +1,5 @@
 # Inviting Others to “Come unto Christ”
 
-Ezra Taft Benson
-
 By Elder Gene R. Cook - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1988 General Conference*
@@ -183,4 +181,3 @@ May that gift, even charity, be ours. May we give of ourselves to the spirituall
 
 
 
-#Activation #Home_Teaching #Responsibility #Teaching

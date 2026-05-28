@@ -1,7 +1,5 @@
 # A Witness
 
-Richard G. Scott
-
 By President Henry B. Eyring - *First Counselor in the First Presidency*
 
 *Given in the October session of the 2011 General Conference*
@@ -109,7 +107,3 @@ The Book of Mormon is a precious witness. I now leave with you my witness in the
 
 [^7]: [[Moroni 10.32|Moroni 10:32]].
 
-
-
-
-#Book_Of_Mormon #Charity #Consecration #Conversion #Endurance #Service #Testimony

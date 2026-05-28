@@ -1,7 +1,5 @@
 # The Living Bread Which Came Down from Heaven
 
-Sharon Eubank
-
 By Elder D. Todd Christofferson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2017 General Conference*
@@ -52,7 +50,7 @@ I have spoken of receiving the Savior’s atoning grace to take away our sins an
 
 This suggests the need for a mighty striving on our part. We cannot be content to remain as we are but must be moving constantly toward “the measure of the stature of the fulness of Christ.”[^17] Like King Lamoni’s father in the Book of Mormon, we must be willing to give away all our sins[^18] and focus on what the Lord expects of us, individually and together.
 
-Not long ago, a friend recounted to me an experience he had while serving as a mission president. He had undergone a surgery that required several weeks of recuperation. During his recovery, he devoted time to searching the scriptures. One afternoon as he pondered the Savior’s words in the [[3 Nephi 27.1|27th chapter of 3 Nephi]], he drifted off to sleep. He subsequently related:
+Not long ago, a friend recounted to me an experience he had while serving as a mission president. He had undergone a surgery that required several weeks of recuperation. During his recovery, he devoted time to searching the scriptures. One afternoon as he pondered the Savior’s words in the [[3 Nephi 27.1|27th chapter of 3 Nephi]][[3 Nephi 27.2|]][[3 Nephi 27.3|]][[3 Nephi 27.4|]][[3 Nephi 27.5|]][[3 Nephi 27.6|]][[3 Nephi 27.7|]][[3 Nephi 27.8|]][[3 Nephi 27.9|]][[3 Nephi 27.10|]][[3 Nephi 27.11|]][[3 Nephi 27.12|]][[3 Nephi 27.13|]][[3 Nephi 27.14|]][[3 Nephi 27.15|]][[3 Nephi 27.16|]][[3 Nephi 27.17|]][[3 Nephi 27.18|]][[3 Nephi 27.19|]][[3 Nephi 27.20|]][[3 Nephi 27.21|]][[3 Nephi 27.22|]][[3 Nephi 27.23|]][[3 Nephi 27.24|]][[3 Nephi 27.25|]][[3 Nephi 27.26|]][[3 Nephi 27.27|]][[3 Nephi 27.28|]][[3 Nephi 27.29|]][[3 Nephi 27.30|]][[3 Nephi 27.31|]][[3 Nephi 27.32|]][[3 Nephi 27.33|]], he drifted off to sleep. He subsequently related:
 
 “I fell into a dream in which I was given a vivid, panoramic view of my life. I was shown my sins, poor choices, the times … I had treated people with impatience, plus the omissions of good things I should have said or done. … \[A\] comprehensive … \[review of\] my life was shown to me in just a few minutes, but it seemed much longer. I awoke, startled, and … instantly dropped to my knees beside the bed and began to pray, to plead for forgiveness, pouring out the feelings of my heart like I had never done previously.
 
@@ -165,7 +163,3 @@ I bear testimony of Jesus Christ, “the living bread which came down from heave
 
 [^38]: [[John 6.54|John 6:54]].
 
-
-
-
-#Holiness #Jesus_Christ #Repentance #Sacrament #Service

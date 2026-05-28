@@ -1,7 +1,5 @@
 # Faith and Keys
 
-Gordon B. Hinckley
-
 By Elder Henry B. Eyring - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2004 General Conference*
@@ -101,7 +99,3 @@ I testify, I know that Jesus Christ is our Savior and that He lives. I know that
 
 [^3]: [[Ephesians 2.20|Ephesians 2:20]].
 
-
-
-
-#Faith #Holy_Ghost #Priesthood #Quorum_Of_The_Twelve_Apostles #Restoration

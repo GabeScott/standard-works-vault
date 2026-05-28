@@ -1,7 +1,5 @@
 # To the Friends and Investigators of the Church
 
-Bonnie H. Cordon
-
 By Elder Joaquin E. Costa - *Of the Seventy*
 
 *Given in the April session of the 2017 General Conference*
@@ -50,7 +48,7 @@ So the third lesson, in one sentence: *when you receive these things—the Book 
 
 ## Last, Repenting
 
-The final experience I’d like to share is about repentance. After I had finished taking all the missionary lessons, I was still not convinced I needed to change anything in my life. It was Elder Cutler, a young, confident missionary with limited Spanish, who one day said, “Joaquin, let’s read together [[Alma 42.1|Alma 42]], and we will include your name as we read it.”
+The final experience I’d like to share is about repentance. After I had finished taking all the missionary lessons, I was still not convinced I needed to change anything in my life. It was Elder Cutler, a young, confident missionary with limited Spanish, who one day said, “Joaquin, let’s read together [[Alma 42.1|Alma 42]][[Alma 42.2|]][[Alma 42.3|]][[Alma 42.4|]][[Alma 42.5|]][[Alma 42.6|]][[Alma 42.7|]][[Alma 42.8|]][[Alma 42.9|]][[Alma 42.10|]][[Alma 42.11|]][[Alma 42.12|]][[Alma 42.13|]][[Alma 42.14|]][[Alma 42.15|]][[Alma 42.16|]][[Alma 42.17|]][[Alma 42.18|]][[Alma 42.19|]][[Alma 42.20|]][[Alma 42.21|]][[Alma 42.22|]][[Alma 42.23|]][[Alma 42.24|]][[Alma 42.25|]][[Alma 42.26|]][[Alma 42.27|]][[Alma 42.28|]][[Alma 42.29|]][[Alma 42.30|]][[Alma 42.31|]], and we will include your name as we read it.”
 
 I thought it was silly, but I did as Elder Cutler asked and read in [[Alma 42.1|verse 1]]: “And now, my son \[Joaquin\], I perceive there is somewhat more which doth worry your mind, which ye cannot understand.” Oh! The book was speaking to me.
 
@@ -81,4 +79,3 @@ I testify to you that if you pay the price of revelation, humble yourself, read,
 
 
 
-#Book_Of_Mormon #Church_Meetings #Conversion #Missionary_Work #Repentance

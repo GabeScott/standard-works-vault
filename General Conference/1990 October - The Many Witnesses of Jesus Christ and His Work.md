@@ -1,7 +1,5 @@
 # The Many Witnesses of Jesus Christ and His Work
 
-Gordon B. Hinckley
-
 By Elder James M. Paramore - *Of the Presidency of the Seventy*
 
 *Given in the October session of the 1990 General Conference*
@@ -67,4 +65,3 @@ Ken, no, God has not forgotten His children, even though they leave His presence
 
 
 
-#Jesus_Christ #Scriptures #Testimony

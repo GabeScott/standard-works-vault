@@ -1,7 +1,5 @@
 # The Joy of Living the Great Plan of Happiness
 
-Gordon B. Hinckley
-
 By Elder Richard G. Scott - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1996 General Conference*
@@ -113,7 +111,3 @@ I obviously don’t know what it feels like to be a woman, but I do know what it
 
 [^27]: Jeanene W. Scott, BYU Women’s Conference, 6 Apr. 1989, 1.
 
-
-
-
-#Blessings #Example #Holy_Ghost #Home #Joy #Marriage #Motherhood #Parenthood #Pioneers #Plan_Of_Salvation #Sacrifice

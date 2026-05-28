@@ -1,7 +1,5 @@
 # Repentance Is Always Positive
 
-Sharon Eubank
-
 By Stephen W. Owen - *Young Men General President*
 
 *Given in the October session of the 2017 General Conference*
@@ -89,7 +87,7 @@ Sometimes the journey will seem long—after all, it is the journey toward etern
 
 [^10]: David A. Bednar, “[The Atonement and the Journey of Mortality](https://www.churchofjesuschrist.org/study/liahona/2012/04/the-atonement-and-the-journey-of-mortality?lang=eng),” *Ensign,* Apr. 2012, 42; *Liahona,* Apr. 2012, 14.
 
-[^11]: See [[Enos 1.1|Enos 1]].
+[^11]: See [[Enos 1.1|Enos 1]][[Enos 1.2|]][[Enos 1.3|]][[Enos 1.4|]][[Enos 1.5|]][[Enos 1.6|]][[Enos 1.7|]][[Enos 1.8|]][[Enos 1.9|]][[Enos 1.10|]][[Enos 1.11|]][[Enos 1.12|]][[Enos 1.13|]][[Enos 1.14|]][[Enos 1.15|]][[Enos 1.16|]][[Enos 1.17|]][[Enos 1.18|]][[Enos 1.19|]][[Enos 1.20|]][[Enos 1.21|]][[Enos 1.22|]][[Enos 1.23|]][[Enos 1.24|]][[Enos 1.25|]][[Enos 1.26|]][[Enos 1.27|]].
 
 [^12]: [[Moroni 6.4|Moroni 6:4]].
 
@@ -101,7 +99,3 @@ Sometimes the journey will seem long—after all, it is the journey toward etern
 
 [^16]: [[Matthew 25.21|Matthew 25:21]].
 
-
-
-
-#Atonement #Jesus_Christ #Repentance

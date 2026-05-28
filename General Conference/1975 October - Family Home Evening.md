@@ -1,7 +1,5 @@
 # Family Home Evening
 
-Spencer W. Kimball
-
 By Elder James A. Cullimore - *Assistant to the Council of the Twelve*
 
 *Given in the October session of the 1975 General Conference*
@@ -77,4 +75,3 @@ I bear you my solemn witness, my brothers and sisters, that this is the work of 
 
 
 
-#Family_Home_Evening

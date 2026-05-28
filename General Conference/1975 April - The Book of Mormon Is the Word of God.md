@@ -1,7 +1,5 @@
 # The Book of Mormon Is the Word of God
 
-Spencer W. Kimball
-
 By President Ezra Taft Benson - *President of the Council of the Twelve*
 
 *Given in the April session of the 1975 General Conference*
@@ -99,4 +97,3 @@ May we know and use the keystone and get nearer to God, I pray in the name of Je
 
 
 
-#Book_Of_Mormon #Repentance

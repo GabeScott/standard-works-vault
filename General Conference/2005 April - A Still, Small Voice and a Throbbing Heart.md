@@ -1,7 +1,5 @@
 # A Still, Small Voice and a Throbbing Heart
 
-Gordon B. Hinckley
-
 By Bishop Richard C. Edgley - *First Counselor in the Presiding Bishopric*
 
 *Given in the April session of the 2005 General Conference*
@@ -51,4 +49,3 @@ Like Alma of old, each of us, members and sincere investigators alike, can know 
 
 
 
-#Atonement #Book_Of_Mormon #Holy_Ghost #Jesus_Christ #Restoration #Testimony

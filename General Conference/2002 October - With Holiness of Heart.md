@@ -1,7 +1,5 @@
 # With Holiness of Heart
 
-Gordon B. Hinckley
-
 By Bonnie D. Parkin - *Relief Society General President*
 
 *Given in the October session of the 2002 General Conference*
@@ -85,7 +83,3 @@ May our individual covenants that bind us to our loving Heavenly Father guide us
 
 [^10]: Tullidge, *Women of Mormondom,* 288.
 
-
-
-
-#Covenants #Home #Kindness #Love #Obedience

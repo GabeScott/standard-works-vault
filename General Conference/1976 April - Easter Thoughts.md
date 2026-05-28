@@ -1,7 +1,5 @@
 # Easter Thoughts
 
-Spencer W. Kimball
-
 By Elder Delbert L. Stapley - *Of the Council of the Twelve*
 
 *Given in the April session of the 1976 General Conference*
@@ -69,4 +67,3 @@ In closing, I join with the first prophet of this latter-day dispensation in dec
 
 
 
-#God_The_Father #Holy_Ghost #Jesus_Christ

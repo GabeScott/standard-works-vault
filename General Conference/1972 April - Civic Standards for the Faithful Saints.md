@@ -1,7 +1,5 @@
 # Civic Standards for the Faithful Saints
 
-Wilford G. Edling
-
 By Elder Ezra Taft Benson - *Of the Council of the Twelve*
 
 *Given in the April session of the 1972 General Conference*
@@ -103,4 +101,3 @@ God bless us all that we may use these standards and by so doing bless ourselves
 
 
 
-#Book_Of_Mormon #Standards #U.S._Constitution

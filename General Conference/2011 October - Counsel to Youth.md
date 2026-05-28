@@ -1,7 +1,5 @@
 # Counsel to Youth
 
-Richard G. Scott
-
 By President Boyd K. Packer - *President of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2011 General Conference*
@@ -149,7 +147,3 @@ If you will follow these principles, you will be watched over and protected and 
 
 [^16]: [[Moroni 10.5|Moroni 10:5]].
 
-
-
-
-#Holy_Ghost #Repentance #Youth

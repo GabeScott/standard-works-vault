@@ -1,7 +1,5 @@
 # The Power of Sustaining Faith
 
-Ulisses Soares
-
 By President Henry B. Eyring - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 2019 General Conference*
@@ -77,7 +75,3 @@ I testify that Heavenly Father knows and loves you. Jesus is the living Christ. 
 
 [^2]: See [[D&C 35.2|Doctrine and Covenants 35:2]].
 
-
-
-
-#Church_Leaders #Faith #Family

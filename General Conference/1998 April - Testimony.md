@@ -1,7 +1,5 @@
 # Testimony
 
-Gordon B. Hinckley
-
 By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the April session of the 1998 General Conference*
@@ -102,4 +100,3 @@ Jesus is the Christ, His immortal Son, who under His Father’s direction was th
 
 
 
-#Book_Of_Mormon #Jesus_Christ #Resurrection #Testimony

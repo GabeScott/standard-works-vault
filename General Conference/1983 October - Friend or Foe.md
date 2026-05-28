@@ -1,7 +1,5 @@
 # Friend or Foe
 
-Gordon B. Hinckley
-
 By Elder Charles Didier - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1983 General Conference*
@@ -83,4 +81,3 @@ Abraham “was called the Friend of God.” ([[James 2.23|James 2:23]].) Prophet
 
 
 
-#Jesus_Christ

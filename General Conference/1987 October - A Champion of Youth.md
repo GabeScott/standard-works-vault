@@ -1,7 +1,5 @@
 # A Champion of Youth
 
-Ezra Taft Benson
-
 By Elder Vaughn J. Featherstone - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1987 General Conference*
@@ -99,4 +97,3 @@ God bless you, youth of the noble birthright, I pray in the name of Jesus Christ
 
 
 
-#Scouting #Youth

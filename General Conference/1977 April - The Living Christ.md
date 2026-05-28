@@ -1,7 +1,5 @@
 # The Living Christ
 
-Spencer W. Kimball
-
 By Elder Bernard P. Brockbank - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1977 General Conference*
@@ -83,4 +81,3 @@ I bear witness that Jesus Christ lives and that he will soon be returning to thi
 
 
 
-#Godhead #Jesus_Christ

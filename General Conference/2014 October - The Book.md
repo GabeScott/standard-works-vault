@@ -1,7 +1,5 @@
 # The Book
 
-Thomas S. Monson
-
 By Elder Allan F. Packer - *Of the Seventy*
 
 *Given in the October session of the 2014 General Conference*
@@ -119,7 +117,3 @@ Jesus Christ is the King! I testify of Him in the name of Jesus Christ, amen.
 
 [^21]: “Rise Up, O Men of God,” *Hymns,* no. 324.
 
-
-
-
-#Family #Family_History #Home #Temple_Work

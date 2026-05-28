@@ -1,7 +1,5 @@
 # Remembering, Repenting, and Changing
 
-Thomas S. Monson
-
 By Julie B. Beck - *First Counselor in the Young Women General Presidency*
 
 *Given in the April session of the 2007 General Conference*
@@ -105,7 +103,3 @@ It is through repenting that I have come to know the Savior, and it is as I seek
 
 [^20]: [[3 Nephi 27.16|3 Nephi 27:16]].
 
-
-
-
-#Activation #Example #Faith #Jesus_Christ #Repentance #Sacrifice #Young_Women

@@ -1,7 +1,5 @@
 # Follow the Prophet
 
-Gordon B. Hinckley
-
 By Elder J Ballard Washburn - *Of the Seventy*
 
 *Given in the October session of the 1990 General Conference*
@@ -59,4 +57,3 @@ May God bless and sustain his prophet, and may we follow him, is my prayer in th
 
 
 
-#Example #Prophets #Youth

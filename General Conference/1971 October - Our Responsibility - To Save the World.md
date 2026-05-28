@@ -1,7 +1,5 @@
 # Our Responsibility: To Save the World
 
-Joseph Fielding Smith
-
 By Elder Delbert L. Stapley - *Of the Council of the Twelve*
 
 *Given in the October session of the 1971 General Conference*
@@ -75,4 +73,3 @@ As we address our efforts in this direction, we will be worthy examples of the t
 
 
 
-#Commandments #Obedience #Satan

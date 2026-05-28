@@ -1,7 +1,5 @@
 # The Fullness of the Gospel in Each Manâ€™s Language
 
-Wilford G. Edling
-
 By Elder J. Thomas Fyans - *Director of Internal Communications*
 
 *Given in the April session of the 1972 General Conference*
@@ -65,4 +63,3 @@ I sustain the First Presidency and the Council of the Twelve with all my heartâ€
 
 
 
-#Communication #Languages

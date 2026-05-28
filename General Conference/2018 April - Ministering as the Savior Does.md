@@ -1,7 +1,5 @@
 # Ministering as the Savior Does
 
-Henry B. Eyring
-
 By Jean B. Bingham - *Relief Society General President*
 
 *Given in the April session of the 2018 General Conference*
@@ -91,11 +89,3 @@ I gladly bear my personal witness that these revelatory changes are inspired of 
 
 [^12]: [[4 Nephi 1.15|4 Nephi 1:15–16]][[4 Nephi 1.16|]].
 
-
-
-
-
-
-
-
-#Ministering

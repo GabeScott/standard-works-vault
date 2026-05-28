@@ -1,7 +1,5 @@
 # The Stake Patriarch
 
-Gordon B. Hinckley
-
 By President Boyd K. Packer - *Acting President of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2002 General Conference*
@@ -145,7 +143,3 @@ I bear witness that this is a holy office, a sacred office, a blessing to this C
 
 [^9]: Patriarchal blessing of Boyd K. Packer, 15 Jan. 1944, 2.
 
-
-
-
-#Church_Callings #Individual_Worth #Patriarchal_Blessings #Prophecy

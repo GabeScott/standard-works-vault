@@ -1,7 +1,5 @@
 # The Agency of Man
 
-Harold B. Lee
-
 By Elder John H. Vandenberg - *Assistant to the Council of the Twelve*
 
 *Given in the April session of the 1973 General Conference*
@@ -119,4 +117,3 @@ In the name of Jesus Christ. Amen.
 
 
 
-#Agency #Faith

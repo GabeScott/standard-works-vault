@@ -1,7 +1,5 @@
 # Keeping Covenants Protects Us, Prepares Us, and Empowers Us
 
-Thomas S. Monson
-
 By Rosemary M. Wixom - *Primary General President*
 
 *Given in the April session of the 2014 General Conference*
@@ -89,7 +87,3 @@ We do rejoice that through keeping our covenants, we may feel the love of our He
 
 [^8]: [[D&C 25.13|Doctrine and Covenants 25:13]].
 
-
-
-
-#Baptism #Covenants #Temples

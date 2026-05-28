@@ -1,7 +1,5 @@
 # “The Light and Life of the World”
 
-Ezra Taft Benson
-
 By Elder Dallin H. Oaks - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1987 General Conference*
@@ -107,4 +105,3 @@ May God bless all of us to come unto Christ. I testify that he is our Savior and
 
 
 
-#Atonement #Jesus_Christ

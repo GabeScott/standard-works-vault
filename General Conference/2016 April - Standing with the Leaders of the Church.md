@@ -1,7 +1,5 @@
 # Standing with the Leaders of the Church
 
-Cheryl A. Esplin
-
 By Elder Ronald A. Rasband - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2016 General Conference*
@@ -139,7 +137,3 @@ I know that Jesus Christ lives; I love Him, and I know with all my heart that He
 
 [^19]: [[Moroni 10.32|Moroni 10:32]].
 
-
-
-
-#Church_Leaders #Jesus_Christ #Leadership #Prophets #Youth

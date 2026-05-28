@@ -1,7 +1,5 @@
 # Believers and Doers
 
-Spencer W. Kimball
-
 By Elder Mark E. Petersen - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1982 General Conference*
@@ -169,4 +167,3 @@ In the name of the Lord Jesus Christ, amen.
 
 
 
-#Plan_Of_Salvation

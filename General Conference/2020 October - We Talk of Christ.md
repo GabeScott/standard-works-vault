@@ -1,7 +1,5 @@
 # We Talk of Christ
 
-Russell M. Nelson
-
 By Elder Neil L. Andersen - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2020 General Conference*
@@ -147,7 +145,3 @@ My dear friends across the world, let us talk of Christ, anticipating His glorio
 
 [^31]: [[Matthew 10.32|Matthew 10:32]].
 
-
-
-
-#Jesus_Christ #Missionary_Work #Second_Coming

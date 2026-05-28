@@ -1,7 +1,5 @@
 # Be Ye Converted
 
-Thomas S. Monson
-
 By Bonnie L. Oscarson - *Young Women General President*
 
 *Given in the October session of the 2013 General Conference*
@@ -67,7 +65,3 @@ I testify that we have a loving Heavenly Father whose greatest desire is to help
 
 [^11]: [[Moses 1.39|Moses 1:39]].
 
-
-
-
-#Conversion

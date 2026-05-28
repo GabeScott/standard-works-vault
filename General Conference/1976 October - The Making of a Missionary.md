@@ -1,7 +1,5 @@
 # The Making of a Missionary
 
-Spencer W. Kimball
-
 By Elder M. Russell Ballard, Jr. - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1976 General Conference*
@@ -71,4 +69,3 @@ I testify to you that we are the only true church of Jesus Christ on the earth t
 
 
 
-#Preparation

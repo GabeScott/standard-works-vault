@@ -1,7 +1,5 @@
 # My Son and Yours—Each a Remarkable One
 
-Ezra Taft Benson
-
 By Elder Ted E. Brewerton - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1986 General Conference*
@@ -107,4 +105,3 @@ Let me express my true feelings to you about the Church. I know, Michael, in a d
 
 
 
-#Love #Parenthood

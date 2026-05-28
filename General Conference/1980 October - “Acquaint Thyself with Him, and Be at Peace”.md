@@ -1,7 +1,5 @@
 # “Acquaint Thyself with Him, and Be at Peace”
 
-Spencer W. Kimball
-
 By Elder George P. Lee - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1980 General Conference*
@@ -61,4 +59,3 @@ My prayer, my brothers and sisters, is that we will make the worst of times the 
 
 
 
-#Government #Jesus_Christ

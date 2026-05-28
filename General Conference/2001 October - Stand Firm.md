@@ -1,7 +1,5 @@
 # Stand Firm
 
-Gordon B. Hinckley
-
 By Virginia U. Jensen - *First Counselor in the Relief Society General Presidency*
 
 *Given in the October session of the 2001 General Conference*
@@ -82,4 +80,3 @@ May the Lord bless you in your efforts to stand firm in defense of home and fami
 
 
 
-#Contention #Covenants #Evil #Example #Faith #Family #Fasting #Home #Jesus_Christ #Ordinances #Peace #Plan_Of_Salvation #Prayer #Spirituality #Truth #Women

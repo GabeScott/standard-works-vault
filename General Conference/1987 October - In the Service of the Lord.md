@@ -1,7 +1,5 @@
 # In the Service of the Lord
 
-Ezra Taft Benson
-
 By Elder Douglas J. Martin - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1987 General Conference*
@@ -47,4 +45,3 @@ I pray that couples whose families are grown may indeed listen to and obey the S
 
 
 
-#Missionary_Work #Service

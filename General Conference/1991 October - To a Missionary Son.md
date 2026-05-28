@@ -1,7 +1,5 @@
 # To a Missionary Son
 
-Gordon B. Hinckley
-
 By Elder Dennis B. Neuenschwander - *Of the Seventy*
 
 *Given in the October session of the 1991 General Conference*
@@ -67,4 +65,3 @@ The work in which you are engaged is true. You are teaching the restored gospel 
 
 
 
-#Faith #Humility #Missionary_Work #Obedience #Scriptures

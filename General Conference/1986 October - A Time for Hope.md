@@ -1,7 +1,5 @@
 # A Time for Hope
 
-Ezra Taft Benson
-
 By Ardeth G. Kapp - *Young Women General President*
 
 *Given in the October session of the 1986 General Conference*
@@ -86,4 +84,3 @@ With daily prayer, scripture study, and our feet firmly planted on the road to t
 
 
 
-#Adversity #Hope

@@ -1,7 +1,5 @@
 # “Therefore I Was Taught”
 
-James E. Faust
-
 By Elder L. Tom Perry - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1994 General Conference*
@@ -85,4 +83,3 @@ May God bless us that we may revitalize and strengthen this tremendously importa
 
 
 
-#Children #Duty #Education #Family #Family_Home_Evening #Goals #Parents #Scripture_Study

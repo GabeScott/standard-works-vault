@@ -1,7 +1,5 @@
 # The Gathering of Scattered Israel
 
-Gordon B. Hinckley
-
 By Elder Russell M. Nelson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2006 General Conference*
@@ -87,7 +85,7 @@ This work of Almighty God is true. He lives. Jesus is the Christ. This is His Ch
 
 [^1]: See [[Genesis 12.1|Genesis 12:1–2]][[Genesis 12.2|]]; [[D&C 132.29|D&C 132:29–32]][[D&C 132.30|]][[D&C 132.31|]][[D&C 132.32|]]; [[Abraham 2.6|Abraham 2:6–11]][[Abraham 2.7|]][[Abraham 2.8|]][[Abraham 2.9|]][[Abraham 2.10|]][[Abraham 2.11|]].
 
-[^2]: See [[Genesis 26.1|Genesis 26:1–4, 24, 28]][[Genesis 26.2|]][[Genesis 26.3|]][[Genesis 26.4|]][[Genesis 26.24|]][[Genesis 26.28|]]; [[Genesis 35.9|35:9–13]][[Genesis 35.10|]][[Genesis 35.11|]][[Genesis 35.12|]][[Genesis 35.13|]]; [[Genesis 48.3|48:3–4]][[Genesis 48.4|]]; [[John 8.33|John 8:33, 39]][[John 8.39|]]; [[Acts 3.25|Acts 3:25]]; [[1 Nephi 17.40|1 Nephi 17:40]]; [[2 Nephi 29.14|2 Nephi 29:14]]; [[Jacob 5.1|Jacob 5]]; [[Ether 13.7|Ether 13:7–8]][[Ether 13.8|]]; [[D&C 52.2|D&C 52:2]].
+[^2]: See [[Genesis 26.1|Genesis 26:1–4, 24, 28]][[Genesis 26.2|]][[Genesis 26.3|]][[Genesis 26.4|]][[Genesis 26.24|]][[Genesis 26.28|]]; [[Genesis 35.9|35:9–13]][[Genesis 35.10|]][[Genesis 35.11|]][[Genesis 35.12|]][[Genesis 35.13|]]; [[Genesis 48.3|48:3–4]][[Genesis 48.4|]]; [[John 8.33|John 8:33, 39]][[John 8.39|]]; [[Acts 3.25|Acts 3:25]]; [[1 Nephi 17.40|1 Nephi 17:40]]; [[2 Nephi 29.14|2 Nephi 29:14]]; [[Jacob 5.1|Jacob 5]][[Jacob 5.2|]][[Jacob 5.3|]][[Jacob 5.4|]][[Jacob 5.5|]][[Jacob 5.6|]][[Jacob 5.7|]][[Jacob 5.8|]][[Jacob 5.9|]][[Jacob 5.10|]][[Jacob 5.11|]][[Jacob 5.12|]][[Jacob 5.13|]][[Jacob 5.14|]][[Jacob 5.15|]][[Jacob 5.16|]][[Jacob 5.17|]][[Jacob 5.18|]][[Jacob 5.19|]][[Jacob 5.20|]][[Jacob 5.21|]][[Jacob 5.22|]][[Jacob 5.23|]][[Jacob 5.24|]][[Jacob 5.25|]][[Jacob 5.26|]][[Jacob 5.27|]][[Jacob 5.28|]][[Jacob 5.29|]][[Jacob 5.30|]][[Jacob 5.31|]][[Jacob 5.32|]][[Jacob 5.33|]][[Jacob 5.34|]][[Jacob 5.35|]][[Jacob 5.36|]][[Jacob 5.37|]][[Jacob 5.38|]][[Jacob 5.39|]][[Jacob 5.40|]][[Jacob 5.41|]][[Jacob 5.42|]][[Jacob 5.43|]][[Jacob 5.44|]][[Jacob 5.45|]][[Jacob 5.46|]][[Jacob 5.47|]][[Jacob 5.48|]][[Jacob 5.49|]][[Jacob 5.50|]][[Jacob 5.51|]][[Jacob 5.52|]][[Jacob 5.53|]][[Jacob 5.54|]][[Jacob 5.55|]][[Jacob 5.56|]][[Jacob 5.57|]][[Jacob 5.58|]][[Jacob 5.59|]][[Jacob 5.60|]][[Jacob 5.61|]][[Jacob 5.62|]][[Jacob 5.63|]][[Jacob 5.64|]][[Jacob 5.65|]][[Jacob 5.66|]][[Jacob 5.67|]][[Jacob 5.68|]][[Jacob 5.69|]][[Jacob 5.70|]][[Jacob 5.71|]][[Jacob 5.72|]][[Jacob 5.73|]][[Jacob 5.74|]][[Jacob 5.75|]][[Jacob 5.76|]][[Jacob 5.77|]]; [[Ether 13.7|Ether 13:7–8]][[Ether 13.8|]]; [[D&C 52.2|D&C 52:2]].
 
 [^3]: See, for example, [[1 Nephi 15.12|1 Nephi 15:12–18]][[1 Nephi 15.13|]][[1 Nephi 15.14|]][[1 Nephi 15.15|]][[1 Nephi 15.16|]][[1 Nephi 15.17|]][[1 Nephi 15.18|]].
 
@@ -97,7 +95,7 @@ This work of Almighty God is true. He lives. Jesus is the Christ. This is His Ch
 
 [^6]: [[Leviticus 26.33|Leviticus 26:33]]; see also [[Jeremiah 9.16|Jeremiah 9:16]].
 
-[^7]: See [[Genesis 22.16|Genesis 22:16–18]][[Genesis 22.17|]][[Genesis 22.18|]]; [[3 Nephi 20.1|3 Nephi 20–22]]; [[Abraham 2.10|Abraham 2:10–11]][[Abraham 2.11|]].
+[^7]: See [[Genesis 22.16|Genesis 22:16–18]][[Genesis 22.17|]][[Genesis 22.18|]]; [[3 Nephi 20.1|3 Nephi 20–22]][[3 Nephi 20.2|]][[3 Nephi 20.3|]][[3 Nephi 20.4|]][[3 Nephi 20.5|]][[3 Nephi 20.6|]][[3 Nephi 20.7|]][[3 Nephi 20.8|]][[3 Nephi 20.9|]][[3 Nephi 20.10|]][[3 Nephi 20.11|]][[3 Nephi 20.12|]][[3 Nephi 20.13|]][[3 Nephi 20.14|]][[3 Nephi 20.15|]][[3 Nephi 20.16|]][[3 Nephi 20.17|]][[3 Nephi 20.18|]][[3 Nephi 20.19|]][[3 Nephi 20.20|]][[3 Nephi 20.21|]][[3 Nephi 20.22|]][[3 Nephi 20.23|]][[3 Nephi 20.24|]][[3 Nephi 20.25|]][[3 Nephi 20.26|]][[3 Nephi 20.27|]][[3 Nephi 20.28|]][[3 Nephi 20.29|]][[3 Nephi 20.30|]][[3 Nephi 20.31|]][[3 Nephi 20.32|]][[3 Nephi 20.33|]][[3 Nephi 20.34|]][[3 Nephi 20.35|]][[3 Nephi 20.36|]][[3 Nephi 20.37|]][[3 Nephi 20.38|]][[3 Nephi 20.39|]][[3 Nephi 20.40|]][[3 Nephi 20.41|]][[3 Nephi 20.42|]][[3 Nephi 20.43|]][[3 Nephi 20.44|]][[3 Nephi 20.45|]][[3 Nephi 20.46|]]; [[Abraham 2.10|Abraham 2:10–11]][[Abraham 2.11|]].
 
 [^8]: [[Isaiah 18.2|Isaiah 18:2, 7]][[Isaiah 18.7|]].
 
@@ -119,7 +117,7 @@ This work of Almighty God is true. He lives. Jesus is the Christ. This is His Ch
 
 [^17]: [[3 Nephi 21.1|3 Nephi 21:1]].
 
-[^18]: See [[Genesis 12.2|Genesis 12:2–3]][[Genesis 12.3|]]; [[Genesis 26.3|26:3–4]][[Genesis 26.4|]]; [[Genesis 35.11|35:11–12]][[Genesis 35.12|]]; and chapter headings for [[3 Nephi 21.1|3 Nephi 21]]; [[3 Nephi 29.1|29]].
+[^18]: See [[Genesis 12.2|Genesis 12:2–3]][[Genesis 12.3|]]; [[Genesis 26.3|26:3–4]][[Genesis 26.4|]]; [[Genesis 35.11|35:11–12]][[Genesis 35.12|]]; and chapter headings for [[3 Nephi 21.1|3 Nephi 21]][[3 Nephi 21.2|]][[3 Nephi 21.3|]][[3 Nephi 21.4|]][[3 Nephi 21.5|]][[3 Nephi 21.6|]][[3 Nephi 21.7|]][[3 Nephi 21.8|]][[3 Nephi 21.9|]][[3 Nephi 21.10|]][[3 Nephi 21.11|]][[3 Nephi 21.12|]][[3 Nephi 21.13|]][[3 Nephi 21.14|]][[3 Nephi 21.15|]][[3 Nephi 21.16|]][[3 Nephi 21.17|]][[3 Nephi 21.18|]][[3 Nephi 21.19|]][[3 Nephi 21.20|]][[3 Nephi 21.21|]][[3 Nephi 21.22|]][[3 Nephi 21.23|]][[3 Nephi 21.24|]][[3 Nephi 21.25|]][[3 Nephi 21.26|]][[3 Nephi 21.27|]][[3 Nephi 21.28|]][[3 Nephi 21.29|]]; [[3 Nephi 29.1|29]][[3 Nephi 29.2|]][[3 Nephi 29.3|]][[3 Nephi 29.4|]][[3 Nephi 29.5|]][[3 Nephi 29.6|]][[3 Nephi 29.7|]][[3 Nephi 29.8|]][[3 Nephi 29.9|]].
 
 [^19]: Doctrines relating to the scattering and gathering of the house of Israel are among the earliest lessons taught in the Book of Mormon: “After the house of Israel should be scattered they should be gathered together again; … the natural branches of the olive-tree, or the remnants of the house of Israel, should be grafted in, or come to the knowledge of the true Messiah, their Lord and their Redeemer” ([[1 Nephi 10.14|1 Nephi 10:14]]).
 
@@ -171,7 +169,3 @@ This work of Almighty God is true. He lives. Jesus is the Christ. This is His Ch
 
 [^43]: [[D&C 97.21|D&C 97:21]].
 
-
-
-
-#Apostasy #Covenants #House_Of_Israel #Restoration

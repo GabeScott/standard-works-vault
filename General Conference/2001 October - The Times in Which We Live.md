@@ -1,7 +1,5 @@
 # The Times in Which We Live
 
-Gordon B. Hinckley
-
 By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the October session of the 2001 General Conference*
@@ -101,4 +99,3 @@ May the God of heaven, the Almighty, bless us, help us, as we walk our various w
 
 
 
-#Adversity #Agency #Book_Of_Mormon #Commandments #Contention #Death #Evil #Financial_Management #Jesus_Christ #Neighbors #Peace #Prayer #Religion #Safety #Self-Reliance #Tithing #U.S._Constitution

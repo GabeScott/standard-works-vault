@@ -1,7 +1,5 @@
 # Encircled in the Savior’s Love
 
-Gordon B. Hinckley
-
 By Elder W. Craig Zwick - *Of the Seventy*
 
 *Given in the October session of the 1995 General Conference*
@@ -53,4 +51,3 @@ I pray that our faith may be sufficient for each of us to feel encircled in the 
 
 
 
-#Disabilities #Jesus_Christ #Love #Responsibility

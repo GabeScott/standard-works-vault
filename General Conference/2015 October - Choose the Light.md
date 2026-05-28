@@ -1,7 +1,5 @@
 # Choose the Light
 
-Rosemary M. Wixom
-
 By Elder Vern P. Stanfill - *Of the Seventy*
 
 *Given in the October session of the 2015 General Conference*
@@ -65,7 +63,3 @@ Brothers and sisters, we have not been left alone to be influenced by every whim
 
 [^7]: Neil L. Andersen, “A Compensatory Spiritual Power for the Righteous” (Brigham Young University Campus Education Week devotional, Aug. 18, 2015), [speeches.byu.edu.](https://speeches.byu.edu/talks/neil-l-andersen/a-compensatory-spiritual-power-for-the-righteous)
 
-
-
-
-#Faith #Jesus_Christ #Light_Of_Christ #Spirituality

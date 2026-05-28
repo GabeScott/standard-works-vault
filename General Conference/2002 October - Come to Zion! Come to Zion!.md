@@ -1,7 +1,5 @@
 # Come to Zion! Come to Zion!
 
-Gordon B. Hinckley
-
 By Bishop Keith B. McMullin - *Second Counselor in the Presiding Bishopric*
 
 *Given in the October session of the 2002 General Conference*
@@ -118,7 +116,3 @@ I bear witness that these things are true. President Gordon B. Hinckley is Godâ€
 
 [^22]: *Teachings of the Prophet Joseph Smith,* sel. Joseph Fielding Smith (1976), 231â€“32; emphasis added.
 
-
-
-
-#Consecration #Love #Self-Reliance #Work #Zion

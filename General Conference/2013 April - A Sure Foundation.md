@@ -1,7 +1,5 @@
 # A Sure Foundation
 
-Thomas S. Monson
-
 By Bishop Dean M. Davies - *Second Counselor in the Presiding Bishopric*
 
 *Given in the April session of the 2013 General Conference*
@@ -65,7 +63,3 @@ I humbly testify that by anchoring our lives to Jesus Christ and to His Atonemen
 
 [^1]: See “1989 Loma Prieta Earthquake,” wikipedia.org/wiki/1989_Loma_Prieta_earthquake.
 
-
-
-
-#Prayer #Sacrament #Scripture_Study

@@ -1,7 +1,5 @@
 # Blessed by Living Water
 
-Gordon B. Hinckley
-
 By Kathleen H. Hughes - *First Counselor in the Relief Society General Presidency*
 
 *Given in the April session of the 2003 General Conference*
@@ -43,4 +41,3 @@ The Samaritan woman looked into the face of Christ, listened to His voice, and r
 
 
 
-#Healing #Holy_Ghost #Jesus_Christ #Joy #Peace

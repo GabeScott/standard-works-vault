@@ -1,7 +1,5 @@
 # “Be Still, and Know That I Am God”
 
-Dallin H. Oaks
-
 By Elder David A. Bednar - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2024 General Conference*
@@ -121,7 +119,3 @@ I joyfully witness that God is our Heavenly Father, we are His children, and Jes
 
 [^21]: See [[2 Corinthians 4.8|2 Corinthians 4:8–9]][[2 Corinthians 4.9|]].
 
-
-
-
-#Covenants #God_The_Father #Jesus_Christ #Ordinances #Reverence #Sabbath #Temples

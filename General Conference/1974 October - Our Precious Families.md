@@ -1,7 +1,5 @@
 # Our Precious Families
 
-Spencer W. Kimball
-
 By President Loren C. Dunn - *Of the First Council of the Seventy*
 
 *Given in the October session of the 1974 General Conference*
@@ -73,4 +71,3 @@ May the Lord bless us as parents to realize our right to help formulate the live
 
 
 
-#Family #Family_Home_Evening #Responsibility

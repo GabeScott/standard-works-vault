@@ -1,7 +1,5 @@
 # The Father and the Son
 
-Thomas S. Monson
-
 By Elder Christoffel Golden Jr. - *Of the Seventy*
 
 *Given in the April session of the 2013 General Conference*
@@ -119,7 +117,3 @@ I have learned that it is not possible to convey in the language of man those th
 
 [^21]: Ezra Taft Benson, “Jesus Christ—Gifts and Expectations,” in *Speeches of the Year, 1974* (1975), 313; see also “Jesus Christ—Gifts and Expectations,” *Ensign,* Dec. 1988, 6; *Tambuli,* May 1977, 24.
 
-
-
-
-#God_The_Father #Jesus_Christ

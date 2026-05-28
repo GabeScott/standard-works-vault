@@ -1,7 +1,5 @@
 # Loving Others and Living with Differences
 
-Thomas S. Monson
-
 By Elder Dallin H. Oaks - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2014 General Conference*
@@ -83,7 +81,3 @@ As difficult as it is to live in the turmoil surrounding us, our Savior’s comm
 
 [^2]: Letters to Dallin H. Oaks, Jan. 23, 2006, and Oct. 30, 2012.
 
-
-
-
-#Contention #Jesus_Christ #Kindness #Love #Religious_Freedom #Respect #Truth

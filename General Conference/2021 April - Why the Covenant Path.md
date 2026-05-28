@@ -1,7 +1,5 @@
 # Why the Covenant Path
 
-Russell M. Nelson
-
 By Elder D. Todd Christofferson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2021 General Conference*
@@ -145,7 +143,3 @@ With Nephi, “my soul delighteth in the covenants of the Lord.”[^30] On this 
 
 [^30]: [[2 Nephi 11.5|2 Nephi 11:5]].
 
-
-
-
-#Choices #Covenants #Gathering #Holy_Ghost #Obedience #Ordinances

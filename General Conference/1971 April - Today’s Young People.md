@@ -1,7 +1,5 @@
 # Today’s Young People
 
-Joseph Fielding Smith
-
 By President Harold B. Lee - *First Counselor in the First Presidency*
 
 *Given in the April session of the 1971 General Conference*
@@ -45,4 +43,3 @@ That the Lord may help us so to do, I pray humbly, in the name of the Lord Jesus
 
 
 
-#Priesthood

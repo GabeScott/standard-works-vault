@@ -1,7 +1,5 @@
 # Put On Thy Strength, O Zion
 
-Dallin H. Oaks
-
 By Elder David A. Bednar - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2022 General Conference*
@@ -157,7 +155,3 @@ I joyfully declare my witness of the divinity and living reality of God, our Ete
 
 [^32]: [[D&C 82.14|Doctrine and Covenants 82:14]].
 
-
-
-
-#Agency #Covenants #Discipleship #Obedience #Parables #Priorities #Worldliness

@@ -1,7 +1,5 @@
 # “If Ye Be Willing and Obedient”
 
-Joseph Fielding Smith
-
 By Elder Gordon B. Hinckley - *Of the Council of the Twelve*
 
 *Given in the October session of the 1971 General Conference*
@@ -80,4 +78,3 @@ Help us, O God, to be willing and obedient, that we may eat the good of the land
 
 
 
-#Obedience

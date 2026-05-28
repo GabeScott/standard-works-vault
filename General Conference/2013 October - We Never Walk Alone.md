@@ -1,7 +1,5 @@
 # We Never Walk Alone
 
-Thomas S. Monson
-
 By President Thomas S. Monson - *President of the Church*
 
 *Given in the October session of the 2013 General Conference*
@@ -119,7 +117,3 @@ I leave with you my blessing. I leave with you my gratitude for all the good you
 
 [^10]: Gordon B. Hinckley, “Feasting upon the Scriptures,” *Ensign,* Dec. 1985, 45; or *Tambuli,* June 1986, 4.
 
-
-
-
-#Adversity #Love #Prayer #Scripture_Study

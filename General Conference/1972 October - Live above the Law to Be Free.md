@@ -1,7 +1,5 @@
 # Live above the Law to Be Free
 
-N. Eldon Tanner
-
 By President Hartman Rector, Jr. - *Of the First Council of the Seventy*
 
 *Given in the October session of the 1972 General Conference*
@@ -99,4 +97,3 @@ I pray that we may walk in righteousness because we love the Lord, for surely th
 
 
 
-#Commandments #Obedience #Temptation

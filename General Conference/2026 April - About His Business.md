@@ -1,7 +1,5 @@
 # About His Business
 
-Dallin H. Oaks
-
 By Elder Patrick Kearon - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2026 General Conference*
@@ -101,5 +99,3 @@ When 12-year-old Jesus was found by His parents teaching in the temple, He told 
 
 [^22]: [[Luke 2.49|Luke 2:49]].
 
-
-#Callings #Service #Sustaining

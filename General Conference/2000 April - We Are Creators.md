@@ -1,7 +1,5 @@
 # We Are Creators
 
-Gordon B. Hinckley
-
 By Mary Ellen Smoot - *Relief Society General President*
 
 *Given in the April session of the 2000 General Conference*
@@ -75,7 +73,3 @@ As Latter-day Saints, I pray that we will be about our Father’s business and c
 
 [^5]: [[Isaiah 64.8|Isa. 64:8]].
 
-
-
-
-#Creation #Faith #Fear #Home #Prophets #Service #Talents #Testimony

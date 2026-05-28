@@ -1,7 +1,5 @@
 # Valiance in the Drama of Life
 
-Ezra Taft Benson
-
 By Elder Royden G. Derrick - *Of the Presidency of the First Quorum of the Seventy*
 
 *Given in the April session of the 1983 General Conference*
@@ -73,4 +71,3 @@ The final scene of this great drama is near at hand. The kingdom of God is going
 
 
 
-#Restoration #Spirituality

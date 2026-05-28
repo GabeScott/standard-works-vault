@@ -1,7 +1,5 @@
 # An Invitation to Exaltation
 
-Ezra Taft Benson
-
 By President Thomas S. Monson - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 1988 General Conference*
@@ -150,4 +148,3 @@ As his witness I testify to you that He lives, in the name of Jesus Christ, amen
 
 
 
-#Jesus_Christ #Plan_Of_Salvation

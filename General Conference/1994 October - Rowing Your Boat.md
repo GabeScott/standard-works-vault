@@ -1,7 +1,5 @@
 # Rowing Your Boat
 
-Gordon B. Hinckley
-
 By Chieko N. Okazaki - *First Counselor in the Relief Society General Presidency*
 
 *Given in the October session of the 1994 General Conference*
@@ -71,7 +69,3 @@ My dear sisters, I am so grateful for the Relief Society and the great strength 
 
 [^3]: “Valiant Servant of the Lord,” *Church News,* 11 June 1994, p. 4.
 
-
-
-
-#Education #Faith #Judging #Motherhood #Self-Reliance #Spirituality #Welfare #Women

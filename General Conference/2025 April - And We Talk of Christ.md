@@ -1,7 +1,5 @@
 # And We Talk of Christ
 
-Dallin H. Oaks
-
 By Elder Gary E. Stevenson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2025 General Conference*
@@ -163,7 +161,3 @@ I add my testimony to his—and to yours and to that of angels and prophets—th
 
 [^32]: [[Mosiah 16.8|Mosiah 16:8]].
 
-
-
-
-#Easter #Jesus_Christ #Light_Of_Christ #Resurrection

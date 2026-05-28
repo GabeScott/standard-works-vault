@@ -1,7 +1,5 @@
 # The Things That Matter Most
 
-Joseph Fielding Smith
-
 By President A. Theodore Tuttle - *Of the First Council of the Seventy*
 
 *Given in the October session of the 1971 General Conference*
@@ -89,4 +87,3 @@ I was reared in a home of wise, loving, and responsible parents. I was reared in
 
 
 
-#Home #Parenthood

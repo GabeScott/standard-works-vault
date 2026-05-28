@@ -1,7 +1,5 @@
 # Ignorance Is Expensive
 
-Joseph Fielding Smith
-
 By President Hartman Rector, Jr. - *Of the First Council of the Seventy*
 
 *Given in the April session of the 1971 General Conference*
@@ -69,4 +67,3 @@ May I bear witness to you, my brethren and sisters, that what you have heard fro
 
 
 
-#Education

@@ -1,7 +1,5 @@
 # This Is a Day of Sacrifice
 
-Spencer W. Kimball
-
 By President Ezra Taft Benson - *Of the Council of the Twelve*
 
 *Given in the April session of the 1979 General Conference*
@@ -99,4 +97,3 @@ I testify to you that this is a day of sacrifice, that it is part of the Lord’
 
 
 
-#Marriage #Missionary_Work #Sacrifice #Self-Esteem

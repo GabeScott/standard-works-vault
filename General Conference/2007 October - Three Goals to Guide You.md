@@ -1,7 +1,5 @@
 # Three Goals to Guide You
 
-Gordon B. Hinckley
-
 By President Thomas S. Monson - *First Counselor in the First Presidency*
 
 *Given in the October session of the 2007 General Conference*
@@ -131,7 +129,3 @@ My dear sisters, may our Heavenly Father bless each of you, married or single, i
 
 [^11]: [[Matthew 25.21|Matthew 25:21]].
 
-
-
-
-#Education #Prayer #Scriptures #Service

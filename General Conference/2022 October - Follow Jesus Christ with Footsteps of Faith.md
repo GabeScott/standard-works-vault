@@ -1,7 +1,5 @@
 # Follow Jesus Christ with Footsteps of Faith
 
-Dallin H. Oaks
-
 By President M. Russell Ballard - *Acting President of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2022 General Conference*
@@ -105,7 +103,3 @@ May we ever follow in the footsteps of Jesus Christ and, with faith in our every
 
 [^17]: [[3 Nephi 18.32|3 Nephi 18:32]].
 
-
-
-
-#Adversity #Faith #Jesus_Christ #Joseph_Smith #Missionary_Work #Pioneers

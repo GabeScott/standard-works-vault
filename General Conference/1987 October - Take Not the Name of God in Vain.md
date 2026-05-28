@@ -1,7 +1,5 @@
 # Take Not the Name of God in Vain
 
-Ezra Taft Benson
-
 By President Gordon B. Hinckley - *First Counselor in the First Presidency*
 
 *Given in the October session of the 1987 General Conference*
@@ -117,4 +115,3 @@ Don’t swear. Don’t profane. Avoid so-called dirty jokes. Stay away from conv
 
 
 
-#God_The_Father #Jesus_Christ #Profanity #Youth

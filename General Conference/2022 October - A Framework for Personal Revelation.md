@@ -1,7 +1,5 @@
 # A Framework for Personal Revelation
 
-Dallin H. Oaks
-
 By Elder Dale G. Renlund - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2022 General Conference*
@@ -115,7 +113,3 @@ The elements of the framework for personal revelation are overlapping and mutual
 
 [^31]: See [[2 Nephi 32.5|2 Nephi 32:5]].
 
-
-
-
-#Holy_Ghost #Prophets #Revelation #Scriptures

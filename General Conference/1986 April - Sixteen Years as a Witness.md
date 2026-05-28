@@ -1,7 +1,5 @@
 # Sixteen Years as a Witness
 
-Ezra Taft Benson
-
 By Elder Francis M. Gibbons - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1986 General Conference*
@@ -29,4 +27,3 @@ As one final word I would say that I came to the position of secretary to the Fi
 
 
 
-#Church_Callings #Prophets

@@ -1,7 +1,5 @@
 # The Merciful Obtain Mercy
 
-Thomas S. Monson
-
 By President Dieter F. Uchtdorf - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 2012 General Conference*
@@ -177,7 +175,3 @@ Of this I testify in the name of the One who loved so well and so completely tha
 
 [^19]: See [[Romans 3.23|Romans 3:23]].
 
-
-
-
-#Forgiveness #Judging #Love #Mercy

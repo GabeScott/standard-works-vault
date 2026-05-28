@@ -1,7 +1,5 @@
 # Do You Want to Be Happy?
 
-David A. Bednar
-
 By Elder Yoon Hwan Choi - *Of the Seventy*
 
 *Given in the October session of the 2023 General Conference*
@@ -87,7 +85,3 @@ My dear brothers and sisters, do you want to be happy? Stay on the covenant path
 
 [^12]: [[Matthew 11.28|Matthew 11:28]].
 
-
-
-
-#Church_Callings #Covenants #Joy #Obedience #Service

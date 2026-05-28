@@ -1,7 +1,5 @@
 # We Bear Witness of Him
 
-Gordon B. Hinckley
-
 By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the April session of the 1998 General Conference*
@@ -57,4 +55,3 @@ And so, my beloved brothers and sisters, let us rejoice together now as we celeb
 
 
 
-#Book_Of_Mormon #Church_History #Faith #General_Conference #Jesus_Christ #Joseph_Smith #Love #Religion

@@ -1,7 +1,5 @@
 # Trust in God, Then Go and Do
 
-Thomas S. Monson
-
 By President Henry B. Eyring - *First Counselor in the First Presidency*
 
 *Given in the October session of the 2010 General Conference*
@@ -133,7 +131,3 @@ I testify that God speaks today through His chosen servants in The Church of Jes
 
 [^12]: [[D&C 1.38|Doctrine and Covenants 1:38]].
 
-
-
-
-#Blessings #Obedience #Prophets #Trust

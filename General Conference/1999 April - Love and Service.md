@@ -1,7 +1,5 @@
 # Love and Service
 
-Gordon B. Hinckley
-
 By Elder David B. Haight - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1999 General Conference*
@@ -93,4 +91,3 @@ May we live the principles of the gospel. May we use our time effectively, all o
 
 
 
-#Jesus_Christ #Love #Missionary_Work #Obedience #Service

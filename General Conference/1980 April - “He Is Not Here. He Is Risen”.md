@@ -1,7 +1,5 @@
 # “He Is Not Here. He Is Risen”
 
-Spencer W. Kimball
-
 By Elder David B. Haight - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1980 General Conference*
@@ -105,4 +103,3 @@ It is not only destined to *become* but *is* the greatest power in the world. I 
 
 
 
-#Jesus_Christ

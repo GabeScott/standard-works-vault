@@ -1,7 +1,5 @@
 # Opening Message
 
-Russell M. Nelson
-
 By President Russell M. Nelson - *President of The Church of Jesus Christ of Latter-day Saints*
 
 *Given in the April session of the 2020 General Conference*
@@ -51,7 +49,3 @@ Welcome to April 2020 general conference! I know that God, our Heavenly Father, 
 
 [^5]: *Hymns,* no. 2.
 
-
-
-
-#Restoration

@@ -1,7 +1,5 @@
 # Jesus Christ, the Son of the Living God
 
-Thomas S. Monson
-
 By Elder John M. Madsen - *Of the Seventy*
 
 *Given in the April session of the 1993 General Conference*
@@ -63,4 +61,3 @@ I know and bear witness that Jesus is the Christ, the Son of the living God, tha
 
 
 
-#Atonement #Book_Of_Mormon #Jesus_Christ

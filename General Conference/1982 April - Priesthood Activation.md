@@ -1,7 +1,5 @@
 # Priesthood Activation
 
-Spencer W. Kimball
-
 By Bishop Victor L. Brown - *Presiding Bishop*
 
 *Given in the April session of the 1982 General Conference*
@@ -91,8 +89,3 @@ May we be so perceptive as to look through the window of each boy’s heart and 
 
 
 
-
-
-
-
-#Miracles #Priesthood

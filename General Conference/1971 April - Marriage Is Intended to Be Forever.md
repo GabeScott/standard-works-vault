@@ -1,7 +1,5 @@
 # Marriage Is Intended to Be Forever
 
-Joseph Fielding Smith
-
 By Elder James A. Cullimore - *Assistant to the Council of the Twelve*
 
 *Given in the April session of the 1971 General Conference*
@@ -75,4 +73,3 @@ May we keep sacred our marriage vows and live so that we might enjoy its eternal
 
 
 
-#Marriage

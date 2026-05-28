@@ -1,7 +1,5 @@
 # Pornography—the Deadly Carrier
 
-Spencer W. Kimball
-
 By Elder Thomas S. Monson - *Of the Council of the Twelve*
 
 *Given in the October session of the 1979 General Conference*
@@ -81,4 +79,3 @@ That we may do so is my sincere prayer, in the name of Jesus Christ, amen.
 
 
 
-#Media #Morality

@@ -1,7 +1,5 @@
 # Prayer to Our Heavenly Father
 
-Spencer W. Kimball
-
 By Elder Bernard P. Brockbank - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1979 General Conference*
@@ -107,4 +105,3 @@ As the sons and daughters of a living God, a living Heavenly Father, we should s
 
 
 
-#Prayer

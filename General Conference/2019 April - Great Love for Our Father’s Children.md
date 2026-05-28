@@ -1,7 +1,5 @@
 # Great Love for Our Father’s Children
 
-Ulisses Soares
-
 By Elder Quentin L. Cook - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2019 General Conference*
@@ -137,7 +135,3 @@ I promise that as we focus on our love for the Savior and His Atonement, make Hi
 
 [^32]: See [[John 17.3|John 17:3]]; [[2 Nephi 31.20|2 Nephi 31:20]]; [[Moroni 7.47|Moroni 7:47]].
 
-
-
-
-#Family #Family_History #Love #Missionary_Work #Teaching #Temple_Work

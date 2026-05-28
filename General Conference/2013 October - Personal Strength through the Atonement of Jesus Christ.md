@@ -1,7 +1,5 @@
 # Personal Strength through the Atonement of Jesus Christ
 
-Thomas S. Monson
-
 By Elder Richard G. Scott - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2013 General Conference*
@@ -65,13 +63,13 @@ Because your Father in Heaven loves you profoundly, the Atonement of Jesus Chris
 
 
 
-[^1]: [[Alma 17.14|Alma 17:14]]; see also [[Alma 17.1|Alma 17–27]].
+[^1]: [[Alma 17.14|Alma 17:14]]; see also [[Alma 17.1|Alma 17–27]][[Alma 17.2|]][[Alma 17.3|]][[Alma 17.4|]][[Alma 17.5|]][[Alma 17.6|]][[Alma 17.7|]][[Alma 17.8|]][[Alma 17.9|]][[Alma 17.10|]][[Alma 17.11|]][[Alma 17.12|]][[Alma 17.13|]][[Alma 17.14|]][[Alma 17.15|]][[Alma 17.16|]][[Alma 17.17|]][[Alma 17.18|]][[Alma 17.19|]][[Alma 17.20|]][[Alma 17.21|]][[Alma 17.22|]][[Alma 17.23|]][[Alma 17.24|]][[Alma 17.25|]][[Alma 17.26|]][[Alma 17.27|]][[Alma 17.28|]][[Alma 17.29|]][[Alma 17.30|]][[Alma 17.31|]][[Alma 17.32|]][[Alma 17.33|]][[Alma 17.34|]][[Alma 17.35|]][[Alma 17.36|]][[Alma 17.37|]][[Alma 17.38|]][[Alma 17.39|]].
 
 [^2]: See [[Alma 23.4|Alma 23:4–7]][[Alma 23.5|]][[Alma 23.6|]][[Alma 23.7|]]; [[Alma 24.5|24:5–19]][[Alma 24.6|]][[Alma 24.7|]][[Alma 24.8|]][[Alma 24.9|]][[Alma 24.10|]][[Alma 24.11|]][[Alma 24.12|]][[Alma 24.13|]][[Alma 24.14|]][[Alma 24.15|]][[Alma 24.16|]][[Alma 24.17|]][[Alma 24.18|]][[Alma 24.19|]].
 
 [^3]: See [[Alma 24.20|Alma 24:20–27]][[Alma 24.21|]][[Alma 24.22|]][[Alma 24.23|]][[Alma 24.24|]][[Alma 24.25|]][[Alma 24.26|]][[Alma 24.27|]].
 
-[^4]: See [[Alma 27.1|Alma 27]].
+[^4]: See [[Alma 27.1|Alma 27]][[Alma 27.2|]][[Alma 27.3|]][[Alma 27.4|]][[Alma 27.5|]][[Alma 27.6|]][[Alma 27.7|]][[Alma 27.8|]][[Alma 27.9|]][[Alma 27.10|]][[Alma 27.11|]][[Alma 27.12|]][[Alma 27.13|]][[Alma 27.14|]][[Alma 27.15|]][[Alma 27.16|]][[Alma 27.17|]][[Alma 27.18|]][[Alma 27.19|]][[Alma 27.20|]][[Alma 27.21|]][[Alma 27.22|]][[Alma 27.23|]][[Alma 27.24|]][[Alma 27.25|]][[Alma 27.26|]][[Alma 27.27|]][[Alma 27.28|]][[Alma 27.29|]][[Alma 27.30|]].
 
 [^5]: See [[Alma 53.8|Alma 53:8–9]][[Alma 53.9|]]; [[Alma 56.10|56:10–17]][[Alma 56.11|]][[Alma 56.12|]][[Alma 56.13|]][[Alma 56.14|]][[Alma 56.15|]][[Alma 56.16|]][[Alma 56.17|]].
 
@@ -111,7 +109,3 @@ Because your Father in Heaven loves you profoundly, the Atonement of Jesus Chris
 
 [^23]: See [[Matthew 16.25|Matthew 16:25]]; [[D&C 88.125|Doctrine and Covenants 88:125]].
 
-
-
-
-#Atonement #Book_Of_Mormon #Covenants #Jesus_Christ #Repentance

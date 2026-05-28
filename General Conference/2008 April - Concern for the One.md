@@ -1,7 +1,5 @@
 # Concern for the One
 
-Dieter F. Uchtdorf
-
 By Elder Joseph B. Wirthlin - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2008 General Conference*
@@ -119,7 +117,3 @@ To all who inhabit this beautiful earth, I raise my voice and bear solemn witnes
 
 [^13]: [[John 7.17|John 7:17]].
 
-
-
-
-#Individual_Worth #Kindness #Repentance

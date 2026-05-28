@@ -1,7 +1,5 @@
 # Hope in Christ
 
-Russell M. Nelson
-
 By President M. Russell Ballard - *Acting President of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2021 General Conference*
@@ -137,7 +135,3 @@ I bear my witness on this Easter weekend of our Savior, Jesus Christ, and the et
 
 [^22]: [[Acts 17.26|Acts 17:26]].
 
-
-
-
-#Belonging #Blessings #Hope #Jesus_Christ #Loneliness #Obedience #Patience #Single_Adults

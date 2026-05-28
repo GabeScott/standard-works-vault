@@ -1,7 +1,5 @@
 # Are You Still Willing?
 
-Dallin H. Oaks
-
 By Elder Kevin W. Pearson - *Of the Seventy*
 
 *Given in the October session of the 2022 General Conference*
@@ -95,7 +93,3 @@ May we always be willing. In the sacred name of the Lord Jesus Christ, amen.
 
 [^18]: [[D&C 64.34|Doctrine and Covenants 64:34]].
 
-
-
-
-#Discipleship #Holy_Ghost #Jesus_Christ #Sacrament

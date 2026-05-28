@@ -1,7 +1,5 @@
 # No More Strangers and Foreigners
 
-Gordon B. Hinckley
-
 By Elder Harold G. Hillam - *Of the Seventy*
 
 *Given in the October session of the 1990 General Conference*
@@ -47,4 +45,3 @@ And may we also, as members of the Church, truly do our part to make His church 
 
 
 
-#Fellowshipping #Missionary_Work

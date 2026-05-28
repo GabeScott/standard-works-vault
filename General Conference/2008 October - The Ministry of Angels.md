@@ -1,7 +1,5 @@
 # The Ministry of Angels
 
-Thomas S. Monson
-
 By Elder Jeffrey R. Holland - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2008 General Conference*
@@ -89,7 +87,3 @@ May we all believe more readily in, and have more gratitude for, the Lord’s pr
 
 [^15]: [[D&C 90.24|D&C 90:24]].
 
-
-
-
-#Angels #Peace #Safety #Service

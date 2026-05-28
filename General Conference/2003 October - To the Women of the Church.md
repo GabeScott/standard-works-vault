@@ -1,7 +1,5 @@
 # To the Women of the Church
 
-Gordon B. Hinckley
-
 By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the October session of the 2003 General Conference*
@@ -97,7 +95,3 @@ You are the Relief Society of The Church of Jesus Christ of Latter-day Saints. T
 
 [^1]: Quoted from J. E. McCulloch, *Home: The Savior of Civilization* (1924), 42; in Conference Report, Apr. 1935, 116.
 
-
-
-
-#Faith #Motherhood #Single_Members #Women

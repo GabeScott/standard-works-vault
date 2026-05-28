@@ -1,7 +1,5 @@
 # Covenants and Blessings
 
-Spencer W. Kimball
-
 By Elder William H. Bennett - *Assistant to the Council of the Twelve*
 
 *Given in the October session of the 1975 General Conference*
@@ -81,4 +79,3 @@ I leave you my testimony, my brothers and sisters, that this Church is led by a 
 
 
 
-#Blessings #Covenants

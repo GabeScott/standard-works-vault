@@ -1,7 +1,5 @@
 # On Being Worthy
 
-Ezra Taft Benson
-
 By Elder Marvin J. Ashton - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1989 General Conference*
@@ -120,4 +118,3 @@ I leave my love, blessings, and testimony of these truths in the worthy name of 
 
 
 
-#Worthiness

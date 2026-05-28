@@ -1,7 +1,5 @@
 # Repentance
 
-Spencer W. Kimball
-
 By President Marion G. Romney - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 1980 General Conference*
@@ -149,4 +147,3 @@ That we may all, through repentance and by enduring to the end, obtain that rest
 
 
 
-#Repentance

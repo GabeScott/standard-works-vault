@@ -1,7 +1,5 @@
 # Serving the Lord
 
-Gordon B. Hinckley
-
 By Elder Adhemar Damiani - *Of the Seventy*
 
 *Given in the October session of the 1999 General Conference*
@@ -119,7 +117,3 @@ I bear my witness that I know these principles are true. My family and I have be
 
 [^8]: [[Joshua 24.15|Josh. 24:15]].
 
-
-
-
-#Adversity #Discipleship #Habits #Jesus_Christ #Joy #Obedience #Poverty #Service

@@ -1,7 +1,5 @@
 # Protect the Spiritual Power Line
 
-Gordon B. Hinckley
-
 By Elder Russell M. Nelson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1984 General Conference*
@@ -91,4 +89,3 @@ Of his sacred name and mission I solemnly bear special witness. Of his divine so
 
 
 
-#Love #Obedience #Prayer #Work

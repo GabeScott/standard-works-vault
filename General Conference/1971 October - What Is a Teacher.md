@@ -1,7 +1,5 @@
 # What Is a Teacher?
 
-Joseph Fielding Smith
-
 By President Paul H. Dunn - *Of the First Council of the Seventy*
 
 *Given in the October session of the 1971 General Conference*
@@ -107,4 +105,3 @@ Such is the gospel of Jesus Christ, to which I bear solemn testimony in the name
 
 
 
-#Teaching

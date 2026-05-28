@@ -1,7 +1,5 @@
 # You Are All Heaven Sent
 
-Gordon B. Hinckley
-
 By President James E. Faust - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 2002 General Conference*
@@ -109,7 +107,3 @@ May the promise of Nephi be fulfilled in your behalf: “And they were armed wit
 
 [^14]: [[1 Nephi 14.14|1 Nephi 14:14]].
 
-
-
-
-#Charity #Family #Home #Obedience #Preparation #Relief_Society #Women

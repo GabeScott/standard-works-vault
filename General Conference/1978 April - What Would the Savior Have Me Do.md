@@ -1,7 +1,5 @@
 # What Would the Savior Have Me Do?
 
-Spencer W. Kimball
-
 By Elder Derek A. Cuthbert - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1978 General Conference*
@@ -29,4 +27,3 @@ We’re so grateful to love and support these wonderful brethren here. And we fe
 
 
 
-#Testimony

@@ -1,7 +1,5 @@
 # Marriage and Divorce
 
-Gordon B. Hinckley
-
 By Elder David B. Haight - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1984 General Conference*
@@ -91,4 +89,3 @@ Latter-day Saints need not divorce—there are solutions to marriage problems. I
 
 
 
-#Divorce #Marriage

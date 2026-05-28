@@ -1,7 +1,5 @@
 # The Pleasing Word of God
 
-Rosemary M. Wixom
-
 By Elder Francisco J. Viñas - *Of the Seventy*
 
 *Given in the October session of the 2015 General Conference*
@@ -87,4 +85,3 @@ It is my prayer that we may experience the joy that comes from striving to live 
 
 
 
-#Adversity #Atonement #Holy_Ghost #Prophets #Repentance #Sabbath

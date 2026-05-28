@@ -1,7 +1,5 @@
 # Lost Battalions
 
-Joseph Fielding Smith
-
 By Elder Thomas S. Monson - *Of the Council of the Twelve*
 
 *Given in the April session of the 1971 General Conference*
@@ -121,4 +119,3 @@ As his witness I testify to you that he lives. In the name of Jesus Christ. Amen
 
 
 
-#Disabilities #Elderly #Service

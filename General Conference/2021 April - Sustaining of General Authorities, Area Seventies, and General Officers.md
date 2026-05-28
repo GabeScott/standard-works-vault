@@ -1,7 +1,5 @@
 # Sustaining of General Authorities, Area Seventies, and General Officers
 
-Russell M. Nelson
-
 By Presented by President Dallin H. Oaks - *First Counselor in the First Presidency*
 
 *Given in the April session of the 2021 General Conference*
@@ -81,4 +79,3 @@ Daniel P. Amato, Rodney A. Ames, Marcelo Andrezzo, Samuel Annan-Simons, Patrick 
 
 
 
-#Church_Callings

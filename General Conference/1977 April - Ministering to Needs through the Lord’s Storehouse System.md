@@ -1,7 +1,5 @@
 # Ministering to Needs through the Lord’s Storehouse System
 
-Spencer W. Kimball
-
 By President Ezra Taft Benson - *Of the Council of the Twelve*
 
 *Given in the April session of the 1977 General Conference*
@@ -77,4 +75,3 @@ May we through the proper use and expansion of modern storehouses wisely provide
 
 
 
-#Welfare

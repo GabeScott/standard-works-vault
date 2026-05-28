@@ -1,7 +1,5 @@
 # Parents, Teach Your Children
 
-Spencer W. Kimball
-
 By President Paul H. Dunn - *Of the First Council of the Seventy*
 
 *Given in the April session of the 1974 General Conference*
@@ -97,4 +95,3 @@ May I testify to all parents in Zion everywhere to the efficacy of these great p
 
 
 
-#Children #Example #Family #Love #Parents #Prayer

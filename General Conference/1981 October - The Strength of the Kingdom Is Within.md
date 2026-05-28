@@ -1,7 +1,5 @@
 # The Strength of the Kingdom Is Within
 
-Gordon B. Hinckley
-
 By Elder Dean L. Larsen - *Of the Presidency of the First Quorum of the Seventy*
 
 *Given in the October session of the 1981 General Conference*
@@ -61,4 +59,3 @@ It is a time for us to assess our own spiritual vital signs in those essential a
 
 
 
-#Spirituality

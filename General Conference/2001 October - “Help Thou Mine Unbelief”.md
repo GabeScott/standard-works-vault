@@ -1,7 +1,5 @@
 # “Help Thou Mine Unbelief”
 
-Gordon B. Hinckley
-
 By Elder L. Whitney Clayton - *Of the Seventy*
 
 *Given in the October session of the 2001 General Conference*
@@ -97,7 +95,3 @@ I know that the Savior lives and that He helps our unbelief. In the name of Jesu
 
 [^21]: [[Helaman 3.35|Hel. 3:35]].
 
-
-
-
-#Agency #Example #Faith #Fasting #Hope #Jesus_Christ #Obedience #Prayer #Satan #Scripture_Study #Service #Spirituality

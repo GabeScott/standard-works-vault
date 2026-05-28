@@ -1,7 +1,5 @@
 # The Message of the Restoration
 
-Thomas S. Monson
-
 By Elder L. Tom Perry - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2007 General Conference*
@@ -111,4 +109,3 @@ My witness to you is that this is the Church of Jesus Christ, established in the
 
 
 
-#Activation #Priesthood #Restoration #Service

@@ -1,7 +1,5 @@
 # “Exceeding Great and Precious Promises”
 
-Gordon B. Hinckley
-
 By President Howard W. Hunter - *President of the Church*
 
 *Given in the October session of the 1994 General Conference*
@@ -79,4 +77,3 @@ I pledge my life, my strength, and the full measure of my soul to serving him. M
 
 
 
-#Church_Leaders #Family #Family_History #Jesus_Christ #Prophets #Temples

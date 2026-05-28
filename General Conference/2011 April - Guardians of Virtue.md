@@ -1,7 +1,5 @@
 # Guardians of Virtue
 
-Thomas S. Monson
-
 By Elaine S. Dalton - *Young Women General President*
 
 *Given in the April session of the 2011 General Conference*
@@ -77,7 +75,3 @@ I testify that God lives and that His Beloved Son, our Redeemer, Jesus Christ, l
 
 [^12]: [[Revelation 3.4|Revelation 3:4]].
 
-
-
-
-#Commitment #Covenants #Morality #Temples #Worthiness

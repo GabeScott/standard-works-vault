@@ -1,7 +1,5 @@
 # Welcome to Conference
 
-Thomas S. Monson
-
 By President Thomas S. Monson - *President of the Church*
 
 *Given in the April session of the 2013 General Conference*
@@ -37,4 +35,3 @@ I urge you to be attentive and receptive to the messages which we will hear. Tha
 
 
 
-#Missionary_Work #Temples

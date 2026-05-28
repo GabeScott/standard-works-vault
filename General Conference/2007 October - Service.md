@@ -1,7 +1,5 @@
 # Service
 
-Gordon B. Hinckley
-
 By Elder Steven E. Snow - *Of the Presidency of the Seventy*
 
 *Given in the October session of the 2007 General Conference*
@@ -67,7 +65,3 @@ It is my hope and prayer that we can all do more in giving service. If we fail t
 
 [^6]: In Conference Report, Apr. 1976, [[1976 April - Boys Need Heroes Close By.md|71]]; or *Ensign,* May 1976, 47.
 
-
-
-
-#Compassion #Service

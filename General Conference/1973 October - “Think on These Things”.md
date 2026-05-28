@@ -1,7 +1,5 @@
 # “Think on These Things”
 
-Harold B. Lee
-
 By Elder Bruce R. McConkie - *Of the Council of the Twelve*
 
 *Given in the October session of the 1973 General Conference*
@@ -87,4 +85,3 @@ And we have the promise that if we seek him with full purpose of heart, keeping 
 
 
 
-#Obedience #Spirituality

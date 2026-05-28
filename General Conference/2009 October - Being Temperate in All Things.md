@@ -1,7 +1,5 @@
 # Being Temperate in All Things
 
-Thomas S. Monson
-
 By Elder Kent D. Watson - *Of the Seventy*
 
 *Given in the October session of the 2009 General Conference*
@@ -93,7 +91,3 @@ I leave my witness that our Redeemer lives and His divine gift of temperance is 
 
 [^15]: [[D&C 12.8|D&C 12:8]].
 
-
-
-
-#Financial_Management #Jesus_Christ

@@ -1,7 +1,5 @@
 # See the End from the Beginning
 
-Robert D. Hales
-
 By Elder Dieter F. Uchtdorf - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2006 General Conference*
@@ -67,4 +65,3 @@ Of this I testify as an Apostle of the Lord, our Savior, and in the sacred name 
 
 
 
-#Perspective #Standards #Worthiness

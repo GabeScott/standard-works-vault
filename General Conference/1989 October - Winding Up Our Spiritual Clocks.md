@@ -1,7 +1,5 @@
 # Winding Up Our Spiritual Clocks
 
-Ezra Taft Benson
-
 By Elder Dean L. Larsen - *Of the Presidency of the Seventy*
 
 *Given in the October session of the 1989 General Conference*
@@ -81,4 +79,3 @@ I testify to you that these things are true. May those â€œennobling influencesâ€
 
 
 
-#Prayer #Sabbath #Sacrament #Scripture_Study #Service #Spirituality

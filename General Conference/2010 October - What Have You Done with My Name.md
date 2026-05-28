@@ -1,7 +1,5 @@
 # What Have You Done with My Name?
 
-Thomas S. Monson
-
 By Elder Mervyn B. Arnold - *Of the Seventy*
 
 *Given in the October session of the 2010 General Conference*
@@ -85,7 +83,3 @@ In that glorious day when we stand before our beloved Savior to report what we h
 
 [^11]: [[2 Timothy 4.7|2 Timothy 4:7]].
 
-
-
-
-#Commandments #Jesus_Christ #Obedience

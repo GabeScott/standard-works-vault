@@ -1,7 +1,5 @@
 # The Priesthood: A Royal Army
 
-Wilford G. Edling
-
 By President N. Eldon Tanner - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 1972 General Conference*
@@ -75,4 +73,3 @@ May we honor our priesthood and enjoy the blessings that it affords and do our p
 
 
 
-#Example #Priesthood

@@ -1,7 +1,5 @@
 # Faith to Act and Become
 
-Russell M. Nelson
-
 By Elder Ciro Schmeil - *Of the Seventy*
 
 *Given in the October session of the 2021 General Conference*
@@ -87,7 +85,3 @@ I am grateful for prophets, seers, and revelators; they are the watchmen on the 
 
 [^12]: Dallin H. Oaks, “[[2000 October - The Challenge to Become.md|The Challenge to Become]],” *Ensign*, Nov. 2000, 32; *Liahona*, Jan. 2001, 40.
 
-
-
-
-#Discipleship #Faith #Jesus_Christ #Prayer #Scripture_Study

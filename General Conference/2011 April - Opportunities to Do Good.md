@@ -1,7 +1,5 @@
 # Opportunities to Do Good
 
-Thomas S. Monson
-
 By President Henry B. Eyring - *First Counselor in the First Presidency*
 
 *Given in the April session of the 2011 General Conference*
@@ -133,7 +131,3 @@ I know that God the Father lives and hears our prayers. I know that Jesus is the
 
 [^6]: [[D&C 81.5|Doctrine and Covenants 81:5]].
 
-
-
-
-#Love #Self-Reliance #Service #Welfare

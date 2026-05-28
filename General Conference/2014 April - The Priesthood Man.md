@@ -1,7 +1,5 @@
 # The Priesthood Man
 
-Thomas S. Monson
-
 By President Henry B. Eyring - *First Counselor in the First Presidency*
 
 *Given in the April session of the 2014 General Conference*
@@ -101,7 +99,3 @@ God the Father lives and will answer your prayers for the help you need to serve
 
 [^3]: [[Moses 1.37|Moses 1:37–39]][[Moses 1.38|]][[Moses 1.39|]].
 
-
-
-
-#Example #Honesty #Prayer #Priesthood #Service

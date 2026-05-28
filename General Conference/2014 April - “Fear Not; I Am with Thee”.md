@@ -1,7 +1,5 @@
 # “Fear Not; I Am with Thee”
 
-Thomas S. Monson
-
 By Jean A. Stevens - *First Counselor in the Primary General Presidency*
 
 *Given in the April session of the 2014 General Conference*
@@ -77,7 +75,3 @@ I share my humble but certain witness that God our Father knows us personally an
 
 [^5]: [[Isaiah 41.10|Isaiah 41:10]].
 
-
-
-
-#Adversity #Faith #God_The_Father #Prayer #Trust

@@ -1,7 +1,5 @@
 # Discovering the Divinity Within
 
-Rosemary M. Wixom
-
 By Rosemary M. Wixom - *Primary General President*
 
 *Given in the October session of the 2015 General Conference*
@@ -103,7 +101,3 @@ I promise that as you seek to discover the depth of the divine nature that lies 
 
 [^12]: [[2 Nephi 9.26|2 Nephi 9:26]].
 
-
-
-
-#Divine_Nature #Education #Love #Service

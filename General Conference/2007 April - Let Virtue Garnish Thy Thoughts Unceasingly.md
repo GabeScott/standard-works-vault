@@ -1,7 +1,5 @@
 # Let Virtue Garnish Thy Thoughts Unceasingly
 
-Thomas S. Monson
-
 By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the April session of the 2007 General Conference*
@@ -69,4 +67,3 @@ May the Lord bless you, my dear young sisters; may His blessings attend you at a
 
 
 
-#Faith #Prayer #Scriptures #Tithing

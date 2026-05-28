@@ -1,7 +1,5 @@
 # Look for the Beautiful
 
-Gordon B. Hinckley
-
 By Elder Keith W. Wilcox - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1985 General Conference*
@@ -49,4 +47,3 @@ I leave you my testimony that I know this is the restored Church of Jesus Christ
 
 
 
-#Attitude

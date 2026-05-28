@@ -1,7 +1,5 @@
 # Statistical Report 1987
 
-Ezra Taft Benson
-
 By Presented by F. Michael Watson - *Secretary to the First Presidency*
 
 *Given in the April session of the 1988 General Conference*

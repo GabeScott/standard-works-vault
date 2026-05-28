@@ -1,7 +1,5 @@
 # The Beacon in the Harbor of Peace
 
-Gordon B. Hinckley
-
 By President Howard W. Hunter - *President of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1992 General Conference*
@@ -55,4 +53,3 @@ In the name of Jesus Christ, amen.
 
 
 
-#Faith #Jesus_Christ #Peace

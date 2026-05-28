@@ -1,7 +1,5 @@
 # Come unto Christ and Don’t Come Alone
 
-Russell M. Nelson
-
 By Bonnie H. Cordon - *Young Women General President*
 
 *Given in the October session of the 2021 General Conference*
@@ -123,7 +121,3 @@ I boldly testify that the Lord knows who you are and He loves you! Together, we 
 
 [^17]: Russell M. Nelson, *Accomplishing the Impossible: What God Does, What We Can Do* (2015), 147.
 
-
-
-
-#Divine_Nature #Jesus_Christ #Youth

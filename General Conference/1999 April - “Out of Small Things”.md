@@ -1,7 +1,5 @@
 # “Out of Small Things”
 
-Gordon B. Hinckley
-
 By Elder Stephen A. West - *Of the Seventy*
 
 *Given in the April session of the 1999 General Conference*
@@ -61,7 +59,3 @@ In these times when so much of our daily experience seems to point to a world mo
 
 [^8]: [[D&C 64.33|D&C 64:33]].
 
-
-
-
-#Good_Samaritan #Jesus_Christ #Sacrifice #Service

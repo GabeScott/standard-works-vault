@@ -1,7 +1,5 @@
 # The Teachings of Jesus Christ
 
-Gary E. Stevenson
-
 By President Dallin H. Oaks - *First Counselor in the First Presidency*
 
 *Given in the April session of the 2023 General Conference*
@@ -205,7 +203,3 @@ I affirm the truth of these teachings in the name of Jesus Christ, amen.
 
 [^37]: [[John 14.26|John 14:26]].
 
-
-
-
-#Jesus_Christ #Scripture_Study #Scriptures #Teaching

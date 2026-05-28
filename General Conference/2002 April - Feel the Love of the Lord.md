@@ -1,7 +1,5 @@
 # Feel the Love of the Lord
 
-Gordon B. Hinckley
-
 By Bonnie D. Parkin - *Relief Society General President*
 
 *Given in the April session of the 2002 General Conference*
@@ -33,7 +31,3 @@ I give testimony of the power of a prophet of God, President Gordon B. Hinckley,
 
 [^1]: *The Gathering of Zion: The Story of the Mormon Trail* (1964), 13.
 
-
-
-
-#Gratitude #Relief_Society #Testimony

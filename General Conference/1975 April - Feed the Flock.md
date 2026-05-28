@@ -1,7 +1,5 @@
 # Feed the Flock
 
-Spencer W. Kimball
-
 By Elder David B. Haight - *Assistant to the Council of the Twelve*
 
 *Given in the April session of the 1975 General Conference*
@@ -49,4 +47,3 @@ I pray that as you close the drapes on each day, you will rest peacefully knowin
 
 
 
-#Military #Service

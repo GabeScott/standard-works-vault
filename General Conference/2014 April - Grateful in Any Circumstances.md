@@ -1,7 +1,5 @@
 # Grateful in Any Circumstances
 
-Thomas S. Monson
-
 By President Dieter F. Uchtdorf - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 2014 General Conference*
@@ -147,7 +145,3 @@ May we “live in thanksgiving daily”[^18]—especially during the seemingly u
 
 [^18]: [[Alma 34.38|Alma 34:38]].
 
-
-
-
-#Adversity #Gratitude

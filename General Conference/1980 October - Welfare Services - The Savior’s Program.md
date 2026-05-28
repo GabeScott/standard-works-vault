@@ -1,7 +1,5 @@
 # Welfare Services: The Savior’s Program
 
-Spencer W. Kimball
-
 By President Marion G. Romney - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 1980 General Conference*
@@ -81,4 +79,3 @@ It is my prayer that each of us will derive from this session of conference toda
 
 
 
-#Charity #Plan_Of_Salvation #Welfare

@@ -1,7 +1,5 @@
 # God’s Love for His Children
 
-Ezra Taft Benson
-
 By Elder M. Russell Ballard - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1988 General Conference*
@@ -118,4 +116,3 @@ We invite all men and women everywhere to know of the restoration of the gospel,
 
 
 
-#Creation #God_The_Father #Jesus_Christ #Resurrection

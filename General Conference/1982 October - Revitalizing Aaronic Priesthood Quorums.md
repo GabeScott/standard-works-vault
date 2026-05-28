@@ -1,7 +1,5 @@
 # Revitalizing Aaronic Priesthood Quorums
 
-Spencer W. Kimball
-
 By Elder Robert L. Backman - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1982 General Conference*
@@ -117,4 +115,3 @@ As I was called to be the President of the Young Men of the Church, I was given 
 
 
 
-#Priesthood

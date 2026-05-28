@@ -1,7 +1,5 @@
 # The Greatest Leaders Are the Greatest Followers
 
-Cheryl A. Esplin
-
 By Stephen W. Owen - *Young Men General President*
 
 *Given in the April session of the 2016 General Conference*
@@ -93,7 +91,3 @@ I bear witness that this is Christ’s true Church. We are led by a prophet of G
 
 [^8]: Thomas S. Monson, “[Your Personal Influence](https://www.churchofjesuschrist.org/study/ensign/2004/05/your-personal-influence?lang=eng),” *Ensign* or *Liahona,* May 2004, 20.
 
-
-
-
-#Discipleship #Jesus_Christ #Leadership #Priesthood #Service

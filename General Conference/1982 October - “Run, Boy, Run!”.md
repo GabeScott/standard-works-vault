@@ -1,7 +1,5 @@
 # “Run, Boy, Run!”
 
-Spencer W. Kimball
-
 By Elder Thomas S. Monson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1982 General Conference*
@@ -103,4 +101,3 @@ It has been said, “The greatest gift a man can give a boy is his willingness t
 
 
 
-#Duty #Scouting

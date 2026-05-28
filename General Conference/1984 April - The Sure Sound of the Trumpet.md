@@ -1,7 +1,5 @@
 # The Sure Sound of the Trumpet
 
-Gordon B. Hinckley
-
 By Elder Angel Abrea - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1984 General Conference*
@@ -87,4 +85,3 @@ In the name of the Redeemer, Jesus Christ, amen.
 
 
 
-#Example #Obedience

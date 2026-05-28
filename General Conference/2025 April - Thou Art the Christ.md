@@ -1,6 +1,6 @@
 # Thou Art the Christ
 
-Dallin H. Oaks
+([[Matthew 16.16|Matthew 16:16]])
 
 By Sister Amy A. Wright - *First Counselor in the Primary General Presidency*
 
@@ -163,7 +163,7 @@ This Jesus should not be a fictional Jesus,[^37] or a simplistic Jesus,[^38] or 
 
 [^43]: See [[Mosiah 3.5|Mosiah 3:5]].
 
-[^44]: See [[Luke 24.1|Luke 24:1–6]][[Luke 24.2|]][[Luke 24.3|]][[Luke 24.4|]][[Luke 24.5|]][[Luke 24.6|]]; [[3 Nephi 11.1|3 Nephi 11]].
+[^44]: See [[Luke 24.1|Luke 24:1–6]][[Luke 24.2|]][[Luke 24.3|]][[Luke 24.4|]][[Luke 24.5|]][[Luke 24.6|]]; [[3 Nephi 11.1|3 Nephi 11]][[3 Nephi 11.2|]][[3 Nephi 11.3|]][[3 Nephi 11.4|]][[3 Nephi 11.5|]][[3 Nephi 11.6|]][[3 Nephi 11.7|]][[3 Nephi 11.8|]][[3 Nephi 11.9|]][[3 Nephi 11.10|]][[3 Nephi 11.11|]][[3 Nephi 11.12|]][[3 Nephi 11.13|]][[3 Nephi 11.14|]][[3 Nephi 11.15|]][[3 Nephi 11.16|]][[3 Nephi 11.17|]][[3 Nephi 11.18|]][[3 Nephi 11.19|]][[3 Nephi 11.20|]][[3 Nephi 11.21|]][[3 Nephi 11.22|]][[3 Nephi 11.23|]][[3 Nephi 11.24|]][[3 Nephi 11.25|]][[3 Nephi 11.26|]][[3 Nephi 11.27|]][[3 Nephi 11.28|]][[3 Nephi 11.29|]][[3 Nephi 11.30|]][[3 Nephi 11.31|]][[3 Nephi 11.32|]][[3 Nephi 11.33|]][[3 Nephi 11.34|]][[3 Nephi 11.35|]][[3 Nephi 11.36|]][[3 Nephi 11.37|]][[3 Nephi 11.38|]][[3 Nephi 11.39|]][[3 Nephi 11.40|]][[3 Nephi 11.41|]].
 
 [^45]: See [[Philippians 2.9|Philippians 2:9–11]][[Philippians 2.10|]][[Philippians 2.11|]].
 
@@ -177,7 +177,3 @@ This Jesus should not be a fictional Jesus,[^37] or a simplistic Jesus,[^38] or 
 
 [^50]: [[Romans 3.25|Romans 3:25]]; see also [[1 John 2.2|1 John 2:2]]; [[1 John 4.10|4:10]].
 
-
-
-
-#Children #Covenants #Discipleship #Faith #Jesus_Christ

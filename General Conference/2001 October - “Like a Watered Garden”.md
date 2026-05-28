@@ -1,7 +1,5 @@
 # “Like a Watered Garden”
 
-Gordon B. Hinckley
-
 By Elder Jeffrey R. Holland - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2001 General Conference*
@@ -79,7 +77,3 @@ I testify that the principle of tithing is of God, taught to us in such scriptur
 
 [^13]: [[2 Samuel 24.24|2 Sam. 24:24]].
 
-
-
-
-#Blessings #Children #Education #Financial_Management #Gratitude #Restoration #Tithing

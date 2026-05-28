@@ -1,7 +1,5 @@
 # The Prophet Joseph Smith
 
-Thomas S. Monson
-
 By Elder Lawrence E. Corbridge - *Of the Seventy*
 
 *Given in the April session of the 2014 General Conference*
@@ -95,7 +93,7 @@ God is our Eternal Father, and Jesus is the Christ. We worship Them. Nothing com
 
 [^6]: See [[D&C 50.24|Doctrine and Covenants 50:24]].
 
-[^7]: See [[2 Nephi 31.1|2 Nephi 31]]; [[3 Nephi 27.1|3 Nephi 27]].
+[^7]: See [[2 Nephi 31.1|2 Nephi 31]][[2 Nephi 31.2|]][[2 Nephi 31.3|]][[2 Nephi 31.4|]][[2 Nephi 31.5|]][[2 Nephi 31.6|]][[2 Nephi 31.7|]][[2 Nephi 31.8|]][[2 Nephi 31.9|]][[2 Nephi 31.10|]][[2 Nephi 31.11|]][[2 Nephi 31.12|]][[2 Nephi 31.13|]][[2 Nephi 31.14|]][[2 Nephi 31.15|]][[2 Nephi 31.16|]][[2 Nephi 31.17|]][[2 Nephi 31.18|]][[2 Nephi 31.19|]][[2 Nephi 31.20|]][[2 Nephi 31.21|]]; [[3 Nephi 27.1|3 Nephi 27]][[3 Nephi 27.2|]][[3 Nephi 27.3|]][[3 Nephi 27.4|]][[3 Nephi 27.5|]][[3 Nephi 27.6|]][[3 Nephi 27.7|]][[3 Nephi 27.8|]][[3 Nephi 27.9|]][[3 Nephi 27.10|]][[3 Nephi 27.11|]][[3 Nephi 27.12|]][[3 Nephi 27.13|]][[3 Nephi 27.14|]][[3 Nephi 27.15|]][[3 Nephi 27.16|]][[3 Nephi 27.17|]][[3 Nephi 27.18|]][[3 Nephi 27.19|]][[3 Nephi 27.20|]][[3 Nephi 27.21|]][[3 Nephi 27.22|]][[3 Nephi 27.23|]][[3 Nephi 27.24|]][[3 Nephi 27.25|]][[3 Nephi 27.26|]][[3 Nephi 27.27|]][[3 Nephi 27.28|]][[3 Nephi 27.29|]][[3 Nephi 27.30|]][[3 Nephi 27.31|]][[3 Nephi 27.32|]][[3 Nephi 27.33|]].
 
 [^8]: See [[Moroni 10.3|Moroni 10:3–5]][[Moroni 10.4|]][[Moroni 10.5|]].
 
@@ -121,7 +119,3 @@ God is our Eternal Father, and Jesus is the Christ. We worship Them. Nothing com
 
 [^19]: [[D&C 65.2|Doctrine and Covenants 65:2]].
 
-
-
-
-#Church_History #Joseph_Smith

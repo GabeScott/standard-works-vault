@@ -1,7 +1,5 @@
 # Our Lord and Savior
 
-Gordon B. Hinckley
-
 By Elder Joseph B. Wirthlin - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1993 General Conference*
@@ -123,7 +121,3 @@ I am humbly grateful to be one of the “special witnesses of the name of Christ
 
 [^6]: Bruce R. McConkie, *Doctrinal New Testament Commentary,* 3 vols. \[Salt Lake City: Bookcraft, 1965–73\], 1:762.
 
-
-
-
-#Atonement #Jesus_Christ #Testimony

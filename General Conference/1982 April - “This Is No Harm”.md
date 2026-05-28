@@ -1,7 +1,5 @@
 # “This Is No Harm”
 
-Spencer W. Kimball
-
 By Elder Marvin J. Ashton - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1982 General Conference*
@@ -89,4 +87,3 @@ God grant to all of us the power and strength to be people of integrity, and the
 
 
 
-#Honesty

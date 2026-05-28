@@ -1,7 +1,5 @@
 # Now Is the Time to Arise and Shine!
 
-Thomas S. Monson
-
 By Elaine S. Dalton - *Young Women General President*
 
 *Given in the April session of the 2012 General Conference*
@@ -97,7 +95,3 @@ Elder Russell M. Nelson said of you, “The influence of \[the\] young women of 
 
 [^25]: [[D&C 115.5|Doctrine and Covenants 115:5]].
 
-
-
-
-#Example #Temples #Virtue

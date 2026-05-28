@@ -1,7 +1,5 @@
 # “What Think Ye of Christ?”
 
-Ezra Taft Benson
-
 By Elder Douglas H. Smith - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1988 General Conference*
@@ -41,4 +39,3 @@ I certify to you that we are led by living prophets today who receive inspiratio
 
 
 
-#Atonement #Jesus_Christ

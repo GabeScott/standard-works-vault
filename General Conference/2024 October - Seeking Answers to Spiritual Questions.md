@@ -1,7 +1,5 @@
 # Seeking Answers to Spiritual Questions
 
-Henry B. Eyring
-
 By Sister Tracy Y. Browning - *Second Counselor in the Primary General Presidency*
 
 *Given in the October session of the 2024 General Conference*
@@ -109,7 +107,3 @@ I testify that placing your trust in Heavenly Father and in His prophets, whom H
 
 [^21]: Richard G. Scott, “[[1995 October - Trust in the Lord.md|Trust in the Lord]],” *Ensign*, Nov. 1995, 17.
 
-
-
-
-#Answering_Questions #Learning #Obedience #Patience #Spiritual_Growth #Trust #Truth

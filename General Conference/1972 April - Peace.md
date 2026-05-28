@@ -1,7 +1,5 @@
 # Peace
 
-Wilford G. Edling
-
 By Elder Eldred G. Smith - *Patriarch to the Church*
 
 *Given in the April session of the 1972 General Conference*
@@ -97,4 +95,3 @@ His kingdom is already here on earth and is growing rapidly to prepare for his c
 
 
 
-#Peace #Service

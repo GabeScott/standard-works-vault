@@ -1,7 +1,5 @@
 # Sustaining of General Authorities, Area Seventies, and General Officers
 
-Russell M. Nelson
-
 By Presented by President Dallin H. Oaks - *First Counselor in the First Presidency*
 
 *Given in the April session of the 2022 General Conference*
@@ -81,4 +79,3 @@ Elzimar Gouvêa de Albuquerque, Roland J. Bäck, Raúl Barrón, Bruno V. Barros,
 
 
 
-#Church_Callings #Sustaining

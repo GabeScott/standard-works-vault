@@ -1,7 +1,5 @@
 # Emissaries to the Church
 
-Jean B. Bingham
-
 By Elder Jeffrey R. Holland - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2016 General Conference*
@@ -71,7 +69,3 @@ My brethren of the holy priesthood, when we speak of home teaching or watchcare 
 
 [^8]: Personal conversation and email exchange, Apr. 2016.
 
-
-
-
-#Home_Teaching #Priesthood #Service

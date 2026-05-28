@@ -1,7 +1,5 @@
 # Taking upon Us the Name of Jesus Christ
 
-Gordon B. Hinckley
-
 By Elder Dallin H. Oaks - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1985 General Conference*
@@ -83,4 +81,3 @@ That is what we should ponder as we partake of the sacred emblems of the sacrame
 
 
 
-#Ordinances #Sacrament

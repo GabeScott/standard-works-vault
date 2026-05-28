@@ -1,7 +1,5 @@
 # Families Are Forever
 
-Spencer W. Kimball
-
 By Elder David B. Haight - *Of the Council of the Twelve*
 
 *Given in the October session of the 1976 General Conference*
@@ -93,4 +91,3 @@ The lives you touch may forget what you said, but they will never forget how you
 
 
 
-#Missionary_Work

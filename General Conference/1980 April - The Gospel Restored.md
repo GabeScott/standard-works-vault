@@ -1,7 +1,5 @@
 # The Gospel Restored
 
-Spencer W. Kimball
-
 By Elder Hugh W. Pinnock - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1980 General Conference*
@@ -57,4 +55,3 @@ May each of us, as part of this great jubilee year and sesquicentennial celebrat
 
 
 
-#Obedience #Restoration

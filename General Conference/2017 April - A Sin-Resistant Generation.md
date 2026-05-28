@@ -1,7 +1,5 @@
 # A Sin-Resistant Generation
 
-Bonnie H. Cordon
-
 By Joy D. Jones - *Primary General President*
 
 *Given in the April session of the 2017 General Conference*
@@ -117,7 +115,3 @@ I testify that Jesus Christ leads this Church. As you teach, lead, and love chil
 
 [^24]: See [[John 15.13|John 15:13]].
 
-
-
-
-#Children #Covenants #Discipleship #Divine_Nature #Parenthood #Repentance #Sin #Teaching

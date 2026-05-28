@@ -1,7 +1,5 @@
 # Finding Safety in Counsel
 
-Gordon B. Hinckley
-
 By Elder Henry B. Eyring - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1997 General Conference*
@@ -59,4 +57,3 @@ We are blessed to live in a time when the priesthood keys are on the earth. We a
 
 
 
-#Agency #Faith #General_Conference #God_The_Father #Holy_Ghost #Humility #Jesus_Christ #Priesthood #Prophets #Safety #Temptation

@@ -1,7 +1,5 @@
 # Preparation for Tomorrow
 
-Spencer W. Kimball
-
 By Bishop Victor L. Brown - *Presiding Bishop*
 
 *Given in the October session of the 1982 General Conference*
@@ -143,4 +141,3 @@ This is the peace that can give each of us an inner tranquility when all about u
 
 
 
-#Preparation #Welfare

@@ -1,7 +1,5 @@
 # My Soul Delighteth in the Scriptures
 
-Gordon B. Hinckley
-
 By Julie B. Beck - *First Counselor in the Young Women General Presidency*
 
 *Given in the April session of the 2004 General Conference*
@@ -39,4 +37,3 @@ If reading the scriptures is not already a habit with you, today is a great day 
 
 
 
-#Education #Scripture_Study

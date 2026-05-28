@@ -1,7 +1,5 @@
 # Small Acts Lead to Great Consequences
 
-Gordon B. Hinckley
-
 By President Gordon B. Hinckley - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 1984 General Conference*
@@ -83,4 +81,3 @@ May the blessings of the Lord attend you, beloved associates. May the peace of t
 
 
 
-#Humility #Obedience

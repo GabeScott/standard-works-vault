@@ -1,7 +1,5 @@
 # The Spirit of Missionary Work
 
-Spencer W. Kimball
-
 By Elder Carlos E. Asay - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1976 General Conference*
@@ -95,4 +93,3 @@ In the name of Jesus Christ. Amen.
 
 
 
-#Missionary_Work #Testimony

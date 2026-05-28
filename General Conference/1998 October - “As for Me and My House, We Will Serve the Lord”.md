@@ -1,7 +1,5 @@
 # “As for Me and My House, We Will Serve the Lord”
 
-Gordon B. Hinckley
-
 By Elder H. Bryan Richards - *Of the Seventy*
 
 *Given in the October session of the 1998 General Conference*
@@ -55,4 +53,3 @@ May our Heavenly Father bless us with the commitment to prepare our young men to
 
 
 
-#Bishops #Jesus_Christ #Missionary_Work #Parenthood #Priesthood #Truth #Youth

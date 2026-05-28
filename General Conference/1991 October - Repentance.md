@@ -1,7 +1,5 @@
 # Repentance
 
-Gordon B. Hinckley
-
 By Elder Neal A. Maxwell - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1991 General Conference*
@@ -101,4 +99,3 @@ May God help each of us to so live now in order to merit that marvelous moment t
 
 
 
-#Faith #Repentance

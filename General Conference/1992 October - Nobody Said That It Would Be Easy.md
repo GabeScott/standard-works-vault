@@ -1,7 +1,5 @@
 # Nobody Said That It Would Be Easy
 
-Gordon B. Hinckley
-
 By Elder John B. Dickson - *Of the Seventy*
 
 *Given in the October session of the 1992 General Conference*
@@ -79,4 +77,3 @@ I leave you with my testimony of the truthfulness of the gospel of the Lord Jesu
 
 
 
-#Adversity #Missionary_Work #Service

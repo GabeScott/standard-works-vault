@@ -1,7 +1,5 @@
 # Aligning Our Will with His
 
-Henry B. Eyring
-
 By Elder Ulisses Soares - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2024 General Conference*
@@ -107,7 +105,3 @@ I testify to you that following the Lord’s will in our life will enable us to 
 
 [^23]: See Guide to the Scriptures, “[Consecrate, Law of Consecration](https://www.churchofjesuschrist.org/study/scriptures/gs/consecrate-law-of-consecration?lang=eng),” Gospel Library.
 
-
-
-
-#Agency #Discipleship #Eternal_Life #Humility #Jesus_Christ

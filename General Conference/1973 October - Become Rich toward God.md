@@ -1,7 +1,5 @@
 # Become Rich toward God
 
-Harold B. Lee
-
 By President Rex D. Pinegar - *Of the First Council of the Seventy*
 
 *Given in the October session of the 1973 General Conference*
@@ -76,4 +74,3 @@ May we all share our wealth of testimony with others that we and they may become
 
 
 
-#Charity #Testimony #Wealth

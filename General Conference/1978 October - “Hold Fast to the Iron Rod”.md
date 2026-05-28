@@ -1,7 +1,5 @@
 # “Hold Fast to the Iron Rod”
 
-Spencer W. Kimball
-
 By President Spencer W. Kimball - *President of the Church*
 
 *Given in the October session of the 1978 General Conference*
@@ -87,4 +85,3 @@ May the Lord bless us, each one, to hold fast to the iron rod, I humbly pray, in
 
 
 
-#Family_History #Sabbath #Self-Reliance #Spirituality

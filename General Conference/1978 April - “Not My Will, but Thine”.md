@@ -1,7 +1,5 @@
 # “Not My Will, but Thine”
 
-Spencer W. Kimball
-
 By Elder Robert L. Simpson - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1978 General Conference*
@@ -53,4 +51,3 @@ May it be so, I pray, for in this great priesthood assemblage tonight are those 
 
 
 
-#Missionary_Work

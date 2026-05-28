@@ -1,7 +1,5 @@
 # Do We Know What We Have?
 
-Thomas S. Monson
-
 By Carole M. Stephens - *First Counselor in the Relief Society General Presidency*
 
 *Given in the October session of the 2013 General Conference*
@@ -95,7 +93,3 @@ Of these things I testify in the name of Jesus Christ, amen.
 
 [^13]: D. Todd Christofferson, “The Power of Covenants,” *Ensign* or *Liahona,* May 2009, 22.
 
-
-
-
-#Covenants #Ordinances #Priesthood #Temples

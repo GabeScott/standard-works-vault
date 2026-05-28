@@ -1,7 +1,5 @@
 # The Scourge of Illicit Drugs
 
-Ezra Taft Benson
-
 By President Gordon B. Hinckley - *First Counselor in the First Presidency*
 
 *Given in the October session of the 1989 General Conference*
@@ -89,4 +87,3 @@ God bless you to this end I humbly pray, as one who loves you, in the name of Je
 
 
 
-#Leadership #Priesthood #Service #Word_Of_Wisdom

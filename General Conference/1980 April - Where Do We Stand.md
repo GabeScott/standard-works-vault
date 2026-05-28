@@ -1,7 +1,5 @@
 # Where Do We Stand?
 
-Spencer W. Kimball
-
 By Elder Mark E. Petersen - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1980 General Conference*
@@ -139,4 +137,3 @@ For this I humbly pray in the sacred name of the Lord, Jesus Christ, amen.
 
 
 
-#Obedience #Spirituality

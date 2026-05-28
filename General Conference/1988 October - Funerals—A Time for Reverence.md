@@ -1,7 +1,5 @@
 # Funerals—A Time for Reverence
 
-Ezra Taft Benson
-
 By Elder Boyd K. Packer - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1988 General Conference*
@@ -133,4 +131,3 @@ No consolation in parting compares with that “peace … which passeth all unde
 
 
 
-#Church_Meetings #Death

@@ -1,7 +1,5 @@
 # Meeting Life’s Challenges
 
-Gordon B. Hinckley
-
 By President Thomas S. Monson - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 1993 General Conference*
@@ -149,7 +147,3 @@ He lives. He will sustain each of us. May we keep His commandments. May we ever 
 
 [^14]: [[John 16.33|John 16:33]].
 
-
-
-
-#Atonement #Holy_Ghost #Jesus_Christ

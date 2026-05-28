@@ -1,7 +1,5 @@
 # The Book of Mormon: Another Testament of Jesus Christ
 
-Gordon B. Hinckley
-
 By President Boyd K. Packer - *Acting President of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2001 General Conference*
@@ -173,7 +171,7 @@ And that, I assure you, is exactly what we do. In the name of Jesus Christ, amen
 
 [^4]: See [[2 Nephi 2.21|2 Ne. 2:21]]; [[2 Nephi 33.9|33:9]]; [[Alma 12.24|Alma 12:24]]; [[Alma 34.32|34:32]]; [[Alma 42.4|42:4]].
 
-[^5]: See [[2 Nephi 9.3|2 Ne. 9:3–7]][[2 Nephi 9.4|]][[2 Nephi 9.5|]][[2 Nephi 9.6|]][[2 Nephi 9.7|]]; [[Mosiah 16.8|Mosiah 16:8]]; [[3 Nephi 11.1|3 Ne. 11]].
+[^5]: See [[2 Nephi 9.3|2 Ne. 9:3–7]][[2 Nephi 9.4|]][[2 Nephi 9.5|]][[2 Nephi 9.6|]][[2 Nephi 9.7|]]; [[Mosiah 16.8|Mosiah 16:8]]; [[3 Nephi 11.1|3 Ne. 11]][[3 Nephi 11.2|]][[3 Nephi 11.3|]][[3 Nephi 11.4|]][[3 Nephi 11.5|]][[3 Nephi 11.6|]][[3 Nephi 11.7|]][[3 Nephi 11.8|]][[3 Nephi 11.9|]][[3 Nephi 11.10|]][[3 Nephi 11.11|]][[3 Nephi 11.12|]][[3 Nephi 11.13|]][[3 Nephi 11.14|]][[3 Nephi 11.15|]][[3 Nephi 11.16|]][[3 Nephi 11.17|]][[3 Nephi 11.18|]][[3 Nephi 11.19|]][[3 Nephi 11.20|]][[3 Nephi 11.21|]][[3 Nephi 11.22|]][[3 Nephi 11.23|]][[3 Nephi 11.24|]][[3 Nephi 11.25|]][[3 Nephi 11.26|]][[3 Nephi 11.27|]][[3 Nephi 11.28|]][[3 Nephi 11.29|]][[3 Nephi 11.30|]][[3 Nephi 11.31|]][[3 Nephi 11.32|]][[3 Nephi 11.33|]][[3 Nephi 11.34|]][[3 Nephi 11.35|]][[3 Nephi 11.36|]][[3 Nephi 11.37|]][[3 Nephi 11.38|]][[3 Nephi 11.39|]][[3 Nephi 11.40|]][[3 Nephi 11.41|]].
 
 [^6]: See [[Alma 34.34|Alma 34:34]]; [[Alma 40.11|40:11–14, 21]][[Alma 40.12|]][[Alma 40.13|]][[Alma 40.14|]][[Alma 40.21|]].
 
@@ -185,7 +183,7 @@ And that, I assure you, is exactly what we do. In the name of Jesus Christ, amen
 
 [^10]: See [[2 Nephi 4.35|2 Ne. 4:35]]; [[2 Nephi 32.8|32:8–9]][[2 Nephi 32.9|]]; [[Enos 1.9|Enos 1:9]]; [[Alma 13.28|Alma 13:28]]; [[Alma 34.17|34:17–27]][[Alma 34.18|]][[Alma 34.19|]][[Alma 34.20|]][[Alma 34.21|]][[Alma 34.22|]][[Alma 34.23|]][[Alma 34.24|]][[Alma 34.25|]][[Alma 34.26|]][[Alma 34.27|]]; [[Alma 37.36|37:36–37]][[Alma 37.37|]]; [[3 Nephi 18.19|3 Ne. 18:19–21]][[3 Nephi 18.20|]][[3 Nephi 18.21|]]; [[Moroni 7.26|Moro. 7:26]].
 
-[^11]: See [[2 Nephi 6.2|2 Ne. 6:2]]; [[Mosiah 18.18|Mosiah 18:18]]; [[Alma 6.1|Alma 6:1]]; [[Alma 13.1|13]]; [[3 Nephi 11.21|3 Ne. 11:21]]; [[3 Nephi 18.37|18:37]]; [[Moroni 2.2|Moro. 2:2]]; [[Moroni 3.4|3:4]].
+[^11]: See [[2 Nephi 6.2|2 Ne. 6:2]]; [[Mosiah 18.18|Mosiah 18:18]]; [[Alma 6.1|Alma 6:1]]; [[Alma 13.1|13]][[Alma 13.2|]][[Alma 13.3|]][[Alma 13.4|]][[Alma 13.5|]][[Alma 13.6|]][[Alma 13.7|]][[Alma 13.8|]][[Alma 13.9|]][[Alma 13.10|]][[Alma 13.11|]][[Alma 13.12|]][[Alma 13.13|]][[Alma 13.14|]][[Alma 13.15|]][[Alma 13.16|]][[Alma 13.17|]][[Alma 13.18|]][[Alma 13.19|]][[Alma 13.20|]][[Alma 13.21|]][[Alma 13.22|]][[Alma 13.23|]][[Alma 13.24|]][[Alma 13.25|]][[Alma 13.26|]][[Alma 13.27|]][[Alma 13.28|]][[Alma 13.29|]][[Alma 13.30|]][[Alma 13.31|]]; [[3 Nephi 11.21|3 Ne. 11:21]]; [[3 Nephi 18.37|18:37]]; [[Moroni 2.2|Moro. 2:2]]; [[Moroni 3.4|3:4]].
 
 [^12]: See [[2 Nephi 11.5|2 Ne. 11:5]]; [[Mosiah 5.5|Mosiah 5:5]]; [[Mosiah 18.13|18:13]]; [[Alma 13.8|Alma 13:8, 16]][[Alma 13.16|]].
 
@@ -205,7 +203,3 @@ And that, I assure you, is exactly what we do. In the name of Jesus Christ, amen
 
 [^20]: The Book of Mormon (1830), 105; see also [[2 Nephi 25.26|2 Ne. 25:26]].
 
-
-
-
-#Book_Of_Mormon #Death #Jesus_Christ #Prayer

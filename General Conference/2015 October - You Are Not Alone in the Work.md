@@ -1,7 +1,5 @@
 # You Are Not Alone in the Work
 
-Rosemary M. Wixom
-
 By President Henry B. Eyring - *First Counselor in the First Presidency*
 
 *Given in the October session of the 2015 General Conference*
@@ -103,7 +101,3 @@ I am grateful for the examples of faithful priesthood holders everywhere. Heaven
 
 [^7]: [[Matthew 25.23|Matthew 25:23]].
 
-
-
-
-#Activation #Atonement #Conversion #Example #Friendship #Priesthood #Service

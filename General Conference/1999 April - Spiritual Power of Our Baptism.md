@@ -1,7 +1,5 @@
 # Spiritual Power of Our Baptism
 
-Gordon B. Hinckley
-
 By Carol B. Thomas - *First Counselor in the Young Women General Presidency*
 
 *Given in the April session of the 1999 General Conference*
@@ -63,4 +61,3 @@ I pray that you will tend and take care of your baptismal covenants. As you say 
 
 
 
-#Holy_Ghost #Morality #Ordinances #Sacrament #Young_Women

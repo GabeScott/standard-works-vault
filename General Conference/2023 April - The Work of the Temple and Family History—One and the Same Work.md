@@ -1,7 +1,5 @@
 # The Work of the Temple and Family History—One and the Same Work
 
-Gary E. Stevenson
-
 By Elder Benjamín De Hoyos - *Of the Seventy*
 
 *Given in the April session of the 2023 General Conference*
@@ -63,4 +61,3 @@ I testify to these truths. I know this is the Church of the Lord Jesus Christ, o
 
 
 
-#Family_History #Ordinances #Temple_Work #Temples

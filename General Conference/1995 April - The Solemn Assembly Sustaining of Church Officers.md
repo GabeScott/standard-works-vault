@@ -1,7 +1,5 @@
 # The Solemn Assembly Sustaining of Church Officers
 
-Thomas S. Monson
-
 By Presented by President Thomas S. Monson - *First Counselor in the First Presidency*
 
 *Given in the April session of the 1995 General Conference*

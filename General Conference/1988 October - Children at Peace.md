@@ -1,7 +1,5 @@
 # Children at Peace
 
-Ezra Taft Benson
-
 By Michaelene P. Grassli - *Primary General President*
 
 *Given in the October session of the 1988 General Conference*
@@ -59,4 +57,3 @@ May all our children have the blessing to be taught of the Lord that they might 
 
 
 
-#Children #Parenthood #Teaching

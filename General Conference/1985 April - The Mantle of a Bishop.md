@@ -1,7 +1,5 @@
 # The Mantle of a Bishop
 
-Gordon B. Hinckley
-
 By Bishop Robert D. Hales - *Presiding Bishop*
 
 *Given in the April session of the 1985 General Conference*
@@ -63,4 +61,3 @@ May the Lord’s blessings be with each and every one of us. It is my testimony 
 
 
 
-#Bishops

@@ -1,7 +1,5 @@
 # The Spirit Giveth Life
 
-Spencer W. Kimball
-
 By Elder Loren C. Dunn - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1979 General Conference*
@@ -90,4 +88,3 @@ May the Lord help us to reach beyond the words of life and to capture this great
 
 
 
-#Holy_Ghost #Spirituality

@@ -1,7 +1,5 @@
 # Conference Time
 
-Gordon B. Hinckley
-
 By Elder Howard W. Hunter - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1981 General Conference*
@@ -61,4 +59,3 @@ Of these things I testify, in the name of Jesus Christ, amen.
 
 
 
-#Spirituality #Testimony

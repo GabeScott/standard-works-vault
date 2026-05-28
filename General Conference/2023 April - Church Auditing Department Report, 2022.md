@@ -1,7 +1,5 @@
 # Church Auditing Department Report, 2022
 
-Gary E. Stevenson
-
 By Presented by Jared B. Larson - *Managing Director, Church Auditing Department*
 
 *Given in the April session of the 2023 General Conference*

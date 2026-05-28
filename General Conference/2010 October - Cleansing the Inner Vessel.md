@@ -1,7 +1,5 @@
 # Cleansing the Inner Vessel
 
-Thomas S. Monson
-
 By President Boyd K. Packer - *President of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2010 General Conference*
@@ -169,7 +167,3 @@ I promise that ahead of you is peace and happiness for you and your family. The 
 
 [^24]: See Boyd K. Packer, *The Things of the Soul* (1996), 116.
 
-
-
-
-#Agency #Morality #Pornography #Repentance

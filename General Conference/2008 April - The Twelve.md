@@ -1,7 +1,5 @@
 # The Twelve
 
-Dieter F. Uchtdorf
-
 By President Boyd K. Packer - *President of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2008 General Conference*
@@ -195,7 +193,3 @@ I know that God is our Father. He introduced His Son, Jesus Christ, to Joseph Sm
 
 [^25]: [[Ephesians 2.18|Ephesians 2:18–20]][[Ephesians 2.19|]][[Ephesians 2.20|]].
 
-
-
-
-#Authority #Priesthood #Quorum_Of_The_Twelve_Apostles

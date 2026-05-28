@@ -1,7 +1,5 @@
 # A Season of Opportunity
 
-Gordon B. Hinckley
-
 By Bishop H. David Burton - *Presiding Bishop*
 
 *Given in the October session of the 1998 General Conference*
@@ -69,4 +67,3 @@ Yes, today is indeed a season of many opportunities. It is a season to reach out
 
 
 
-#Fellowshipping #Love #Sabbath #Temples #Tithing

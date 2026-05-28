@@ -1,7 +1,5 @@
 # Lessons from Eve
 
-Ezra Taft Benson
-
 By Elder Russell M. Nelson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1987 General Conference*
@@ -101,4 +99,3 @@ I invoke the blessings of Almighty God upon you that you may be successful in fu
 
 
 
-#Adam_And_Eve #Family #Marriage #Motherhood #Obedience #Prayer #Priesthood #Teaching #Women

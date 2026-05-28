@@ -1,7 +1,5 @@
 # The Way of the Master
 
-James E. Faust
-
 By President Thomas S. Monson - *First Counselor in the First Presidency*
 
 *Given in the April session of the 1996 General Conference*
@@ -201,7 +199,3 @@ This Easter morning, as His witness, I testify to you that He lives and that thr
 
 [^24]: [[D&C 110.4|D&C 110:4]].
 
-
-
-
-#Atonement #Commandments #Compassion #Jesus_Christ #Love #Neighbors #Service

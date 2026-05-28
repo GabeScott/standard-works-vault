@@ -1,7 +1,5 @@
 # O Youth of the Noble Birthright
 
-Henry B. Eyring
-
 By Brother Bradley R. Wilcox - *First Counselor in the Young Men General Presidency*
 
 *Given in the October session of the 2024 General Conference*
@@ -121,7 +119,3 @@ In [[2 Nephi 2.6|2 Nephi 2:6]] we read, “Wherefore, redemption cometh in and t
 
 [^31]: See [[3 Nephi 20.38|3 Nephi 20:38]]; see also [[Isaiah 55.2|Isaiah 55:2]].
 
-
-
-
-#Covenants #Discipleship #Grace #Trust #Youth

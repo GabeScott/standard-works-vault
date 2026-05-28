@@ -1,7 +1,5 @@
 # God Will Have a Tried People
 
-Spencer W. Kimball
-
 By Elder Howard W. Hunter - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1980 General Conference*
@@ -73,4 +71,3 @@ May God bless us to endure well the purpose for which we were sent, I pray in th
 
 
 
-#Adversity #Endurance

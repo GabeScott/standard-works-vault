@@ -1,7 +1,5 @@
 # Blessings in Self-Reliance
 
-Marion G. Romney
-
 By Elder Mark E. Petersen - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1981 General Conference*
@@ -158,4 +156,3 @@ That is His promise, and His word is true, I testify in His sacred name, the nam
 
 
 
-#Morality #Obedience

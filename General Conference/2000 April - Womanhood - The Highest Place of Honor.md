@@ -1,7 +1,5 @@
 # Womanhood: The Highest Place of Honor
 
-Gordon B. Hinckley
-
 By President James E. Faust - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 2000 General Conference*
@@ -81,7 +79,3 @@ I pray that the Lord will bless each of you that you can come to know your indiv
 
 [^7]: David O. McKay, *Gospel Ideals* (1953), 459–60.
 
-
-
-
-#Divine_Nature #Education #Family #Goals #Holy_Ghost #Joy #Morality #Peace #Responsibility #Self-Esteem #Service #Spirituality #Standards #Women #Worthiness

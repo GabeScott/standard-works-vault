@@ -1,7 +1,5 @@
 # For Him
 
-Russell M. Nelson
-
 By Joy D. Jones - *Primary General President*
 
 *Given in the October session of the 2018 General Conference*
@@ -107,7 +105,3 @@ Maybe our bishop knew that was the lesson my husband and I would learn from thos
 
 [^21]: [[D&C 82.19|Doctrine and Covenants 82:19]].
 
-
-
-
-#Ministering #Service

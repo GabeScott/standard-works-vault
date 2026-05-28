@@ -1,7 +1,5 @@
 # Inertia
 
-Spencer W. Kimball
-
 By Elder William H. Bennett - *Assistant to the Council of the Twelve*
 
 *Given in the April session of the 1974 General Conference*
@@ -51,4 +49,3 @@ My brothers and sisters, I pay tribute today to President Kimball as a great man
 
 
 
-#Time_Management

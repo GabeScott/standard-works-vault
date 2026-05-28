@@ -1,7 +1,5 @@
 # Planning for a Full and Abundant Life
 
-Spencer W. Kimball
-
 By President Spencer W. Kimball - *President of the Church*
 
 *Given in the April session of the 1974 General Conference*
@@ -128,4 +126,3 @@ Brethren, it is wonderful to be with you here tonight. And may peace be with you
 
 
 
-#Commitment #Covenants #Obedience #Spirituality

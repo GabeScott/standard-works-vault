@@ -1,7 +1,5 @@
 # Be Valiant in Courage, Strength, and Activity
 
-Thomas S. Monson
-
 By Bishop Gary E. Stevenson - *Presiding Bishop*
 
 *Given in the October session of the 2012 General Conference*
@@ -69,7 +67,3 @@ My young Aaronic Priesthood holders, in closing I offer my testimony of God the 
 
 [^11]: [[D&C 128.22|Doctrine and Covenants 128:22]].
 
-
-
-
-#Agency #Courage #Dedication #Priesthood

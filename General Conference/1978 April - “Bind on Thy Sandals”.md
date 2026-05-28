@@ -1,7 +1,5 @@
 # “Bind on Thy Sandals”
 
-Spencer W. Kimball
-
 By Elder Howard W. Hunter - *Of the Council of the Twelve*
 
 *Given in the April session of the 1978 General Conference*
@@ -49,4 +47,3 @@ What a glorious thing it is to have the privilege of bearing the priesthood. God
 
 
 
-#Preparation

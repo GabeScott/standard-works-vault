@@ -1,7 +1,5 @@
 # The Importance of Prayer
 
-Spencer W. Kimball
-
 By President N. Eldon Tanner - *First Counselor in the First Presidency*
 
 *Given in the April session of the 1974 General Conference*
@@ -131,4 +129,3 @@ I bear witness that God does live, that he stands ready to hear and answer our p
 
 
 
-#Prayer

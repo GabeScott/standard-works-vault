@@ -1,7 +1,5 @@
 # And Peter Went Out and Wept Bitterly
 
-Spencer W. Kimball
-
 By Elder Gordon B. Hinckley - *Of the Council of the Twelve*
 
 *Given in the April session of the 1979 General Conference*
@@ -79,4 +77,3 @@ May the Lord touch you by the power of his Spirit to increase your desire. May h
 
 
 
-#Loyalty

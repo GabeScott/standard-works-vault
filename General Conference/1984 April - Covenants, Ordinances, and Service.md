@@ -1,7 +1,5 @@
 # Covenants, Ordinances, and Service
 
-Gordon B. Hinckley
-
 By Elder A. Theodore Tuttle - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1984 General Conference*
@@ -69,4 +67,3 @@ When we as parents have a genuine *desire* to teach the gospel to our children, 
 
 
 
-#Family #Parenthood #Teaching

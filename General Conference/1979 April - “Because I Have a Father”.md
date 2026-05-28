@@ -1,7 +1,5 @@
 # “Because I Have a Father”
 
-Spencer W. Kimball
-
 By Elder Paul H. Dunn - *Of the Presidency of the First Quorum of the Seventy*
 
 *Given in the April session of the 1979 General Conference*
@@ -121,4 +119,3 @@ You see, my bright-eyed, three-year-old friend was right all along. Why will you
 
 
 
-#Courage #Faith

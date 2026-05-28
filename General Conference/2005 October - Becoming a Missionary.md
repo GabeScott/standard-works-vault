@@ -1,7 +1,5 @@
 # Becoming a Missionary
 
-Gordon B. Hinckley
-
 By Elder David A. Bednar - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2005 General Conference*
@@ -85,4 +83,3 @@ I declare my witness that Jesus is the Christ, our Savior and Redeemer. I know t
 
 
 
-#Covenants #Missionary_Work #Obedience #Preparation #Priesthood

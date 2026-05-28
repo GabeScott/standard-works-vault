@@ -1,7 +1,5 @@
 # The Unspeakable Gift
 
-Gordon B. Hinckley
-
 By Elder Joseph B. Wirthlin - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2003 General Conference*
@@ -121,7 +119,3 @@ Our Heavenly Father lives! Jesus is the Christ! Through the Prophet Joseph Smith
 
 [^20]: [[Moroni 10.4|Moroni 10:4]].
 
-
-
-
-#Conscience #Faith #Holy_Ghost #Joy #Peace #Spirituality

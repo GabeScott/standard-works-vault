@@ -1,7 +1,5 @@
 # “Behold, We Count Them Happy Which Endure”
 
-Gordon B. Hinckley
-
 By Elder Robert D. Hales - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1998 General Conference*
@@ -85,4 +83,3 @@ There is nothing that we are enduring that Jesus does not understand, and He wai
 
 
 
-#Adversity #Commandments #Endurance #Faith #Family #Jesus_Christ #Joseph_Smith #Missionary_Work #Obedience #Opposition #Pioneers

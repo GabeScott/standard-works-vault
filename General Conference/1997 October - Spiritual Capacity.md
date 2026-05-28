@@ -1,7 +1,5 @@
 # Spiritual Capacity
 
-Gordon B. Hinckley
-
 By Elder Russell M. Nelson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1997 General Conference*
@@ -117,7 +115,3 @@ While we follow prophetic teachings, we can develop our spiritual capacities by 
 
 [^25]: [[D&C 68.4|D&C 68:4]].
 
-
-
-
-#Agency #Attitude #Commandments #General_Conference #Gordon_B._Hinckley #Jesus_Christ #Prophets #Spirituality

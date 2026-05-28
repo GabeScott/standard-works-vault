@@ -1,7 +1,5 @@
 # “Be of Good Cheer”
 
-Ezra Taft Benson
-
 By Elder Marvin J. Ashton - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1986 General Conference*
@@ -83,4 +81,3 @@ To all mankind everywhere I cheerfully testify that our Lord and Savior Jesus Ch
 
 
 
-#Joy

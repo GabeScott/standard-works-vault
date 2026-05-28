@@ -1,7 +1,5 @@
 # The Lord Expects Righteousness
 
-Spencer W. Kimball
-
 By President Spencer W. Kimball - *President of the Church*
 
 *Given in the October session of the 1982 General Conference*
@@ -61,4 +59,3 @@ As we begin this conference let us wait upon the Lord for His blessing and His d
 
 
 
-#Jesus_Christ #Missionary_Work

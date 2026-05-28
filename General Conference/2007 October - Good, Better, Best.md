@@ -1,7 +1,5 @@
 # Good, Better, Best
 
-Gordon B. Hinckley
-
 By Elder Dallin H. Oaks - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2007 General Conference*
@@ -91,7 +89,3 @@ I testify of our Heavenly Father, whose children we are and whose plan is design
 
 [^9]: “America the Beautiful,” *Hymns,* no. 338.
 
-
-
-
-#Family #Priorities #Teaching

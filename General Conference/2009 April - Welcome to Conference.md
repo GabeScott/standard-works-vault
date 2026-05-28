@@ -1,7 +1,5 @@
 # Welcome to Conference
 
-Thomas S. Monson
-
 By President Thomas S. Monson - *President of the Church*
 
 *Given in the April session of the 2009 General Conference*
@@ -51,7 +49,3 @@ To those of you who are new in the Church, we welcome you. To those of you who a
 
 [^1]: [[Matthew 28.19|Matthew 28:19]].
 
-
-
-
-#Education #Missionary_Work #Temples

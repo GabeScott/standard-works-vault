@@ -1,7 +1,5 @@
 # A Lasting Marriage
 
-Spencer W. Kimball
-
 By Elder Robert L. Simpson - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1982 General Conference*
@@ -93,4 +91,3 @@ And these thoughts I leave with you in the name of the Lord Jesus Christ, amen.
 
 
 
-#Divorce #Marriage

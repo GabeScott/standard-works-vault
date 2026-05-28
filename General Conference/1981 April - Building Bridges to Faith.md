@@ -1,7 +1,5 @@
 # Building Bridges to Faith
 
-Marion G. Romney
-
 By Elder Loren C. Dunn - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1981 General Conference*
@@ -129,4 +127,3 @@ May the Lord bless us with faith as we go forward in our lives, in the name of J
 
 
 
-#Faith

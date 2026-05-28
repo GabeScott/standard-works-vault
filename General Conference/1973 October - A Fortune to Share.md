@@ -1,7 +1,5 @@
 # A Fortune to Share
 
-Harold B. Lee
-
 By Elder Sterling W. Sill - *Assistant to the Council of the Twelve*
 
 *Given in the October session of the 1973 General Conference*
@@ -61,4 +59,3 @@ And that we may be fully successful in this greatest of all enterprises, I humbl
 
 
 
-#Priorities #Standards

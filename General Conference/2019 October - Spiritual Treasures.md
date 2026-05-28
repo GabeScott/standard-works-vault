@@ -1,7 +1,5 @@
 # Spiritual Treasures
 
-Jeffrey R. Holland
-
 By President Russell M. Nelson
 
 *Given in the October session of the 2019 General Conference*
@@ -93,7 +91,3 @@ Dear sisters, with deep respect and gratitude, I express my love for you. Humbly
 
 [^5]: See [[D&C 14.7|Doctrine and Covenants 14:7]].
 
-
-
-
-#Priesthood #Temple_Work #Temples

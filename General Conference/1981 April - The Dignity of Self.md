@@ -1,7 +1,5 @@
 # The Dignity of Self
 
-Marion G. Romney
-
 By Elder James E. Faust - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1981 General Conference*
@@ -84,4 +82,3 @@ I have a conviction of these matters from sacred inner whisperings. I know that 
 
 
 
-#Morality #Self-Esteem

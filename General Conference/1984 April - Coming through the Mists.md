@@ -1,7 +1,5 @@
 # Coming through the Mists
 
-Gordon B. Hinckley
-
 By Elder William Grant Bangerter - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1984 General Conference*
@@ -118,4 +116,3 @@ In the name of Jesus Christ, amen.
 
 
 
-#Spirituality

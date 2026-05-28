@@ -1,7 +1,5 @@
 # Sustaining of Church Officers
 
-Spencer W. Kimball
-
 By President Gordon B. Hinckley - *Counselor in the First Presidency*
 
 *Given in the April session of the 1982 General Conference*

@@ -1,7 +1,5 @@
 # “As I Have Loved You”
 
-Gordon B. Hinckley
-
 By Elder Robert L. Backman - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1985 General Conference*
@@ -105,4 +103,3 @@ And therein lies happiness. In the name of Jesus Christ, amen.
 
 
 
-#Charity #Love #Service

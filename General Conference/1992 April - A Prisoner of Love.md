@@ -1,7 +1,5 @@
 # A Prisoner of Love
 
-Thomas S. Monson
-
 By Elder Vaughn J. Featherstone - *Of the Seventy*
 
 *Given in the April session of the 1992 General Conference*
@@ -121,4 +119,3 @@ Ponder and pray together. Begin to prepare. Our generation can do something grea
 
 
 
-#Love #Missionary_Work #Service

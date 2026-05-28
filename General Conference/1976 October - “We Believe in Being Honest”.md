@@ -1,7 +1,5 @@
 # “We Believe in Being Honest”
 
-Spencer W. Kimball
-
 By President Marion G. Romney - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 1976 General Conference*
@@ -157,4 +155,3 @@ I bear you my witness, my brothers and sisters, that this doctrine I’ve been q
 
 
 
-#Honesty

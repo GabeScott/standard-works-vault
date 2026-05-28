@@ -1,7 +1,5 @@
 # An Overview of Church Welfare Services
 
-Spencer W. Kimball
-
 By Bishop Victor L. Brown - *Presiding Bishop*
 
 *Given in the October session of the 1975 General Conference*
@@ -123,4 +121,3 @@ I bear my witness that this is the gospel of Jesus Christ; that we have a stewar
 
 
 
-#Self-Reliance #Welfare

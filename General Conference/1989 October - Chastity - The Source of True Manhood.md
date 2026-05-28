@@ -1,7 +1,5 @@
 # Chastity: The Source of True Manhood
 
-Ezra Taft Benson
-
 By Elder Robert L. Backman - *Of the Presidency of the Seventy*
 
 *Given in the October session of the 1989 General Conference*
@@ -89,4 +87,3 @@ My precious young brothers, may you understand that chastity is the source of vi
 
 
 
-#Forgiveness #Marriage #Missionary_Work #Morality

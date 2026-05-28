@@ -1,7 +1,5 @@
 # Obedience
 
-Harold B. Lee
-
 By President N. Eldon Tanner - *First Counselor in the First Presidency*
 
 *Given in the October session of the 1973 General Conference*
@@ -141,4 +139,3 @@ May we do this, as members of the Church of Jesus Christ, which we are, and foll
 
 
 
-#Commitment #Obedience #Priesthood

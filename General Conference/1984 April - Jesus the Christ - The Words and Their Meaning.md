@@ -1,7 +1,5 @@
 # Jesus the Christ: The Words and Their Meaning
 
-Gordon B. Hinckley
-
 By Elder G. Homer Durham - *Of the Presidency of the First Quorum of the Seventy*
 
 *Given in the April session of the 1984 General Conference*
@@ -73,4 +71,3 @@ We know that Savior to be the Lord Jesus Christ. From many, many experiences ove
 
 
 
-#Jesus_Christ

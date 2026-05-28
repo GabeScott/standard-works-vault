@@ -1,7 +1,5 @@
 # “If Ye Love Me, Keep My Commandments”
 
-Rosemary M. Wixom
-
 By Carole M. Stephens - *First Counselor in the Relief Society General Presidency*
 
 *Given in the October session of the 2015 General Conference*
@@ -135,7 +133,3 @@ LDS.org
 
 .
 
-
-
-
-#Commandments #God_The_Father #Holy_Ghost #Jesus_Christ #Love #Obedience #Plan_Of_Salvation #Prophets #Sacrament

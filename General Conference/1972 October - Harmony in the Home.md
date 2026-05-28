@@ -1,7 +1,5 @@
 # Harmony in the Home
 
-N. Eldon Tanner
-
 By Bishop H. Burke Peterson - *Of the Presiding Bishopric*
 
 *Given in the October session of the 1972 General Conference*
@@ -69,4 +67,3 @@ Fathers and mothers and children, wherever you are, I want you to know that I kn
 
 
 
-#Family #Parenthood

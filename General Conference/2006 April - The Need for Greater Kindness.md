@@ -1,7 +1,5 @@
 # The Need for Greater Kindness
 
-Robert D. Hales
-
 By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the April session of the 2006 General Conference*
@@ -111,4 +109,3 @@ In the name of the Lord Jesus Christ, amen.
 
 
 
-#Judging #Kindness #Tolerance #Work

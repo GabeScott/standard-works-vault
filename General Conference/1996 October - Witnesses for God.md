@@ -1,7 +1,5 @@
 # Witnesses for God
 
-Gordon B. Hinckley
-
 By Elder Henry B. Eyring - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1996 General Conference*
@@ -69,4 +67,3 @@ I am grateful that I know as surely as did the Apostles Peter, James, and John t
 
 
 
-#Covenants #Example #Family #Family_Home_Evening #Fasting #Holy_Ghost #Love #Missionary_Work #Parenthood #Testimony

@@ -1,7 +1,5 @@
 # Seeing God’s Family through the Overview Lens
 
-David A. Bednar
-
 By Sister Tamara W. Runia - *First Counselor in the Young Women General Presidency*
 
 *Given in the October session of the 2023 General Conference*
@@ -137,7 +135,3 @@ I bear my testimony that this—all of this—is going to turn out so much bette
 
 [^19]: [[Revelation 22.16|Revelation 22:16]].
 
-
-
-
-#Faith #Family #Hope #Love #Perspective

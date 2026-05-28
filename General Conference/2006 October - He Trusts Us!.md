@@ -1,7 +1,5 @@
 # He Trusts Us!
 
-Gordon B. Hinckley
-
 By Elder Stanley G. Ellis - *Of the Seventy*
 
 *Given in the October session of the 2006 General Conference*
@@ -67,4 +65,3 @@ As we hear from President Hinckley, President Monson, and President Faust, I bea
 
 
 
-#Covenants #Healing #Priesthood #Worthiness

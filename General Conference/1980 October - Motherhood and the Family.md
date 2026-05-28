@@ -1,7 +1,5 @@
 # Motherhood and the Family
 
-Spencer W. Kimball
-
 By Mary F. Foulger - *Of the Relief Society General Board*
 
 *Given in the October session of the 1980 General Conference*
@@ -37,4 +35,3 @@ Let us learn and then teach that the Lord has given us a prophet to guide us bac
 
 
 
-#Family #Motherhood

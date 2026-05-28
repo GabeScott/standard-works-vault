@@ -1,7 +1,5 @@
 # Statistical Report 1983
 
-Gordon B. Hinckley
-
 By Presented by Francis M. Gibbons - *Secretary to the First Presidency*
 
 *Given in the April session of the 1984 General Conference*

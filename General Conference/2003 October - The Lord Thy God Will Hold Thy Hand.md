@@ -1,7 +1,5 @@
 # The Lord Thy God Will Hold Thy Hand
 
-Gordon B. Hinckley
-
 By Elder W. Craig Zwick - *Of the Seventy*
 
 *Given in the October session of the 2003 General Conference*
@@ -91,4 +89,3 @@ I testify that He lives and extends His loving hand to each of us. In the name o
 
 
 
-#Faith #Jesus_Christ #Plan_Of_Salvation #Prayer #Trust

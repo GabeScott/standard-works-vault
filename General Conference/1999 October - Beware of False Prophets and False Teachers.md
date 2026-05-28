@@ -1,7 +1,5 @@
 # Beware of False Prophets and False Teachers
 
-Gordon B. Hinckley
-
 By Elder M. Russell Ballard - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1999 General Conference*
@@ -89,4 +87,3 @@ I know that God lives. Jesus is the Christ. The restored gospel is true, and the
 
 
 
-#False_Doctrines #Friendship #Jesus_Christ #Joy #Morality #Pride #Priesthood #Prophets #Satan #Truth

@@ -1,7 +1,5 @@
 # “Come unto Me, O Ye House of Israel”
 
-Thomas S. Monson
-
 By Elder Larry Echo Hawk - *Of the Seventy*
 
 *Given in the October session of the 2012 General Conference*
@@ -49,4 +47,3 @@ As we come unto our Savior, Jesus Christ, and purify our hearts, we will all be 
 
 
 
-#Book_Of_Mormon #House_Of_Israel #Native_Americans

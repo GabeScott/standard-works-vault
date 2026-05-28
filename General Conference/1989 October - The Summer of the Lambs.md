@@ -1,7 +1,5 @@
 # The Summer of the Lambs
 
-Ezra Taft Benson
-
 By Jayne B. Malan - *First Counselor in the Young Women General Presidency*
 
 *Given in the October session of the 1989 General Conference*
@@ -51,4 +49,3 @@ This I know: He needs our help. With more people to help, more lambs will be sav
 
 
 
-#Activation #Jesus_Christ #Leadership #Youth

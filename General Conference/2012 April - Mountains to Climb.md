@@ -1,7 +1,5 @@
 # Mountains to Climb
 
-Thomas S. Monson
-
 By President Henry B. Eyring - *First Counselor in the First Presidency*
 
 *Given in the April session of the 2012 General Conference*
@@ -127,7 +125,3 @@ I testify that God the Father lives and that His Beloved Son is our Redeemer. Th
 
 [^10]: See [[D&C 84.88|Doctrine and Covenants 84:88]].
 
-
-
-
-#Adversity #Faith #Jesus_Christ

@@ -1,7 +1,5 @@
 # The Quorum: A Place of Belonging
 
-Ulisses Soares
-
 By Elder Carl B. Cook - *Of the Presidency of the Seventy*
 
 *Given in the April session of the 2019 General Conference*
@@ -121,7 +119,3 @@ Jesus Christ is our Savior, and this is His work. I so testify in the name of Je
 
 [^22]: Katlego Mongole, in “Band of Brothers 2nd Generation” (unpublished compilation), 21.
 
-
-
-
-#Aaronic_Priesthood #Missionary_Work #Priesthood #Priesthood_Quorums

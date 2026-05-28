@@ -1,7 +1,5 @@
 # Joseph Smith—The Mighty Prophet of the Restoration
 
-Spencer W. Kimball
-
 By Elder Bruce R. McConkie - *Of the Council of the Twelve*
 
 *Given in the April session of the 1976 General Conference*
@@ -127,4 +125,3 @@ We link the names of Jesus Christ and Joseph Smith in our testimonies. And we no
 
 
 
-#Joseph_Smith

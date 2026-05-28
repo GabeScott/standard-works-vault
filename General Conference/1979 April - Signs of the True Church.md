@@ -1,7 +1,5 @@
 # Signs of the True Church
 
-Spencer W. Kimball
-
 By Elder Mark E. Petersen - *Of the Council of the Twelve*
 
 *Given in the April session of the 1979 General Conference*
@@ -147,4 +145,3 @@ May we accept the invitation of the Savior to learn of him and to do so through 
 
 
 
-#Apostasy #Restoration

@@ -1,7 +1,5 @@
 # Pure Love: The True Sign of Every True Disciple of Jesus Christ
 
-Henry B. Eyring
-
 By Elder Massimo De Feo - *Of the Seventy*
 
 *Given in the April session of the 2018 General Conference*
@@ -81,7 +79,3 @@ May our hearts be filled with the pure love of Christ, the true sign of every tr
 
 [^5]: Thomas S. Monson, “[[2014 April - Love—the Essence of the Gospel.md|Love—the Essence of the Gospel]],” *Ensign* or *Liahona,* May 2014, 94.
 
-
-
-
-#Atonement #Discipleship #Jesus_Christ #Love #Plan_Of_Salvation #Service

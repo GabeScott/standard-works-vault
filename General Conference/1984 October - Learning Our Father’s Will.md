@@ -1,7 +1,5 @@
 # Learning Our Father’s Will
 
-Gordon B. Hinckley
-
 By Elder Hugh W. Pinnock - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1984 General Conference*
@@ -73,4 +71,3 @@ May each of us attend our meetings regularly, study and ponder the words of God 
 
 
 
-#Church_Meetings #Scriptures

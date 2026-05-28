@@ -1,7 +1,5 @@
 # Consider the Goodness and Greatness of God
 
-Russell M. Nelson
-
 By Elder Dale G. Renlund - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2020 General Conference*
@@ -147,7 +145,3 @@ As I have reflected on gifts from our Heavenly Father and from Jesus Christ, I h
 
 [^38]: See [[2 Nephi 26.33|2 Nephi 26:33]].
 
-
-
-
-#Gratitude #Spirituality

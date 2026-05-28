@@ -1,7 +1,5 @@
 # “I Will Not Fail Thee, nor Forsake Thee”
 
-Thomas S. Monson
-
 By President Thomas S. Monson - *President of the Church*
 
 *Given in the October session of the 2013 General Conference*
@@ -103,7 +101,3 @@ With all the strength of my soul, I testify that God lives and loves us, that Hi
 
 [^10]: [[Joshua 1.5|Joshua 1:5]].
 
-
-
-
-#Adversity #Gratitude

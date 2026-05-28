@@ -1,7 +1,5 @@
 # Christ, Our Passover
 
-Gordon B. Hinckley
-
 By Elder Howard W. Hunter - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1985 General Conference*
@@ -71,4 +69,3 @@ At this Easter season, I bear testimony of the Firstborn of God, who made that s
 
 
 
-#Jesus_Christ #Sacrifice

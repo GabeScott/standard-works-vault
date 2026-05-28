@@ -1,7 +1,5 @@
 # Proclaim My Gospel from Land to Land
 
-Ezra Taft Benson
-
 By Elder L. Tom Perry - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1989 General Conference*
@@ -71,4 +69,3 @@ May each of us be prepared and have the courage to share this greatest of all gi
 
 
 
-#Book_Of_Mormon #Missionary_Work #Plan_Of_Salvation

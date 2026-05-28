@@ -1,7 +1,5 @@
 # “Always Have His Spirit”
 
-Gordon B. Hinckley
-
 By Elder Dallin H. Oaks - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1996 General Conference*
@@ -69,4 +67,3 @@ Any who may have thought it a small thing to partake of the sacrament should rem
 
 
 
-#Commandments #Holy_Ghost #Prayer #Repentance #Sacrament

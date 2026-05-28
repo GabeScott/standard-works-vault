@@ -1,7 +1,5 @@
 # The Seven Christs
 
-Spencer W. Kimball
-
 By Elder Bruce R. McConkie - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1982 General Conference*
@@ -159,4 +157,3 @@ In the name of the Lord Jesus Christ, amen.
 
 
 
-#Jesus_Christ

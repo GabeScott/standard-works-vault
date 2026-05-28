@@ -1,7 +1,5 @@
 # The Long Line of the Lonely
 
-Marion G. Romney
-
 By Elder Thomas S. Monson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1981 General Conference*
@@ -97,4 +95,3 @@ May we see that special star, may we hear that same salutation, is my humble pra
 
 
 
-#Charity #Single_Members

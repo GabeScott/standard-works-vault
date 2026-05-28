@@ -1,7 +1,5 @@
 # Our Sorrow Shall Be Turned into Joy
 
-Russell M. Nelson
-
 By Elder S. Mark Palmer - *Of the Seventy*
 
 *Given in the April session of the 2021 General Conference*
@@ -75,7 +73,3 @@ How I look forward to the day I will meet my sister Ann. I look forward to a joy
 
 [^9]: See [[Matthew 16.19|Matthew 16:19]].
 
-
-
-
-#Adversity #Conversion #Faith #Jesus_Christ #Joy #Resurrection

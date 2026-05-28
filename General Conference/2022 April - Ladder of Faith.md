@@ -1,7 +1,5 @@
 # Ladder of Faith
 
-Russell M. Nelson
-
 By Elder Larry S. Kacher - *Of the Seventy*
 
 *Given in the April session of the 2022 General Conference*
@@ -143,7 +141,3 @@ May we plant the seeds of faith deep in our hearts. May we nourish these seeds a
 
 [^28]: See Russell M. Nelson, “[[2020 October - Let God Prevail.md|Let God Prevail]],” *Ensign* or *Liahona*, Nov. 2020, 94.
 
-
-
-
-#Adversity #Faith #Jesus_Christ #Obedience #Plan_Of_Salvation

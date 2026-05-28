@@ -1,7 +1,5 @@
 # Unclutter Your Life
 
-Thomas S. Monson
-
 By Elder William R. Bradford - *Of the Seventy*
 
 *Given in the April session of the 1992 General Conference*
@@ -73,4 +71,3 @@ In the name of Jesus Christ, amen.
 
 
 
-#Priorities #Spirituality #Time_Management

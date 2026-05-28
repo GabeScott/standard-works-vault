@@ -1,7 +1,5 @@
 # Receiving Divine Assistance through the Grace of the Lord
 
-Thomas S. Monson
-
 By Elder Gene R. Cook - *Of the Seventy*
 
 *Given in the April session of the 1993 General Conference*
@@ -121,4 +119,3 @@ May we “seek this Jesus of whom the prophets and apostles have written, that t
 
 
 
-#Atonement #Faith #Grace #Humility #Obedience #Repentance

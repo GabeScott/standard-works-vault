@@ -1,7 +1,5 @@
 # As Doves to Our Windows
 
-Gordon B. Hinckley
-
 By Elder Jeffrey R. Holland - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2000 General Conference*
@@ -89,7 +87,3 @@ I know that Joseph Smith beheld the Father and the Son and that this day is a di
 
 [^9]: [[Deuteronomy 6.12|Deut. 6:12, 14, 18]][[Deuteronomy 6.14|]][[Deuteronomy 6.18|]]; [[Deuteronomy 7.6|7:6–9]][[Deuteronomy 7.7|]][[Deuteronomy 7.8|]][[Deuteronomy 7.9|]].
 
-
-
-
-#Church_Growth #Commandments #Faith #Family_History #General_Conference #God_The_Father #Gratitude #Pioneers #Sacrifice #Spirituality

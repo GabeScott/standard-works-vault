@@ -1,7 +1,5 @@
 # Steady in the Storms
 
-Russell M. Nelson
-
 By President Henry B. Eyring - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 2022 General Conference*
@@ -75,7 +73,3 @@ I plead with you to accept the Savior’s invitation. Like a meek and loving chi
 
 [^7]: [[Matthew 11.28|Matthew 11:28]].
 
-
-
-
-#Adversity #Covenants #Faith #Jesus_Christ #Repentance

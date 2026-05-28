@@ -1,7 +1,5 @@
 # The Need for Love
 
-Spencer W. Kimball
-
 By Elder Theodore M. Burton - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1979 General Conference*
@@ -43,4 +41,3 @@ I testify that God lives, that Jesus is the risen Christ, and that God speaks to
 
 
 
-#Love

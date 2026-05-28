@@ -1,7 +1,5 @@
 # The Importance of a Personal Testimony
 
-Wilford G. Edling
-
 By Elder James A. Cullimore - *Assistant to the Council of the Twelve*
 
 *Given in the April session of the 1972 General Conference*
@@ -133,4 +131,3 @@ I bear testimony that by the witness of the Spirit one can come to know of the d
 
 
 
-#Holy_Ghost #Testimony

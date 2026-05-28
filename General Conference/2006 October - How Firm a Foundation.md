@@ -1,7 +1,5 @@
 # How Firm a Foundation
 
-Gordon B. Hinckley
-
 By President Thomas S. Monson - *First Counselor in the First Presidency*
 
 *Given in the October session of the 2006 General Conference*
@@ -89,4 +87,3 @@ May each of us qualify for this blessing, I humbly pray, in the name of Jesus Ch
 
 
 
-#Faith #Prayer #Scriptures #Service #Testimony

@@ -1,7 +1,5 @@
 # Our Responsibility to Care for Our Own
 
-Marion G. Romney
-
 By Bishop H. Burke Peterson - *First Counselor in the Presiding Bishopric*
 
 *Given in the April session of the 1981 General Conference*
@@ -95,4 +93,3 @@ I testify of the truth of these teachings and of the reality of the one who is t
 
 
 
-#Charity #Family

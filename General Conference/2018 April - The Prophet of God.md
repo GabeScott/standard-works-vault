@@ -1,7 +1,5 @@
 # The Prophet of God
 
-Henry B. Eyring
-
 By Elder Neil L. Andersen - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2018 General Conference*
@@ -143,7 +141,3 @@ I give you my solemn witness that Jesus is the Christ, our Savior and Redeemer, 
 
 [^19]: [[Matthew 16.16|Matthew 16:16]]; see also [[John 6.69|John 6:69]].
 
-
-
-
-#Faith #Jesus_Christ #Prophets

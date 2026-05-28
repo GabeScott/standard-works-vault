@@ -1,6 +1,6 @@
 # “Let This House Be Built unto My Name”
 
-Russell M. Nelson
+([[D&C 124.40|Doctrine and Covenants 124:40]])
 
 By Elder David A. Bednar - *Of the Quorum of the Twelve Apostles*
 
@@ -165,7 +165,3 @@ I solemnly testify that the Father and the Son appeared to Joseph Smith, and Eli
 
 [^27]: [[Joseph Smith History 1.17|Joseph Smith—History 1:17]].
 
-
-
-
-#Covenants #Ordinances #Temple_Work

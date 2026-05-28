@@ -1,7 +1,5 @@
 # Salvation and Exaltation
 
-Wilford G. Edling
-
 By Elder Theodore M. Burton - *Assistant to the Council of the Twelve*
 
 *Given in the April session of the 1972 General Conference*
@@ -81,4 +79,3 @@ May God bless you to choose well, for I testify to you that God lives and that h
 
 
 
-#Plan_Of_Salvation

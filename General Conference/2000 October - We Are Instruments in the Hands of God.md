@@ -1,7 +1,5 @@
 # We Are Instruments in the Hands of God
 
-Gordon B. Hinckley
-
 By Mary Ellen Smoot - *Relief Society General President*
 
 *Given in the October session of the 2000 General Conference*
@@ -71,4 +69,3 @@ When you return home this night, will you take a moment to write down impression
 
 
 
-#Education #Family_Home_Evening #Love #Obedience #Prayer #Relief_Society #Reverence #Scripture_Study #Service #Testimony #Truth #Women #Work

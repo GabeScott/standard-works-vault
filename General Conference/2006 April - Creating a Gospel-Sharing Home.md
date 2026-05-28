@@ -1,7 +1,5 @@
 # Creating a Gospel-Sharing Home
 
-Robert D. Hales
-
 By Elder M. Russell Ballard - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2006 General Conference*
@@ -75,4 +73,3 @@ May the Lord bless you, my brothers and sisters, with greater faith and trust in
 
 
 
-#Example #Friendship #Missionary_Work

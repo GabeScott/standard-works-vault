@@ -1,7 +1,5 @@
 # Recommended to the Lord
 
-Russell M. Nelson
-
 By Elder Ronald A. Rasband - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2020 General Conference*
@@ -101,7 +99,3 @@ I promise you as an Apostle of the Lord Jesus Christ that as you strive to redou
 
 [^13]: [[D&C 127.4|Doctrine and Covenants 127:4]].
 
-
-
-
-#Temples

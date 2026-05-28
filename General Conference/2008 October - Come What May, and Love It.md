@@ -1,7 +1,5 @@
 # Come What May, and Love It
 
-Thomas S. Monson
-
 By Elder Joseph B. Wirthlin - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2008 General Conference*
@@ -115,7 +113,3 @@ As we look for humor, seek for the eternal perspective, understand the principle
 
 [^3]: See [[Ether 12.27|Ether 12:27]].
 
-
-
-
-#Adversity #Humor #Joy #Justice #Perspective #Trust

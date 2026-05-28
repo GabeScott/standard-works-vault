@@ -1,7 +1,5 @@
 # Dare to Stand Alone
 
-Richard G. Scott
-
 By President Thomas S. Monson - *President of the Church*
 
 *Given in the October session of the 2011 General Conference*
@@ -36,7 +34,7 @@ As we go about living from day to day, it is almost inevitable that our faith wi
 
 Increasingly, some celebrities and others who—for one reason or another—are in the public eye have a tendency to ridicule religion in general and, at times, the Church in particular. If our testimonies are not firmly enough rooted, such criticisms can cause us to doubt our own beliefs or to waver in our resolves.
 
-In Lehi’s vision of the tree of life, found in [[1 Nephi 8.1|1 Nephi 8]], Lehi sees, among others, those who hold to the iron rod until they come forth and partake of the fruit of the tree of life, which we know is a representation of the love of God. And then, sadly, after they partake of the fruit, some are ashamed because of those in the “great and spacious building,” who represent the pride of the children of men, who are pointing fingers at them and scoffing at them; and they fall away into forbidden paths and are lost.[^3] What a powerful tool of the adversary is ridicule and mockery! Again, brethren, do we have the courage to stand strong and firm in the face of such difficult opposition?
+In Lehi’s vision of the tree of life, found in [[1 Nephi 8.1|1 Nephi 8]][[1 Nephi 8.2|]][[1 Nephi 8.3|]][[1 Nephi 8.4|]][[1 Nephi 8.5|]][[1 Nephi 8.6|]][[1 Nephi 8.7|]][[1 Nephi 8.8|]][[1 Nephi 8.9|]][[1 Nephi 8.10|]][[1 Nephi 8.11|]][[1 Nephi 8.12|]][[1 Nephi 8.13|]][[1 Nephi 8.14|]][[1 Nephi 8.15|]][[1 Nephi 8.16|]][[1 Nephi 8.17|]][[1 Nephi 8.18|]][[1 Nephi 8.19|]][[1 Nephi 8.20|]][[1 Nephi 8.21|]][[1 Nephi 8.22|]][[1 Nephi 8.23|]][[1 Nephi 8.24|]][[1 Nephi 8.25|]][[1 Nephi 8.26|]][[1 Nephi 8.27|]][[1 Nephi 8.28|]][[1 Nephi 8.29|]][[1 Nephi 8.30|]][[1 Nephi 8.31|]][[1 Nephi 8.32|]][[1 Nephi 8.33|]][[1 Nephi 8.34|]][[1 Nephi 8.35|]][[1 Nephi 8.36|]][[1 Nephi 8.37|]][[1 Nephi 8.38|]], Lehi sees, among others, those who hold to the iron rod until they come forth and partake of the fruit of the tree of life, which we know is a representation of the love of God. And then, sadly, after they partake of the fruit, some are ashamed because of those in the “great and spacious building,” who represent the pride of the children of men, who are pointing fingers at them and scoffing at them; and they fall away into forbidden paths and are lost.[^3] What a powerful tool of the adversary is ridicule and mockery! Again, brethren, do we have the courage to stand strong and firm in the face of such difficult opposition?
 
 I believe my first experience in having the courage of my convictions took place when I served in the United States Navy near the end of World War II.
 
@@ -131,7 +129,3 @@ That we may ever follow that light and hold it up for all the world to see is my
 
 [^11]: [[3 Nephi 18.24|3 Nephi 18:24]].
 
-
-
-
-#Priesthood #Testimony #Worthiness

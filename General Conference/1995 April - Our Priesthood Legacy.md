@@ -1,7 +1,5 @@
 # Our Priesthood Legacy
 
-Thomas S. Monson
-
 By Elder Jeffrey R. Holland - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1995 General Conference*
@@ -69,4 +67,3 @@ To such fathers of our families and fathers of our faith, to those who have live
 
 
 
-#Church_History #Gordon_B._Hinckley #Honesty #Howard_W._Hunter #Priesthood #Tithing

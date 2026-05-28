@@ -1,7 +1,5 @@
 # The Gift of Modern Revelation
 
-Ezra Taft Benson
-
 By President Ezra Taft Benson - *President of the Church*
 
 *Given in the October session of the 1986 General Conference*
@@ -69,4 +67,3 @@ My beloved brothers and sisters, I bear my solemn witness that these books conta
 
 
 
-#Scriptures #Spirituality

@@ -1,7 +1,5 @@
 # “Walk with Me”
 
-James E. Faust
-
 By Elaine L. Jack - *Relief Society General President*
 
 *Given in the April session of the 1994 General Conference*
@@ -65,4 +63,3 @@ We know the path; in fact, we know it well. The prophet Nephi promised, “If ye
 
 
 
-#Book_Of_Mormon #Charity #Example #Plan_Of_Salvation #Pride #Service #Spirituality #Women

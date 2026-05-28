@@ -1,7 +1,5 @@
 # “That Spirit Which Leadeth to Do Good”
 
-Gordon B. Hinckley
-
 By Elder L. Tom Perry - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1997 General Conference*
@@ -89,4 +87,3 @@ I bear witness of the power and comfort the gift of the Holy Ghost is to those w
 
 
 
-#Apostasy #Commandments #Holy_Ghost #Jesus_Christ #Priesthood #Spirituality #Temptation

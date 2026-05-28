@@ -1,7 +1,5 @@
 # The Message of Elijah
 
-Spencer W. Kimball
-
 By Elder Mark E. Petersen - *Of the Council of the Twelve*
 
 *Given in the April session of the 1976 General Conference*
@@ -129,4 +127,3 @@ But each of us must do our part for our own deceased relatives. It is so essenti
 
 
 
-#Family_History #Temple_Work

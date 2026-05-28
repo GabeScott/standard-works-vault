@@ -1,7 +1,5 @@
 # Making Righteous Choices at the Crossroads of Life
 
-Ezra Taft Benson
-
 By Bishop Robert D. Hales - *Presiding Bishop*
 
 *Given in the October session of the 1988 General Conference*
@@ -117,4 +115,3 @@ May the Lord bless us as we make our decisions in life to constantly keep our go
 
 
 
-#Agency

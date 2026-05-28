@@ -1,7 +1,5 @@
 # Opening Remarks
 
-Gordon B. Hinckley
-
 By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the April session of the 2005 General Conference*
@@ -80,4 +78,3 @@ This, my brothers and sisters, is my invitation to you this morning. I extend my
 
 
 
-#Church_Growth #Education #Faith #Gratitude

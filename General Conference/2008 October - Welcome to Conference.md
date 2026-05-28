@@ -1,7 +1,5 @@
 # Welcome to Conference
 
-Thomas S. Monson
-
 By President Thomas S. Monson - *President of the Church*
 
 *Given in the October session of the 2008 General Conference*
@@ -39,4 +37,3 @@ Our Heavenly Father is mindful of each one of us and our needs. May we be filled
 
 
 
-#Church_Growth #Temples

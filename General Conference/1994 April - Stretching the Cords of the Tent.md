@@ -1,7 +1,5 @@
 # Stretching the Cords of the Tent
 
-James E. Faust
-
 By Bishop Merrill J. Bateman - *Presiding Bishop*
 
 *Given in the April session of the 1994 General Conference*
@@ -27,4 +25,3 @@ I pledge my all to the service of the Master. I have a deep testimony of Him and
 
 
 
-#Church_Growth #Jesus_Christ #Kingdom_Of_God

@@ -1,7 +1,5 @@
 # A Question of Free Agency
 
-Spencer W. Kimball
-
 By Elder Robert D. Hales - *Assistant to the Council of the Twelve*
 
 *Given in the April session of the 1975 General Conference*
@@ -71,4 +69,3 @@ I ask the Lord’s blessings, that I might be one in purpose with the Twelve and
 
 
 
-#Testimony

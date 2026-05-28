@@ -1,7 +1,5 @@
 # Go For It!
 
-Ezra Taft Benson
-
 By President Thomas S. Monson - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 1989 General Conference*
@@ -139,4 +137,3 @@ Brethren of the priesthood, like the Charles Dickens character Philip Pirrip, we
 
 
 
-#Dedication #Faith #Self-Esteem

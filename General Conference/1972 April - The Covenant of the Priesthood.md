@@ -1,7 +1,5 @@
 # The Covenant of the Priesthood
 
-Wilford G. Edling
-
 By Elder Marion G. Romney - *Of the Council of the Twelve*
 
 *Given in the April session of the 1972 General Conference*
@@ -67,4 +65,3 @@ God help us to understand this, and the great honor he has placed upon us by giv
 
 
 
-#Covenants #Priesthood

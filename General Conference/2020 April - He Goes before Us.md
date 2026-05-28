@@ -1,7 +1,5 @@
 # He Goes before Us
 
-Russell M. Nelson
-
 By President Henry B. Eyring - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 2020 General Conference*
@@ -109,7 +107,3 @@ I testify to you that God the Father lives. Jesus is the Christ. This is His Chu
 
 [^9]: [[2 Nephi 28.30|2 Nephi 28:30]].
 
-
-
-
-#Church_History #Family_History #Missionary_Work #Revelation #Temple_Work

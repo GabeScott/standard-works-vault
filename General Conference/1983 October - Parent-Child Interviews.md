@@ -1,7 +1,5 @@
 # Parent-Child Interviews
 
-Gordon B. Hinckley
-
 By Elder Carlos E. Asay - *Of the Presidency of the First Quorum of the Seventy*
 
 *Given in the October session of the 1983 General Conference*
@@ -73,4 +71,3 @@ I thank God for my wife and my children; they make life so very meaningful. I th
 
 
 
-#Parenthood

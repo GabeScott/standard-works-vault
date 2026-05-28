@@ -1,7 +1,5 @@
 # Three Important Questions
 
-Spencer W. Kimball
-
 By Elder ElRay L. Christiansen - *Assistant to the Council of the Twelve*
 
 *Given in the April session of the 1974 General Conference*
@@ -59,4 +57,3 @@ You who stand on the threshold of marriage, you who have been taught the eternit
 
 
 
-#Marriage

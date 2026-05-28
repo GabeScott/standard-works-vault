@@ -1,7 +1,5 @@
 # A Safe Place for Marriages and Families
 
-Gordon B. Hinckley
-
 By Barbara B. Smith - *Relief Society General President*
 
 *Given in the October session of the 1981 General Conference*
@@ -81,4 +79,3 @@ Relief is only temporary, but welfare is eternal. Mortal life may be limited in 
 
 
 
-#Family #Marriage

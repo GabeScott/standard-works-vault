@@ -1,7 +1,5 @@
 # Consecrate Thy Performance
 
-Gordon B. Hinckley
-
 By Elder Neal A. Maxwell - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2002 General Conference*
@@ -81,4 +79,3 @@ In the name of the Lord of the outstretched arm (see [[D&C 103.17|D&C 103:17]]; 
 
 
 
-#Commitment #Consecration #Humility

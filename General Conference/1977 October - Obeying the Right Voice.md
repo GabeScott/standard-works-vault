@@ -1,7 +1,5 @@
 # Obeying the Right Voice
 
-Spencer W. Kimball
-
 By President N. Eldon Tanner - *First Counselor in the First Presidency*
 
 *Given in the October session of the 1977 General Conference*
@@ -121,4 +119,3 @@ Let us always remember, and never forget, that we hold the priesthood of God. We
 
 
 
-#Character #Obedience

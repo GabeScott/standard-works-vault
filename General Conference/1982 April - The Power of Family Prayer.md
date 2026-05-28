@@ -1,7 +1,5 @@
 # The Power of Family Prayer
 
-Spencer W. Kimball
-
 By Elder John H. Groberg - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1982 General Conference*
@@ -109,4 +107,3 @@ May we all gather our families around us and consistently and fervently pray for
 
 
 
-#Family #Prayer

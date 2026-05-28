@@ -1,7 +1,5 @@
 # The Words We Speak
 
-Thomas S. Monson
-
 By Rosemary M. Wixom - *Primary General President*
 
 *Given in the April session of the 2013 General Conference*
@@ -87,7 +85,3 @@ May the words we speak and write to our children reflect the love our Heavenly F
 
 [^8]: [[Matthew 3.17|Matthew 3:17]].
 
-
-
-
-#Children #Communication #Listening

@@ -1,7 +1,5 @@
 # “Ye Shall Know the Truth”
 
-Spencer W. Kimball
-
 By President N. Eldon Tanner - *First Counselor in the First Presidency*
 
 *Given in the April session of the 1978 General Conference*
@@ -143,4 +141,3 @@ May we all accept God as our Father, and his Son Jesus Christ as our Savior, and
 
 
 
-#Freedom #Jesus_Christ #Obedience #Truth

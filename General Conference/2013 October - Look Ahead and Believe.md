@@ -1,7 +1,5 @@
 # Look Ahead and Believe
 
-Thomas S. Monson
-
 By Elder Edward Dube - *Of the Seventy*
 
 *Given in the October session of the 2013 General Conference*
@@ -57,4 +55,3 @@ I testify that as we follow the example of our Savior, Jesus Christ, and raise o
 
 
 
-#Church_Callings #Faith #Unity

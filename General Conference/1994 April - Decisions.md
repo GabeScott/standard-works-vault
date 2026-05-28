@@ -1,7 +1,5 @@
 # Decisions
 
-James E. Faust
-
 By Elder Gerald E. Melchin - *Of the Seventy*
 
 *Given in the April session of the 1994 General Conference*
@@ -39,4 +37,3 @@ I am grateful for the privilege to serve the Lord and for the spirit which has t
 
 
 
-#Agency #Blessings #Death #Family_History #Freedom #Jesus_Christ #Obedience #Ordinances #Temples

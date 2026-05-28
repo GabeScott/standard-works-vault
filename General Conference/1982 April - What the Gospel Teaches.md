@@ -1,7 +1,5 @@
 # What the Gospel Teaches
 
-Spencer W. Kimball
-
 By Elder LeGrand Richards - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1982 General Conference*
@@ -107,4 +105,3 @@ I think my time is up. God bless you all. I love the Lord. I love his church. I 
 
 
 
-#Missionary_Work

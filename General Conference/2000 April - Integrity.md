@@ -1,7 +1,5 @@
 # Integrity
 
-Gordon B. Hinckley
-
 By Carol B. Thomas - *First Counselor in the Young Women General Presidency*
 
 *Given in the April session of the 2000 General Conference*
@@ -63,4 +61,3 @@ As servants of the Lord Jesus Christ, we can do it! Our honest effort to improve
 
 
 
-#Commitment #Courage #God_The_Father #Honesty #Jesus_Christ #Joseph_Smith #Priesthood #Scripture_Study #Scriptures #Self-Esteem

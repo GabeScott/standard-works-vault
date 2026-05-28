@@ -1,7 +1,5 @@
 # Covenants with God Strengthen, Protect, and Prepare Us for Eternal Glory
 
-Russell M. Nelson
-
 By Jean B. Bingham - *Relief Society General President*
 
 *Given in the April session of the 2022 General Conference*
@@ -77,7 +75,3 @@ I testify that as we choose to make covenants with Heavenly Father and access th
 
 [^13]: See “[The Living Christ: The Testimony of the Apostles](https://www.churchofjesuschrist.org/study/scriptures/the-living-christ-the-testimony-of-the-apostles/the-living-christ-the-testimony-of-the-apostles?lang=eng),” ChurchofJesusChrist.org.
 
-
-
-
-#Adversity #Covenants #Jesus_Christ #Joy #Service #Temples

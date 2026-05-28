@@ -1,7 +1,5 @@
 # Constancy amid Change
 
-Gordon B. Hinckley
-
 By Elder Russell M. Nelson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1993 General Conference*
@@ -229,7 +227,3 @@ Constancy amid change is assured by heavenly personages, plans, and principles. 
 
 [^47]: See also [[D&C 126.3|D&C 126:3]].
 
-
-
-
-#Atonement #Plan_Of_Salvation #Priesthood

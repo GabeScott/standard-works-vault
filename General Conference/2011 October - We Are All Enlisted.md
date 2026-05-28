@@ -1,7 +1,5 @@
 # We Are All Enlisted
 
-Richard G. Scott
-
 By Elder Jeffrey R. Holland - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2011 General Conference*
@@ -83,7 +81,3 @@ In the name of Jesus Christ, our Master, amen.
 
 [^11]: *Hymns,* no. 250.
 
-
-
-
-#Missionary_Work #Satan #Worthiness

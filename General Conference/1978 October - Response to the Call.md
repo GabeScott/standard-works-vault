@@ -1,7 +1,5 @@
 # Response to the Call
 
-Spencer W. Kimball
-
 By Elder James E. Faust - *Of the Council of the Twelve*
 
 *Given in the October session of the 1978 General Conference*
@@ -25,4 +23,3 @@ I express appreciation for the support and love of President Kimball, President 
 
 
 
-#Testimony

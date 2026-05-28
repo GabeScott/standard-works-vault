@@ -1,7 +1,5 @@
 # “Charity Never Faileth”
 
-Thomas S. Monson
-
 By Elaine L. Jack - *Relief Society General President*
 
 *Given in the April session of the 1992 General Conference*
@@ -55,4 +53,3 @@ Yes, as sisters in Zion, we are going to do something extraordinary.
 
 
 
-#Charity #Relief_Society #Sisterhood

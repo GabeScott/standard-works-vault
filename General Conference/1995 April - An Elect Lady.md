@@ -1,7 +1,5 @@
 # An Elect Lady
 
-Thomas S. Monson
-
 By Elder L. Tom Perry - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1995 General Conference*
@@ -71,4 +69,3 @@ Sister Hinckley, you are a wonderful example to all of us. May the Lord continue
 
 
 
-#Example #Family #Home #Marriage #Motherhood #Music #Women

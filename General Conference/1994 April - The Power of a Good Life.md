@@ -1,7 +1,5 @@
 # The Power of a Good Life
 
-James E. Faust
-
 By Elder Marlin K. Jensen - *Of the Seventy*
 
 *Given in the April session of the 1994 General Conference*
@@ -65,4 +63,3 @@ I thank God for the blessing of good people in all of our lives and pray that we
 
 
 
-#Courage #Example #Joseph_Smith

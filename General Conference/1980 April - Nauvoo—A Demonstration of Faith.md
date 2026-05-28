@@ -1,7 +1,5 @@
 # Nauvoo—A Demonstration of Faith
 
-Spencer W. Kimball
-
 By Elder L. Tom Perry - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1980 General Conference*
@@ -61,4 +59,3 @@ I want to add my testimony to this historic conference. God lives. Jesus is the 
 
 
 
-#Faith #Pioneers #Service

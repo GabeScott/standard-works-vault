@@ -1,7 +1,5 @@
 # Successful Living of Gospel Principles
 
-Gordon B. Hinckley
-
 By Elder David B. Haight - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1992 General Conference*
@@ -93,4 +91,3 @@ The only sure way to protect ourselves and our families from the onslaught of th
 
 
 
-#Commitment #Obedience

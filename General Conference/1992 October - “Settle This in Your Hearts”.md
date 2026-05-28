@@ -1,7 +1,5 @@
 # “Settle This in Your Hearts”
 
-Gordon B. Hinckley
-
 By Elder Neal A. Maxwell - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1992 General Conference*
@@ -79,4 +77,3 @@ May we get settled and prepare now for that marvelous moment then, I pray in the
 
 
 
-#Commitment #Consecration #Obedience

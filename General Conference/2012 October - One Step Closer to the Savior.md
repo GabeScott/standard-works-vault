@@ -1,7 +1,5 @@
 # One Step Closer to the Savior
 
-Thomas S. Monson
-
 By Russell T. Osguthorpe - *Sunday School General President*
 
 *Given in the October session of the 2012 General Conference*
@@ -71,7 +69,3 @@ I testify that God the Father and His Son, Jesus Christ, live. I testify that th
 
 [^11]: [[3 Nephi 17.3|3 Nephi 17:3]].
 
-
-
-
-#Conversion #Education #Teaching

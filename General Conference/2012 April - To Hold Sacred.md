@@ -1,7 +1,5 @@
 # To Hold Sacred
 
-Thomas S. Monson
-
 By Elder Paul B. Pieper - *Of the Seventy*
 
 *Given in the April session of the 2012 General Conference*
@@ -61,4 +59,3 @@ May the Lord bless us to ever and always recognize, remember, and hold sacred th
 
 
 
-#Holy_Ghost #Sacredness #Worldliness

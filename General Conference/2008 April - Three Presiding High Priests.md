@@ -1,7 +1,5 @@
 # Three Presiding High Priests
 
-Dieter F. Uchtdorf
-
 By Elder William R. Walker - *Of the Seventy*
 
 *Given in the April session of the 2008 General Conference*
@@ -83,4 +81,3 @@ And I know it now. I bear witness that this is the work of the Lord Jesus Christ
 
 
 
-#Church_Leaders #First_Presidency

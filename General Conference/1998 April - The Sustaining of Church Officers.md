@@ -1,7 +1,5 @@
 # The Sustaining of Church Officers
 
-Gordon B. Hinckley
-
 By President James E. Faust - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 1998 General Conference*

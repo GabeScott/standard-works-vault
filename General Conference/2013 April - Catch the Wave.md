@@ -1,7 +1,5 @@
 # Catch the Wave
 
-Thomas S. Monson
-
 By Elder Russell M. Nelson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2013 General Conference*
@@ -105,7 +103,7 @@ I thank God and His Son, Jesus Christ, for the Restoration and its power to prop
 
 [^19]: See [[D&C 110.13|Doctrine and Covenants 110:13–16]][[D&C 110.14|]][[D&C 110.15|]][[D&C 110.16|]].
 
-[^20]: See [[Alma 42.1|Alma 42]], especially [[Alma 42.8|verse 8]].
+[^20]: See [[Alma 42.1|Alma 42]][[Alma 42.2|]][[Alma 42.3|]][[Alma 42.4|]][[Alma 42.5|]][[Alma 42.6|]][[Alma 42.7|]][[Alma 42.8|]][[Alma 42.9|]][[Alma 42.10|]][[Alma 42.11|]][[Alma 42.12|]][[Alma 42.13|]][[Alma 42.14|]][[Alma 42.15|]][[Alma 42.16|]][[Alma 42.17|]][[Alma 42.18|]][[Alma 42.19|]][[Alma 42.20|]][[Alma 42.21|]][[Alma 42.22|]][[Alma 42.23|]][[Alma 42.24|]][[Alma 42.25|]][[Alma 42.26|]][[Alma 42.27|]][[Alma 42.28|]][[Alma 42.29|]][[Alma 42.30|]][[Alma 42.31|]], especially [[Alma 42.8|verse 8]].
 
 [^21]: See, for example, [[Alma 12.28|Alma 12:28–30]][[Alma 12.29|]][[Alma 12.30|]].
 
@@ -135,7 +133,3 @@ I thank God and His Son, Jesus Christ, for the Restoration and its power to prop
 
 [^34]: [[Revelation 14.6|Revelation 14:6]]; see also [[1 Nephi 19.17|1 Nephi 19:17]]; [[D&C 133.37|Doctrine and Covenants 133:37]].
 
-
-
-
-#Book_Of_Mormon #Missionary_Work #Restoration

@@ -1,7 +1,5 @@
 # The Grandeur of God
 
-Gordon B. Hinckley
-
 By Elder Jeffrey R. Holland - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2003 General Conference*
@@ -85,7 +83,3 @@ I bear witness of a God who has such shoulders. And in the spirit of the holy ap
 
 [^18]: [[1 John 4.10|1 John 4:10–11]][[1 John 4.11|]].
 
-
-
-
-#God_The_Father #Jesus_Christ #Love #Morality

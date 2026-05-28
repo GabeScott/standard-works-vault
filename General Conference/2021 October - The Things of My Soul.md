@@ -1,7 +1,5 @@
 # The Things of My Soul
 
-Russell M. Nelson
-
 By Elder Ronald A. Rasband - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2021 General Conference*
@@ -155,7 +153,3 @@ The things of my soul are as precious to me as yours are to you. These things st
 
 [^29]: [[3 Nephi 20.8|3 Nephi 20:8]].
 
-
-
-
-#Commandments #God_The_Father #Jesus_Christ #Joy #Love #Prophets #Revelation

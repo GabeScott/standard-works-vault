@@ -1,7 +1,5 @@
 # The Privilege of Holding the Priesthood
 
-Spencer W. Kimball
-
 By President Spencer W. Kimball - *President of the Church*
 
 *Given in the October session of the 1975 General Conference*
@@ -161,4 +159,3 @@ Now this comes from the doctrines we possess. The Lord has said, “I am the Alm
 
 
 
-#Articles_Of_Faith #Priesthood

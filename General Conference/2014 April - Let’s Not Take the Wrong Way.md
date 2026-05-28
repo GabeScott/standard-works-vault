@@ -1,7 +1,5 @@
 # Let’s Not Take the Wrong Way
 
-Thomas S. Monson
-
 By Elder Claudio D. Zivic - *Of the Seventy*
 
 *Given in the April session of the 2014 General Conference*
@@ -75,4 +73,3 @@ I testify to the four ends of the earth that Jesus Christ lives. He exhorts us, 
 
 
 
-#Jesus_Christ #Repentance

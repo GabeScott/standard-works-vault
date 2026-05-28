@@ -1,7 +1,5 @@
 # Kindness—A Part of God’s Plan
 
-Gordon B. Hinckley
-
 By Betty Jo Jepsen - *First Counselor, Primary General Presidency*
 
 *Given in the October session of the 1990 General Conference*
@@ -73,4 +71,3 @@ The Merrie Miss motto is I Will Follow God’s Plan for Me. God’s plan for us 
 
 
 
-#Jesus_Christ #Kindness #Women #Youth

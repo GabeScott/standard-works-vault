@@ -1,7 +1,5 @@
 # Joseph Smith the Prophet
 
-Spencer W. Kimball
-
 By Elder David B. Haight - *Of the Council of the Twelve*
 
 *Given in the October session of the 1979 General Conference*
@@ -85,4 +83,3 @@ Joseph was the prophet of the Restoration. I testify to you of his divinity and 
 
 
 
-#Joseph_Smith #Restoration

@@ -1,7 +1,5 @@
 # The Will Within
 
-Ezra Taft Benson
-
 By President Thomas S. Monson - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 1987 General Conference*
@@ -82,4 +80,3 @@ Let us shed any thought of failure. Let us discard any habit that may hinder. Le
 
 
 
-#Adversity #Dedication #Fellowshipping

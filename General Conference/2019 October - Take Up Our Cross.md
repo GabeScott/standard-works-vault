@@ -1,7 +1,5 @@
 # Take Up Our Cross
 
-Jeffrey R. Holland
-
 By Elder Ulisses Soares - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2019 General Conference*
@@ -125,7 +123,3 @@ I testify to you that following our Master’s footsteps and waiting on Him who 
 
 [^29]: See [[Matthew 11.30|Matthew 11:30]]; [[Mosiah 24.14|Mosiah 24:14]].
 
-
-
-
-#Discipleship #Endurance #Grace #Hope #Spirituality

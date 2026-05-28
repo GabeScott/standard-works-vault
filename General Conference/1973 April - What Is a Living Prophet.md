@@ -1,7 +1,5 @@
 # What Is a Living Prophet?
 
-Harold B. Lee
-
 By President A. Theodore Tuttle - *Of the First Council of the Seventy*
 
 *Given in the April session of the 1973 General Conference*
@@ -65,4 +63,3 @@ In the name of Jesus Christ. Amen.
 
 
 
-#Prophets

@@ -1,7 +1,5 @@
 # “Shine As Lights in the World”
 
-Ezra Taft Benson
-
 By Elder Neal A. Maxwell - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1983 General Conference*
@@ -113,4 +111,3 @@ In the holy name of Jesus Christ, amen.
 
 
 
-#Endurance #Hope

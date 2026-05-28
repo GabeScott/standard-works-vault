@@ -1,7 +1,5 @@
 # Christ Is Risen; Faith in Him Will Move Mountains
 
-Russell M. Nelson
-
 By President Russell M. Nelson - *President of The Church of Jesus Christ of Latter-day Saints*
 
 *Given in the April session of the 2021 General Conference*
@@ -119,7 +117,3 @@ On this Easter Sunday, with my deep feelings of love and gratitude, I declare my
 
 [^20]: See [[Mark 9.23|Mark 9:23]].
 
-
-
-
-#Easter #Faith #Jesus_Christ #Ordinances #Power #Scripture_Study

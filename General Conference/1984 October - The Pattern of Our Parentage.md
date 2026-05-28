@@ -1,7 +1,5 @@
 # The Pattern of Our Parentage
 
-Gordon B. Hinckley
-
 By Elder Boyd K. Packer - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1984 General Conference*
@@ -209,4 +207,3 @@ I bear solemn witness that Jesus is the Christ, the Only Begotten of the Father 
 
 
 
-#Divine_Nature #Family #God_The_Father #Opposition #Scriptures #Truth

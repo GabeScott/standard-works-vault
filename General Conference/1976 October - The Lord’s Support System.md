@@ -1,7 +1,5 @@
 # The Lord’s Support System
 
-Spencer W. Kimball
-
 By Elder Robert L. Simpson - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1976 General Conference*
@@ -49,4 +47,3 @@ That we may all go forth willingly, effectively, full of faith, with an eye sing
 
 
 
-#Church_Callings #Service

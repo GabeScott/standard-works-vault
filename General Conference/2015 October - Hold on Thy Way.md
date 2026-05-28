@@ -1,7 +1,5 @@
 # Hold on Thy Way
 
-Rosemary M. Wixom
-
 By Elder Koichi Aoyagi - *Emeritus Member of the Seventy*
 
 *Given in the October session of the 2015 General Conference*
@@ -75,7 +73,3 @@ I sincerely testify that God the Father and His Beloved Son, Jesus Christ, live 
 
 [^6]: [[Moroni 10.32|Moroni 10:32]].
 
-
-
-
-#Adversity #Faith #Plan_Of_Salvation

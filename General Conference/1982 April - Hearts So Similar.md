@@ -1,7 +1,5 @@
 # Hearts So Similar
 
-Spencer W. Kimball
-
 By Barbara B. Smith - *Relief Society General President*
 
 *Given in the April session of the 1982 General Conference*
@@ -91,4 +89,3 @@ We can be good women, elect women, and even holy women. Though we are women of g
 
 
 
-#Church_Growth #Relief_Society

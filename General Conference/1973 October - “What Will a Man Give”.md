@@ -1,7 +1,5 @@
 # “What Will a Man Give?”
 
-Harold B. Lee
-
 By Elder Mark E. Petersen - *Of the Council of the Twelve*
 
 *Given in the October session of the 1973 General Conference*
@@ -189,4 +187,3 @@ And this is my testimony to you, in the sacred name of the Lord Jesus Christ. Am
 
 
 
-#Agency #Commandments #Obedience

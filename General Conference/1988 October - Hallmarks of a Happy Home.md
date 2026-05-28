@@ -1,7 +1,5 @@
 # Hallmarks of a Happy Home
 
-Ezra Taft Benson
-
 By President Thomas S. Monson - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 1988 General Conference*
@@ -125,4 +123,3 @@ That our loving Heavenly Father may bless all of us in our quest for such happy 
 
 
 
-#Home #Love #Parenthood

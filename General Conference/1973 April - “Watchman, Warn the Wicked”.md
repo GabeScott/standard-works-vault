@@ -1,7 +1,5 @@
 # “Watchman, Warn the Wicked”
 
-Harold B. Lee
-
 By Elder Ezra Taft Benson - *Of the Council of the Twelve*
 
 *Given in the April session of the 1973 General Conference*
@@ -143,4 +141,3 @@ God help us, as free men, to recognize the source of our blessings, the threat t
 
 
 
-#Freedom #Patriotism #Prayer #Standards #Youth

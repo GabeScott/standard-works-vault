@@ -1,7 +1,5 @@
 # “Made Like unto the Son of God”
 
-Gordon B. Hinckley
-
 By Elder Ray H. Wood - *Of the Seventy*
 
 *Given in the April session of the 1999 General Conference*
@@ -43,4 +41,3 @@ I bear my solemn witness that it may be so, “relying wholly upon the merits of
 
 
 
-#Commandments #Jesus_Christ #Priesthood

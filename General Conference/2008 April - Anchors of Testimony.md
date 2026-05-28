@@ -1,7 +1,5 @@
 # Anchors of Testimony
 
-Dieter F. Uchtdorf
-
 By Mary N. Cook - *Second Counselor in the Young Women General Presidency*
 
 *Given in the April session of the 2008 General Conference*
@@ -93,7 +91,3 @@ I testify that the Lord loves each of you and will bless you in your efforts to 
 
 [^12]: [[Alma 36.3|Alma 36:3]].
 
-
-
-
-#Morality #Obedience #Testimony

@@ -1,7 +1,5 @@
 # The Tongue Can Be a Sharp Sword
 
-Thomas S. Monson
-
 By Elder Marvin J. Ashton - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1992 General Conference*
@@ -85,4 +83,3 @@ May God help us individually and collectively to know and teach that bashing sho
 
 
 
-#Charity #Criticism #Forgiveness

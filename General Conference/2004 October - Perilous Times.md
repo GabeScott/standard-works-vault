@@ -1,7 +1,5 @@
 # Perilous Times
 
-Gordon B. Hinckley
-
 By Elder Cecil O. Samuelson Jr. - *Of the Seventy*
 
 *Given in the October session of the 2004 General Conference*
@@ -55,4 +53,3 @@ How grateful I am, in these perilous times, for the protection and guidance give
 
 
 
-#Jesus_Christ #Prophets #Testimony

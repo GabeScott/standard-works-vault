@@ -1,7 +1,5 @@
 # If They Will But Serve the God of the Land
 
-Spencer W. Kimball
-
 By President N. Eldon Tanner - *First Counselor in the First Presidency*
 
 *Given in the April session of the 1976 General Conference*
@@ -115,4 +113,3 @@ Only as we accept and live the teachings of the gospel can the destiny which God
 
 
 
-#Commandments #Prophecy #U.S._Constitution

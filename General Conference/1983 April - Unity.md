@@ -1,7 +1,5 @@
 # Unity
 
-Ezra Taft Benson
-
 By President Marion G. Romney - *First Counselor in the First Presidency*
 
 *Given in the April session of the 1983 General Conference*
@@ -69,4 +67,3 @@ It is my conviction that, since we are engaged in the Lord’s work, we can acco
 
 
 
-#Brotherhood #Obedience #Unity

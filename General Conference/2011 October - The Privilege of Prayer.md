@@ -1,7 +1,5 @@
 # The Privilege of Prayer
 
-Richard G. Scott
-
 By Elder J. Devn Cornish - *Of the Seventy*
 
 *Given in the October session of the 2011 General Conference*
@@ -73,7 +71,3 @@ I am deeply grateful for the privilege of going to my holy Heavenly Father in pr
 
 [^1]: See Francis M. Lyman, “Proprieties in Prayer,” *Contributor,* July 1892, 398–402; B. H. Roberts, comp., *The Seventy’s Course in Theology,* 5 vols. (1907–12), 4:120; *Encyclopedia of Mormonism* (1992), “Prayer,” 1118–19; Bruce R. McConkie, *Mormon Doctrine,* 2nd ed. (1966), 583.
 
-
-
-
-#Faith #Jesus_Christ #Love #Prayer #Repentance

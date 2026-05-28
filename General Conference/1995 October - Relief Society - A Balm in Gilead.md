@@ -1,7 +1,5 @@
 # Relief Society: A Balm in Gilead
 
-Gordon B. Hinckley
-
 By Elaine L. Jack - *Relief Society General President*
 
 *Given in the October session of the 1995 General Conference*
@@ -102,4 +100,3 @@ I leave you with my testimony that God lives, that Jesus Christ is his Son, and 
 
 
 
-#Charity #Family #Home #Individual_Worth #Peace #Relief_Society #Women

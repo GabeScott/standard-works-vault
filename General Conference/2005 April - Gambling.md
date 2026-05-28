@@ -1,7 +1,5 @@
 # Gambling
 
-Gordon B. Hinckley
-
 By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the April session of the 2005 General Conference*
@@ -119,4 +117,3 @@ May heaven’s blessings rest upon you, I humbly pray, as I leave you my testimo
 
 
 
-#Gambling #Morality #Sacrifice #Temptation #Tithing

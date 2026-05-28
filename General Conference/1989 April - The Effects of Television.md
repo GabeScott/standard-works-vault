@@ -1,7 +1,5 @@
 # The Effects of Television
 
-Ezra Taft Benson
-
 By Elder M. Russell Ballard - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1989 General Conference*
@@ -123,4 +121,3 @@ I leave you my testimony that we have only one sure way to secure our homes and 
 
 
 
-#Family #Media #Violence

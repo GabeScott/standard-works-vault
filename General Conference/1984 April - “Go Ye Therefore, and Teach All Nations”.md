@@ -1,7 +1,5 @@
 # “Go Ye Therefore, and Teach All Nations”
 
-Gordon B. Hinckley
-
 By Elder L. Tom Perry - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1984 General Conference*
@@ -109,4 +107,3 @@ I leave you my witness of the truthfulness of this great work, in the name of Je
 
 
 
-#Missionary_Work

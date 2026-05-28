@@ -1,7 +1,5 @@
 # The Savior and Joseph Smith—Alike Yet Unlike
 
-Thomas S. Monson
-
 By Elder Francis M. Gibbons - *Of the Seventy*
 
 *Given in the April session of the 1991 General Conference*
@@ -61,4 +59,3 @@ Finally, I testify that through an unbroken chain, the prophetic keys and author
 
 
 
-#Authority #Jesus_Christ #Joseph_Smith #Prayer #Restoration

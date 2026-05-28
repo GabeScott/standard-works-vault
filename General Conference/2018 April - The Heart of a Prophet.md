@@ -1,7 +1,5 @@
 # The Heart of a Prophet
 
-Henry B. Eyring
-
 By Elder Gary E. Stevenson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2018 General Conference*
@@ -103,7 +101,3 @@ Brothers and sisters, what we have witnessed and participated in today, a solemn
 
 [^6]: David B. Haight, “[[1994 October - Solemn Assemblies.md|Solemn Assemblies]],” *Ensign,* Nov. 1994, 14.
 
-
-
-
-#Church_Organization #First_Presidency #Prophets #Teaching

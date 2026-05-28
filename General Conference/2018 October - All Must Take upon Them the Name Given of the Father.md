@@ -1,7 +1,5 @@
 # All Must Take upon Them the Name Given of the Father
 
-Russell M. Nelson
-
 By Elder Paul B. Pieper - *Of the Seventy*
 
 *Given in the October session of the 2018 General Conference*
@@ -93,13 +91,9 @@ For the Savior’s promise is sure: those who “believe on the name of Jesus Ch
 
 [^20]: “O God, the Eternal Father,” *Hymns,* no. 175.
 
-[^21]: See [[Mosiah 5.1|Mosiah 5]]; [[Mosiah 6.1|6]]; [[Mosiah 18.1|18]]; [[3 Nephi 19.1|3 Nephi 19]].
+[^21]: See [[Mosiah 5.1|Mosiah 5]][[Mosiah 5.2|]][[Mosiah 5.3|]][[Mosiah 5.4|]][[Mosiah 5.5|]][[Mosiah 5.6|]][[Mosiah 5.7|]][[Mosiah 5.8|]][[Mosiah 5.9|]][[Mosiah 5.10|]][[Mosiah 5.11|]][[Mosiah 5.12|]][[Mosiah 5.13|]][[Mosiah 5.14|]][[Mosiah 5.15|]]; [[Mosiah 6.1|6]][[Mosiah 6.2|]][[Mosiah 6.3|]][[Mosiah 6.4|]][[Mosiah 6.5|]][[Mosiah 6.6|]][[Mosiah 6.7|]]; [[Mosiah 18.1|18]][[Mosiah 18.2|]][[Mosiah 18.3|]][[Mosiah 18.4|]][[Mosiah 18.5|]][[Mosiah 18.6|]][[Mosiah 18.7|]][[Mosiah 18.8|]][[Mosiah 18.9|]][[Mosiah 18.10|]][[Mosiah 18.11|]][[Mosiah 18.12|]][[Mosiah 18.13|]][[Mosiah 18.14|]][[Mosiah 18.15|]][[Mosiah 18.16|]][[Mosiah 18.17|]][[Mosiah 18.18|]][[Mosiah 18.19|]][[Mosiah 18.20|]][[Mosiah 18.21|]][[Mosiah 18.22|]][[Mosiah 18.23|]][[Mosiah 18.24|]][[Mosiah 18.25|]][[Mosiah 18.26|]][[Mosiah 18.27|]][[Mosiah 18.28|]][[Mosiah 18.29|]][[Mosiah 18.30|]][[Mosiah 18.31|]][[Mosiah 18.32|]][[Mosiah 18.33|]][[Mosiah 18.34|]][[Mosiah 18.35|]]; [[3 Nephi 19.1|3 Nephi 19]][[3 Nephi 19.2|]][[3 Nephi 19.3|]][[3 Nephi 19.4|]][[3 Nephi 19.5|]][[3 Nephi 19.6|]][[3 Nephi 19.7|]][[3 Nephi 19.8|]][[3 Nephi 19.9|]][[3 Nephi 19.10|]][[3 Nephi 19.11|]][[3 Nephi 19.12|]][[3 Nephi 19.13|]][[3 Nephi 19.14|]][[3 Nephi 19.15|]][[3 Nephi 19.16|]][[3 Nephi 19.17|]][[3 Nephi 19.18|]][[3 Nephi 19.19|]][[3 Nephi 19.20|]][[3 Nephi 19.21|]][[3 Nephi 19.22|]][[3 Nephi 19.23|]][[3 Nephi 19.24|]][[3 Nephi 19.25|]][[3 Nephi 19.26|]][[3 Nephi 19.27|]][[3 Nephi 19.28|]][[3 Nephi 19.29|]][[3 Nephi 19.30|]][[3 Nephi 19.31|]][[3 Nephi 19.32|]][[3 Nephi 19.33|]][[3 Nephi 19.34|]][[3 Nephi 19.35|]][[3 Nephi 19.36|]].
 
 [^22]: [[Mosiah 5.12|Mosiah 5:12]].
 
 [^23]: [[D&C 20.29|Doctrine and Covenants 20:29]].
 
-
-
-
-#Baptism #Covenants #Discipleship #Holy_Ghost #Jesus_Christ #Sacrament

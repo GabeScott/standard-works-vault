@@ -1,7 +1,5 @@
 # Integrity, the Mother of Many Virtues
 
-Spencer W. Kimball
-
 By Elder James E. Faust - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1982 General Conference*
@@ -125,4 +123,3 @@ I leave my testimony that dealing justly with oneself and others, and observing 
 
 
 
-#Honesty

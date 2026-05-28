@@ -1,7 +1,5 @@
 # Kingdom of God
 
-Joseph Fielding Smith
-
 By Elder Theodore M. Burton - *Assistant to the Council of the Twelve*
 
 *Given in the April session of the 1971 General Conference*
@@ -61,4 +59,3 @@ To those not yet members of the Church, I ask you to examine your own hearts. Yo
 
 
 
-#Plan_Of_Salvation #Restoration #Temple_Work

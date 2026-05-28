@@ -1,7 +1,5 @@
 # The Constant Exercise of Our Faith
 
-Harold B. Lee
-
 By Elder O. Leslie Stone - *Assistant to the Council of the Twelve*
 
 *Given in the April session of the 1973 General Conference*
@@ -97,4 +95,3 @@ In the name of Jesus Christ. Amen.
 
 
 
-#Faith

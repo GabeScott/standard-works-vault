@@ -1,7 +1,5 @@
 # Revelation for the Church, Revelation for Our Lives
 
-Henry B. Eyring
-
 By President Russell M. Nelson - *President of the Church*
 
 *Given in the April session of the 2018 General Conference*
@@ -123,7 +121,3 @@ This is His Church, restored through the Prophet Joseph Smith. I so testify, wit
 
 [^15]: [[Moroni 10.30|Moroni 10:30]].
 
-
-
-
-#Church_Callings #Holy_Ghost #Jesus_Christ #Joseph_Smith #Prayer #Prophets #Revelation

@@ -1,7 +1,5 @@
 # The Spirituality of Service
 
-Thomas S. Monson
-
 By Elder Derek A. Cuthbert - *Of the Seventy*
 
 *Given in the April session of the 1990 General Conference*
@@ -61,4 +59,3 @@ May this be our happy lot, I humbly pray, bearing my personal witness of the ris
 
 
 
-#Love #Service #Spirituality

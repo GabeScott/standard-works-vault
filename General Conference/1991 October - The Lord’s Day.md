@@ -1,7 +1,5 @@
 # The Lord’s Day
 
-Gordon B. Hinckley
-
 By Elder James E. Faust - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1991 General Conference*
@@ -87,4 +85,3 @@ What is worthy or unworthy on the Sabbath day will have to be judged by each of 
 
 
 
-#Faith #Sabbath

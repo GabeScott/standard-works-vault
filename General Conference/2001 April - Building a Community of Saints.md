@@ -1,7 +1,5 @@
 # Building a Community of Saints
 
-Gordon B. Hinckley
-
 By Elder L. Tom Perry - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2001 General Conference*
@@ -95,4 +93,3 @@ Historical information is from *Church History in the Fulness of Times,* 2nd ed.
 
 
 
-#Children #Church_History #Church_Membership #Education #Faith #Family #Fasting #Generosity #Home #Kindness #Love #Missionary_Work #Parents #Self-Reliance #Teaching #Temple_Work #Unity #Welfare #Work

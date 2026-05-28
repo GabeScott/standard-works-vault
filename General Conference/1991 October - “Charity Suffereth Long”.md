@@ -1,7 +1,5 @@
 # “Charity Suffereth Long”
 
-Gordon B. Hinckley
-
 By Aileen H. Clyde - *Second Counselor in the Relief Society General Presidency*
 
 *Given in the October session of the 1991 General Conference*
@@ -51,4 +49,3 @@ I pray in all humility that our faith in God may move us to such action and that
 
 
 
-#Hope #Love #Scriptures #Service #Unity

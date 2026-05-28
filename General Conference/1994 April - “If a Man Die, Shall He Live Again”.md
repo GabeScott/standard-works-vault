@@ -1,7 +1,5 @@
 # “If a Man Die, Shall He Live Again?”
 
-James E. Faust
-
 By Elder Carlos E. Asay - *Of the Presidency of the Seventy*
 
 *Given in the April session of the 1994 General Conference*
@@ -103,4 +101,3 @@ I bear solemn testimony that *we shall live again!* Such testimony is founded up
 
 
 
-#Death #Jesus_Christ #Resurrection

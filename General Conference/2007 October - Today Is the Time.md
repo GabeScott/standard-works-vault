@@ -1,7 +1,5 @@
 # Today Is the Time
 
-Gordon B. Hinckley
-
 By Elder Walter F. González - *Of the Presidency of the Seventy*
 
 *Given in the October session of the 2007 General Conference*
@@ -43,4 +41,3 @@ Today is our time to be valiant and decide to give our souls a serious, profound
 
 
 
-#Adversity #Obedience #Preparation #Service

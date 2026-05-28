@@ -1,7 +1,5 @@
 # “The Heart and a Willing Mind”
 
-Gordon B. Hinckley
-
 By Elder James M. Paramore - *Of the Seventy*
 
 *Given in the April session of the 1998 General Conference*
@@ -57,4 +55,3 @@ Remember the Lord said, “For them that honour me I will honour” ([[1 Samuel 
 
 
 
-#Commandments #God_The_Father #Jesus_Christ #Missionary_Work #Priesthood

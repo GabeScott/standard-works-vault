@@ -1,7 +1,5 @@
 # Our Good Shepherd
 
-Bonnie H. Cordon
-
 By Elder Dale G. Renlund - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2017 General Conference*
@@ -139,7 +137,3 @@ As His disciples, let us fully mirror His love and love one another so openly an
 
 [^33]: See [[John 10.11|John 10:11–15]][[John 10.12|]][[John 10.13|]][[John 10.14|]][[John 10.15|]].
 
-
-
-
-#Adversity #Forgiveness #Healing #Humility #Jesus_Christ #Love #Sin #Tolerance

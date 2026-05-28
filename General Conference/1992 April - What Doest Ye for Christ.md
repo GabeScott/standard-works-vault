@@ -1,7 +1,5 @@
 # What Doest Ye for Christ?
 
-Thomas S. Monson
-
 By Elder Sam K. Shimabukuro - *Of the Seventy*
 
 *Given in the April session of the 1992 General Conference*
@@ -39,4 +37,3 @@ That we may all achieve this through dedicated effort and steadfast faith in Him
 
 
 
-#Jesus_Christ #Obedience #Service

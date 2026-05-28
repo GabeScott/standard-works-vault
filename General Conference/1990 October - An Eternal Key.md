@@ -1,7 +1,5 @@
 # An Eternal Key
 
-Gordon B. Hinckley
-
 By Elder Durrel A. Woolsey - *Of the Seventy*
 
 *Given in the October session of the 1990 General Conference*
@@ -49,4 +47,3 @@ May God bless all fathers to righteously obtain and maintain this patriarchal ke
 
 
 
-#Family #Obedience #Priesthood

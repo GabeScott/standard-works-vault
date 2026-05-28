@@ -1,7 +1,5 @@
 # “Look to God and Live”
 
-Gordon B. Hinckley
-
 By Elder Jeffrey R. Holland - *Of the Seventy*
 
 *Given in the October session of the 1993 General Conference*
@@ -79,4 +77,3 @@ In the name of Jesus Christ, amen.
 
 
 
-#Faith #Jesus_Christ #Love #Testimony

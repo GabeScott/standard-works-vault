@@ -1,7 +1,5 @@
 # Work and Welfare: A Historical Perspective
 
-Spencer W. Kimball
-
 By President Marion G. Romney - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 1982 General Conference*
@@ -87,4 +85,3 @@ God bless us all with a keen understanding of the foundation upon which all thes
 
 
 
-#Welfare #Work

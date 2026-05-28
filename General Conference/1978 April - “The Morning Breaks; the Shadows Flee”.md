@@ -1,7 +1,5 @@
 # “The Morning Breaks; the Shadows Flee”
 
-Spencer W. Kimball
-
 By Elder Bruce R. McConkie - *Of the Council of the Twelve*
 
 *Given in the April session of the 1978 General Conference*
@@ -77,4 +75,3 @@ In the name of Jesus Christ, amen.
 
 
 
-#Apostasy #Restoration

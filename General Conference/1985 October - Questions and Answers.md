@@ -1,7 +1,5 @@
 # Questions and Answers
 
-Gordon B. Hinckley
-
 By President Gordon B. Hinckley - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 1985 General Conference*
@@ -117,4 +115,3 @@ I leave you my testimony. This is the work of the Almighty. This is the work of 
 
 
 
-#Abuse #Church_Growth #Church_Leaders #Church_Organization #Gambling #Parenthood #Peace #Spirituality

@@ -1,7 +1,5 @@
 # But Watchman, What of the Night?
 
-Spencer W. Kimball
-
 By Bishop Vaughn J. Featherstone - *Second Counselor in the Presiding Bishopric*
 
 *Given in the October session of the 1975 General Conference*
@@ -101,4 +99,3 @@ The United States of America is the golden door. I bear my solemn and sacred wit
 
 
 
-#Freedom #Patriotism

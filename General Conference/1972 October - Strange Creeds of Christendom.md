@@ -1,7 +1,5 @@
 # Strange Creeds of Christendom
 
-N. Eldon Tanner
-
 By Elder LeGrand Richards - *Of the Council of the Twelve*
 
 *Given in the October session of the 1972 General Conference*
@@ -97,4 +95,3 @@ Since all of you Latter-day Saints have been asked to be missionaries, and the L
 
 
 
-#Authority #Jesus_Christ #Plan_Of_Salvation

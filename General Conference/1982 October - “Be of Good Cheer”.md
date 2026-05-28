@@ -1,7 +1,5 @@
 # “Be of Good Cheer”
 
-Spencer W. Kimball
-
 By Elder Neal A. Maxwell - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1982 General Conference*
@@ -95,4 +93,3 @@ In the name of Him who waits “with open arms to receive” us—Jesus Christ, 
 
 
 
-#Faith #Hope #Last_Days

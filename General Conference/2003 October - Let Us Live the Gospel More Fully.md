@@ -1,7 +1,5 @@
 # Let Us Live the Gospel More Fully
 
-Gordon B. Hinckley
-
 By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the October session of the 2003 General Conference*
@@ -43,7 +41,3 @@ As we return to our homes, I pray that in our hearts there will be a resolution 
 
 [^1]: See Gordon B. Hinckley, *Faith: The Essence of True Religion* (1989), 93.
 
-
-
-
-#Kindness #Love #Respect #Testimony

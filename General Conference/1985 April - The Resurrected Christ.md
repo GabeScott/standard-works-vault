@@ -1,7 +1,5 @@
 # The Resurrected Christ
 
-Gordon B. Hinckley
-
 By Elder David B. Haight - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1985 General Conference*
@@ -107,4 +105,3 @@ Now, these fragmentary events which I have briefly portrayed bear record and wit
 
 
 
-#Jesus_Christ #Resurrection

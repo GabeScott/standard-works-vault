@@ -1,7 +1,5 @@
 # “Ponder the Path of Thy Feet”
 
-Gordon B. Hinckley
-
 By Elaine L. Jack - *Relief Society General President*
 
 *Given in the October session of the 1993 General Conference*
@@ -91,4 +89,3 @@ I ask that each of you take to heart these messages and know that they come from
 
 
 
-#Commitment #Covenants #Spirituality

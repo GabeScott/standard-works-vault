@@ -1,7 +1,5 @@
 # Who’s on the Lord’s Side? Who?
 
-Gordon B. Hinckley
-
 By Elder Robert C. Oaks - *Of the Presidency of the Seventy*
 
 *Given in the April session of the 2005 General Conference*
@@ -83,4 +81,3 @@ Brethren, this is His work. The gospel of Jesus Christ has been restored in its 
 
 
 
-#Covenants #Morality #Obedience #Priesthood

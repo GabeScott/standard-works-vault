@@ -1,7 +1,5 @@
 # That Your Burdens May Be Light
 
-Thomas S. Monson
-
 By Elder L. Whitney Clayton - *Of the Presidency of the Seventy*
 
 *Given in the October session of the 2009 General Conference*
@@ -109,7 +107,3 @@ I remember that man in Peru, hunched over and struggling to carry that enormous 
 
 [^22]: See [[Mosiah 4.3|Mosiah 4:3]]; [[Alma 36.19|Alma 36:19–21]][[Alma 36.20|]][[Alma 36.21|]].
 
-
-
-
-#Adversity #Atonement #Repentance #Sin

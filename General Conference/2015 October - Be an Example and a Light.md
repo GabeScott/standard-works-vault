@@ -1,7 +1,5 @@
 # Be an Example and a Light
 
-Rosemary M. Wixom
-
 By President Thomas S. Monson - *President of the Church*
 
 *Given in the October session of the 2015 General Conference*
@@ -91,7 +89,3 @@ How reassuring are the Savior’s words: “I am the light of the world: he that
 
 [^10]: [[D&C 6.21|Doctrine and Covenants 6:21]].
 
-
-
-
-#Charity #Example #Faith #Jesus_Christ #Morality #Profanity #Scriptures

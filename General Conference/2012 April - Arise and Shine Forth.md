@@ -1,7 +1,5 @@
 # Arise and Shine Forth
 
-Thomas S. Monson
-
 By Ann M. Dibb - *Second Counselor in the Young Women General Presidency*
 
 *Given in the April session of the 2012 General Conference*
@@ -81,7 +79,3 @@ Dear young women, each of you has been born with great potential. You are belove
 
 [^15]: Personal correspondence to author, 2012.
 
-
-
-
-#Courage #Example #Obedience #Standards

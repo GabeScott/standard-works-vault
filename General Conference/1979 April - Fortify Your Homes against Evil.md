@@ -1,7 +1,5 @@
 # Fortify Your Homes against Evil
 
-Spencer W. Kimball
-
 By President Spencer W. Kimball - *President of the Church*
 
 *Given in the April session of the 1979 General Conference*
@@ -113,4 +111,3 @@ May the Lord bless us all in our homes and families as we strive to draw nearer 
 
 
 
-#Home #Obedience #Teaching

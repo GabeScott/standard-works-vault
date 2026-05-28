@@ -1,7 +1,5 @@
 # Therefore They Hushed Their Fears
 
-Cheryl A. Esplin
-
 By Elder David A. Bednar - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2015 General Conference*
@@ -113,4 +111,3 @@ I love and revere the Lord. His power and peace are real. He is our Redeemer, an
 
 
 
-#Covenants #Faith #Fear #Jesus_Christ #Judging #Ordinances

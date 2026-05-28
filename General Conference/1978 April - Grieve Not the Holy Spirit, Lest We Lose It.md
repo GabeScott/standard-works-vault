@@ -1,7 +1,5 @@
 # Grieve Not the Holy Spirit, Lest We Lose It
 
-Spencer W. Kimball
-
 By Elder James A. Cullimore - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1978 General Conference*
@@ -92,4 +90,3 @@ May I leave with you my witness, my brothers and sisters, of the truth of this g
 
 
 
-#Holy_Ghost #Spirituality

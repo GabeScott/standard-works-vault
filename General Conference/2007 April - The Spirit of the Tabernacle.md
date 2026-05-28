@@ -1,7 +1,5 @@
 # The Spirit of the Tabernacle
 
-Thomas S. Monson
-
 By President Boyd K. Packer - *Acting President of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2007 General Conference*
@@ -139,4 +137,3 @@ I add my testimony that Jesus is the Christ, that this is His house, on this sac
 
 
 
-#Holy_Ghost #Music #Spirituality #Temple_Square

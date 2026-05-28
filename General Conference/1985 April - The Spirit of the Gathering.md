@@ -1,7 +1,5 @@
 # The Spirit of the Gathering
 
-Gordon B. Hinckley
-
 By Elder William Grant Bangerter - *Of the Presidency of the First Quorum of the Seventy*
 
 *Given in the April session of the 1985 General Conference*
@@ -115,4 +113,3 @@ May we lift our souls this beautiful Easter morning with the assurance that thro
 
 
 
-#Missionary_Work

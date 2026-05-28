@@ -1,7 +1,5 @@
 # “With God Nothing Shall Be Impossible”
 
-Ezra Taft Benson
-
 By Elder Russell M. Nelson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1988 General Conference*
@@ -97,4 +95,3 @@ The great latter-day work of which we are a part shall be accomplished. Propheci
 
 
 
-#Adversity #Faith

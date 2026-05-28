@@ -1,7 +1,5 @@
 # The Family of the Prophet Joseph Smith
 
-Gordon B. Hinckley
-
 By Elder M. Russell Ballard - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1991 General Conference*
@@ -79,4 +77,3 @@ I bear humble witness that Joseph Smith is one of the great, noble ones to come 
 
 
 
-#Family #Joseph_Smith #Prophets #Testimony

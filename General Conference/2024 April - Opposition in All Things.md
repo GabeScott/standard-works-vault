@@ -1,7 +1,5 @@
 # Opposition in All Things
 
-Dallin H. Oaks
-
 By Elder Mathias Held - *Of the Seventy*
 
 *Given in the April session of the 2024 General Conference*
@@ -101,7 +99,3 @@ Let us always be mindful of our Heavenly Father’s wonderful plan for us. He lo
 
 [^15]: See Russell M. Nelson, “[[2023 October - Think Celestial!.md|Think Celestial!]],” *Liahona*, Nov. 2023, 117–20.
 
-
-
-
-#Adversity #Agency #Joy #Opposition #Plan_Of_Salvation

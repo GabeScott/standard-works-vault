@@ -1,7 +1,5 @@
 # “Is Not This the Fast That I Have Chosen?”
 
-Cheryl A. Esplin
-
 By President Henry B. Eyring - *First Counselor in the First Presidency*
 
 *Given in the April session of the 2015 General Conference*
@@ -155,7 +153,3 @@ lds.org/media-library
 
 [^13]: [[Isaiah 58.8|Isaiah 58:8–9]][[Isaiah 58.9|]].
 
-
-
-
-#Blessings #Fasting #Service #Tithing

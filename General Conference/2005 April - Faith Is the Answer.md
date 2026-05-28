@@ -1,7 +1,5 @@
 # Faith Is the Answer
 
-Gordon B. Hinckley
-
 By Elder David E. Sorensen - *Of the Presidency of the Seventy*
 
 *Given in the April session of the 2005 General Conference*
@@ -77,7 +75,3 @@ Jesus is the Christ. Joseph Smith is the prophet of the Restoration. President G
 
 [^7]: [[Moses 6.36|Moses 6:36]].
 
-
-
-
-#Adversity #Faith #Obedience #Peace #Trust

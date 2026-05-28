@@ -1,7 +1,5 @@
 # “To Bear Testimony of Mine Only Begotten”
 
-Gordon B. Hinckley
-
 By Elder L. Aldin Porter - *Of the Presidency of the Seventy*
 
 *Given in the April session of the 2001 General Conference*
@@ -99,4 +97,3 @@ In the name of Jesus Christ, amen.
 
 
 
-#Evil #Jesus_Christ #Media #Peace #Prayer #Resurrection #Scripture_Study #Testimony #Violence

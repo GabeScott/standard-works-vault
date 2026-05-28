@@ -1,7 +1,5 @@
 # After the Fourth Day
 
-Gary E. Stevenson
-
 By Elder W. Mark Bassett - *Of the Seventy*
 
 *Given in the April session of the 2023 General Conference*
@@ -135,7 +133,3 @@ This is my witness and testimony, in the sacred name of Him who will always come
 
 [^29]: [[D&C 68.6|Doctrine and Covenants 68:6]].
 
-
-
-
-#Adversity #Covenants #Death #Faith #Hope #Jesus_Christ #Miracles #Obedience

@@ -1,7 +1,5 @@
 # Out of the Darkness
 
-Joseph Fielding Smith
-
 By President Joseph Fielding Smith - *President of the Church*
 
 *Given in the April session of the 1971 General Conference*
@@ -61,4 +59,3 @@ I say this in the name of the Lord Jesus Christ. Amen.
 
 
 
-#Atonement #Church_Doctrine #Plan_Of_Salvation #Restoration

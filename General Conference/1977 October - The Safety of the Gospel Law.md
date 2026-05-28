@@ -1,7 +1,5 @@
 # The Safety of the Gospel Law
 
-Spencer W. Kimball
-
 By Elder William R. Bradford - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1977 General Conference*
@@ -98,4 +96,3 @@ May God bless you in your thoughts and actions, that they may ever be in tune wi
 
 
 
-#Laws #Obedience

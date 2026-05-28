@@ -1,7 +1,5 @@
 # Teach the Children
 
-Thomas S. Monson
-
 By Elder M. Russell Ballard - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1991 General Conference*
@@ -75,4 +73,3 @@ I know that we are all spirit children of a loving Heavenly Father, brothers and
 
 
 
-#Family #Teaching

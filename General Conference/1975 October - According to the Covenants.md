@@ -1,7 +1,5 @@
 # According to the Covenants
 
-Spencer W. Kimball
-
 By President Marion G. Romney - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 1975 General Conference*
@@ -127,4 +125,3 @@ God help us to live the covenants ourselves and to teach those the Lord has put 
 
 
 
-#Conversion #Covenants #Priesthood

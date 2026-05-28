@@ -1,7 +1,5 @@
 # Ponder the Path of Thy Feet
 
-Thomas S. Monson
-
 By President Thomas S. Monson - *President of the Church*
 
 *Given in the October session of the 2014 General Conference*
@@ -105,7 +103,3 @@ We read in Proverbs the admonition, “Ponder the path of thy feet.”[^19] As w
 
 [^19]: [[Proverbs 4.26|Proverbs 4:26]].
 
-
-
-
-#Agency #Example #Jesus_Christ #Obedience #Plan_Of_Salvation #Prayer

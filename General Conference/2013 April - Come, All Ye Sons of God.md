@@ -1,7 +1,5 @@
 # Come, All Ye Sons of God
 
-Thomas S. Monson
-
 By President Thomas S. Monson - *President of the Church*
 
 *Given in the April session of the 2013 General Conference*
@@ -123,7 +121,3 @@ I pray that we may ever respond to His gentle invitation, “Follow thou me.”[
 
 [^8]: [[John 21.22|John 21:22]].
 
-
-
-
-#Love #Missionary_Work #Preparation #Scripture_Study

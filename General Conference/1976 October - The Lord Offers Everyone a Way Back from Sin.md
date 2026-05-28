@@ -1,7 +1,5 @@
 # The Lord Offers Everyone a Way Back from Sin
 
-Spencer W. Kimball
-
 By Elder Robert D. Hales - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1976 General Conference*
@@ -98,4 +96,3 @@ May our Heavenly Father bless us to dedicate our lives today. There is no better
 
 
 
-#Repentance

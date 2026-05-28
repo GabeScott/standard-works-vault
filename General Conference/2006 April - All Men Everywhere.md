@@ -1,7 +1,5 @@
 # All Men Everywhere
 
-Robert D. Hales
-
 By Elder Dallin H. Oaks - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2006 General Conference*
@@ -70,7 +68,7 @@ The Bible tells us how God made a covenant with Abraham and promised him that th
 
 The Bible teaches that some of Abraham’s descendants would be scattered “into all the kingdoms of the earth,” “among all nations,” and from “one end of the earth even unto the other” ([[Deuteronomy 28.25|Deuteronomy 28:25, 37, 64]][[Deuteronomy 28.37|]][[Deuteronomy 28.64|]]). The Book of Mormon affirms this teaching, declaring that the descendants of Abraham would be “scattered upon all the face of the earth, and … among all nations” ([[1 Nephi 22.3|1 Nephi 22:3]]).
 
-The Book of Mormon adds to our knowledge of how our Savior’s earthly ministry reached out to all of His scattered flock. In addition to His ministry in what we now call the Middle East, the Book of Mormon records His appearance and teachings to the Nephites on the American continent (see [[3 Nephi 11.1|3 Nephi 11–28]]). There He repeated that the Father had commanded Him to visit the other sheep which were not of the land of Jerusalem (see [[3 Nephi 16.1|3 Nephi 16:1]]; [[John 10.16|John 10:16]]). He also said that he would visit others “who \[had\] not as yet heard \[His\] voice” (see [[3 Nephi 16.2|3 Nephi 16:2–3]][[3 Nephi 16.3|]]). As prophesied centuries earlier (see [[2 Nephi 29.12|2 Nephi 29:12]]), the Savior told His followers in the Americas that He was going “to show \[Himself\]” to these “lost tribes of Israel, for they are not lost unto the Father, for he knoweth whither he hath taken them” ([[3 Nephi 17.4|3 Nephi 17:4]]).
+The Book of Mormon adds to our knowledge of how our Savior’s earthly ministry reached out to all of His scattered flock. In addition to His ministry in what we now call the Middle East, the Book of Mormon records His appearance and teachings to the Nephites on the American continent (see [[3 Nephi 11.1|3 Nephi 11–28]][[3 Nephi 11.2|]][[3 Nephi 11.3|]][[3 Nephi 11.4|]][[3 Nephi 11.5|]][[3 Nephi 11.6|]][[3 Nephi 11.7|]][[3 Nephi 11.8|]][[3 Nephi 11.9|]][[3 Nephi 11.10|]][[3 Nephi 11.11|]][[3 Nephi 11.12|]][[3 Nephi 11.13|]][[3 Nephi 11.14|]][[3 Nephi 11.15|]][[3 Nephi 11.16|]][[3 Nephi 11.17|]][[3 Nephi 11.18|]][[3 Nephi 11.19|]][[3 Nephi 11.20|]][[3 Nephi 11.21|]][[3 Nephi 11.22|]][[3 Nephi 11.23|]][[3 Nephi 11.24|]][[3 Nephi 11.25|]][[3 Nephi 11.26|]][[3 Nephi 11.27|]][[3 Nephi 11.28|]][[3 Nephi 11.29|]][[3 Nephi 11.30|]][[3 Nephi 11.31|]][[3 Nephi 11.32|]][[3 Nephi 11.33|]][[3 Nephi 11.34|]][[3 Nephi 11.35|]][[3 Nephi 11.36|]][[3 Nephi 11.37|]][[3 Nephi 11.38|]][[3 Nephi 11.39|]][[3 Nephi 11.40|]][[3 Nephi 11.41|]]). There He repeated that the Father had commanded Him to visit the other sheep which were not of the land of Jerusalem (see [[3 Nephi 16.1|3 Nephi 16:1]]; [[John 10.16|John 10:16]]). He also said that he would visit others “who \[had\] not as yet heard \[His\] voice” (see [[3 Nephi 16.2|3 Nephi 16:2–3]][[3 Nephi 16.3|]]). As prophesied centuries earlier (see [[2 Nephi 29.12|2 Nephi 29:12]]), the Savior told His followers in the Americas that He was going “to show \[Himself\]” to these “lost tribes of Israel, for they are not lost unto the Father, for he knoweth whither he hath taken them” ([[3 Nephi 17.4|3 Nephi 17:4]]).
 
 The Book of Mormon is a great witness that the Lord loves all people everywhere. It declares that “he shall manifest himself unto all nations” ([[1 Nephi 13.42|1 Nephi 13:42]]). “Know ye not that there are more nations than one?” the Lord said through the prophet Nephi.
 
@@ -107,7 +105,3 @@ We live in the day foretold when righteousness is sent down out of heaven and tr
 
 [^3]: Examples from Nigeria, Thailand, Cambodia, and Mongolia as related by mission presidents who have served in those countries.
 
-
-
-
-#Book_Of_Mormon #Conversion #Jesus_Christ

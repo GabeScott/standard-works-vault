@@ -1,7 +1,5 @@
 # The Abundant Life
 
-Robert D. Hales
-
 By Elder Joseph B. Wirthlin - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2006 General Conference*
@@ -173,7 +171,3 @@ That we may do so is my humble prayer in the name of Jesus Christ, amen.
 
 [^12]: Albert Camus, in John Bartlett, comp., *Familiar Quotations,* 16th ed. (1980), 732.
 
-
-
-
-#Individual_Worth #Joy #Kindness #Love

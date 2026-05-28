@@ -1,7 +1,5 @@
 # Wherefore, Settle This in Your Hearts
 
-Gordon B. Hinckley
-
 By Elder Larry W. Gibbons - *Of the Seventy*
 
 *Given in the October session of the 2006 General Conference*
@@ -97,7 +95,3 @@ I know that President Gordon B. Hinckley is the Lord’s prophet today. I am gra
 
 [^11]: See [[Alma 41.10|Alma 41:10]].
 
-
-
-
-#Commandments #Commitment #Morality #Standards

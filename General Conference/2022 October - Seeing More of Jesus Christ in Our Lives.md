@@ -1,7 +1,5 @@
 # Seeing More of Jesus Christ in Our Lives
 
-Dallin H. Oaks
-
 By Sister Tracy Y. Browning - *Second Counselor in the Primary General Presidency*
 
 *Given in the October session of the 2022 General Conference*
@@ -85,7 +83,3 @@ I learned then, as I know now, that our Savior, Jesus Christ, directs our feet t
 
 [^21]: See [[Jeremiah 29.13|Jeremiah 29:13]].
 
-
-
-
-#Commandments #Discipleship #Jesus_Christ #Testimony

@@ -1,7 +1,5 @@
 # The Answers Will Come
 
-Gordon B. Hinckley
-
 By Elder Hans B. Ringger - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1985 General Conference*
@@ -19,4 +17,3 @@ I am very thankful for my priesthood leaders, my parents, my sisters, my brethre
 
 
 
-#Service

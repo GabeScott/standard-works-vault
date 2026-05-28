@@ -1,7 +1,5 @@
 # The Lord’s Touchstone
 
-Ezra Taft Benson
-
 By President Howard W. Hunter - *Acting President of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1986 General Conference*
@@ -71,4 +69,3 @@ May the Lord bless us in our quest to be true disciples and good neighbors. I pr
 
 
 
-#Discipleship #Love

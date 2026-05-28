@@ -1,7 +1,5 @@
 # The Fruits of the First Vision
 
-Gordon B. Hinckley
-
 By Elder Dieter F. Uchtdorf - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2005 General Conference*
@@ -67,4 +65,3 @@ I so testify in the name of Jesus Christ, amen.
 
 
 
-#Church_History #Holy_Ghost #Joseph_Smith #Testimony

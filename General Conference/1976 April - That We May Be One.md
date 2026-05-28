@@ -1,7 +1,5 @@
 # That We May Be One
 
-Spencer W. Kimball
-
 By Elder Howard W. Hunter - *Of the Council of the Twelve*
 
 *Given in the April session of the 1976 General Conference*
@@ -65,4 +63,3 @@ This has been a glorious conference. There has been a good spirit, and because w
 
 
 
-#Church_Leaders #Unity

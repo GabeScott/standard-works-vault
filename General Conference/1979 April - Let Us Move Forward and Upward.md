@@ -1,7 +1,5 @@
 # Let Us Move Forward and Upward
 
-Spencer W. Kimball
-
 By President Spencer W. Kimball - *President of the Church*
 
 *Given in the April session of the 1979 General Conference*
@@ -123,4 +121,3 @@ We ask our Heavenly Father to give you power to extend your blessings to the peo
 
 
 
-#Missionary_Work

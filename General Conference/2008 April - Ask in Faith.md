@@ -1,7 +1,5 @@
 # Ask in Faith
 
-Dieter F. Uchtdorf
-
 By Elder David A. Bednar - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2008 General Conference*
@@ -95,4 +93,3 @@ I witness the reality and divinity of our Eternal Father, of His Only Begotten S
 
 
 
-#Faith #Obedience #Prayer

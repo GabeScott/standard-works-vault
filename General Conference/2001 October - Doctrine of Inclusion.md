@@ -1,7 +1,5 @@
 # Doctrine of Inclusion
 
-Gordon B. Hinckley
-
 By Elder M. Russell Ballard - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2001 General Conference*
@@ -87,4 +85,3 @@ That is what Jesus taught His disciples, including “a certain lawyer,” throu
 
 
 
-#Adversity #Church_History #Friendship #God_The_Father #Kindness #Love #Neighbors #Nonmembers #Religious_Freedom #Respect #Service #Tolerance #Unity

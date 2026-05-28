@@ -1,7 +1,5 @@
 # “Of You It Is Required to Forgive”
 
-Spencer W. Kimball
-
 By Elder Gordon B. Hinckley - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1980 General Conference*
@@ -77,4 +75,3 @@ My brothers and sisters, as we conclude this great season of jubilee, let us bin
 
 
 
-#Forgiveness

@@ -1,7 +1,5 @@
 # Evidences of the Resurrection
 
-Ezra Taft Benson
-
 By Elder Howard W. Hunter - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1983 General Conference*
@@ -81,4 +79,3 @@ That we may be found worthy at his coming is my prayer in his name, amen.
 
 
 
-#Atonement #Jesus_Christ #Resurrection

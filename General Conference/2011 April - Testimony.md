@@ -1,7 +1,5 @@
 # Testimony
 
-Thomas S. Monson
-
 By Elder Cecil O. Samuelson Jr. - *Of the Seventy*
 
 *Given in the April session of the 2011 General Conference*
@@ -38,7 +36,7 @@ Third, we need to remember that a fundamental purpose of life is to be tested an
 
 Fourth, we must learn to trust the things that we believe in or know to sustain us in times of uncertainty or with issues where we struggle.
 
-Fifth, as Alma taught, gaining a testimony is usually a progression along the continuum of hoping, believing, and finally knowing the truth of a specific principle, doctrine, or the gospel itself (see [[Alma 32.1|Alma 32]]).
+Fifth, as Alma taught, gaining a testimony is usually a progression along the continuum of hoping, believing, and finally knowing the truth of a specific principle, doctrine, or the gospel itself (see [[Alma 32.1|Alma 32]][[Alma 32.2|]][[Alma 32.3|]][[Alma 32.4|]][[Alma 32.5|]][[Alma 32.6|]][[Alma 32.7|]][[Alma 32.8|]][[Alma 32.9|]][[Alma 32.10|]][[Alma 32.11|]][[Alma 32.12|]][[Alma 32.13|]][[Alma 32.14|]][[Alma 32.15|]][[Alma 32.16|]][[Alma 32.17|]][[Alma 32.18|]][[Alma 32.19|]][[Alma 32.20|]][[Alma 32.21|]][[Alma 32.22|]][[Alma 32.23|]][[Alma 32.24|]][[Alma 32.25|]][[Alma 32.26|]][[Alma 32.27|]][[Alma 32.28|]][[Alma 32.29|]][[Alma 32.30|]][[Alma 32.31|]][[Alma 32.32|]][[Alma 32.33|]][[Alma 32.34|]][[Alma 32.35|]][[Alma 32.36|]][[Alma 32.37|]][[Alma 32.38|]][[Alma 32.39|]][[Alma 32.40|]][[Alma 32.41|]][[Alma 32.42|]][[Alma 32.43|]]).
 
 Sixth, teaching someone else what we know strengthens our own testimony as we build that of another. When you give someone money or food, you will have less. However, when you share your testimony, it strengthens and increases for both the bearer and the hearer.
 
@@ -67,4 +65,3 @@ I know God our Heavenly Father lives and loves us. I know His uniquely special S
 
 
 
-#Atonement #Obedience #Repentance #Testimony #Trust #Youth

@@ -1,7 +1,5 @@
 # The Race of Life
 
-Thomas S. Monson
-
 By President Thomas S. Monson - *President of the Church*
 
 *Given in the April session of the 2012 General Conference*
@@ -140,7 +138,3 @@ In one week we will celebrate Easter. Our thoughts will turn to the Savior’s l
 
 [^15]: [[1 Corinthians 15.40|1 Corinthians 15:40]].
 
-
-
-
-#Death #Jesus_Christ #Plan_Of_Salvation #Priorities #Resurrection

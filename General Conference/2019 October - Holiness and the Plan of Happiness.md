@@ -1,7 +1,5 @@
 # Holiness and the Plan of Happiness
 
-Jeffrey R. Holland
-
 By President Henry B. Eyring - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 2019 General Conference*
@@ -155,7 +153,3 @@ I testify that Joseph Smith was a prophet of God, that President Russell M. Nels
 
 [^17]: “More Holiness Give Me,” *Hymns,* no. 131.
 
-
-
-
-#Adversity #Atonement #Holiness #Jesus_Christ #Joy #Plan_Of_Salvation #Repentance

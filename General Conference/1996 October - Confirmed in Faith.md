@@ -1,7 +1,5 @@
 # Confirmed in Faith
 
-Gordon B. Hinckley
-
 By Aileen H. Clyde - *Second Counselor in the Relief Society General Presidency*
 
 *Given in the October session of the 1996 General Conference*
@@ -53,4 +51,3 @@ I testify that we belong to God as He is our creator. His Son’s Atonement vouc
 
 
 
-#Adversity #Covenants #Faith #Jesus_Christ #Love #Relief_Society #Women

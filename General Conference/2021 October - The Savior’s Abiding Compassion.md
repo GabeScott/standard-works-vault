@@ -1,7 +1,5 @@
 # The Savior’s Abiding Compassion
 
-Russell M. Nelson
-
 By Elder Ulisses Soares - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2021 General Conference*
@@ -89,7 +87,3 @@ I pray that we will become more long-suffering and understanding of others and t
 
 [^19]: See Guide to the Scriptures, “[Peacemaker](https://www.churchofjesuschrist.org/study/scriptures/gs/peacemaker?lang=eng).”
 
-
-
-
-#Compassion #Jesus_Christ #Judging #Mercy

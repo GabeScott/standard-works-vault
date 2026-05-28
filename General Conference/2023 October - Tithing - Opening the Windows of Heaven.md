@@ -1,7 +1,5 @@
 # Tithing: Opening the Windows of Heaven
 
-David A. Bednar
-
 By Elder Neil L. Andersen - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2023 General Conference*
@@ -119,7 +117,7 @@ This is my witness. Jesus is the Christ. This is His holy work. He will come aga
 
 [^9]: [[Matthew 22.21|Matthew 22:21]].
 
-[^10]: See [[3 Nephi 24.1|3 Nephi 24]].
+[^10]: See [[3 Nephi 24.1|3 Nephi 24]][[3 Nephi 24.2|]][[3 Nephi 24.3|]][[3 Nephi 24.4|]][[3 Nephi 24.5|]][[3 Nephi 24.6|]][[3 Nephi 24.7|]][[3 Nephi 24.8|]][[3 Nephi 24.9|]][[3 Nephi 24.10|]][[3 Nephi 24.11|]][[3 Nephi 24.12|]][[3 Nephi 24.13|]][[3 Nephi 24.14|]][[3 Nephi 24.15|]][[3 Nephi 24.16|]][[3 Nephi 24.17|]][[3 Nephi 24.18|]].
 
 [^11]: [[D&C 119.3|Doctrine and Covenants 119:3–4]][[D&C 119.4|]]. “Tithing is the donation of one-tenth of one’s income to God’s Church (see [[D&C 119.3|Doctrine and Covenants 119:3–4]][[D&C 119.4|]]; *interest* is understood to mean income). All members who have income should pay tithing” (*General Handbook: Serving in The Church of Jesus Christ of Latter-day Saints*, [34.3.1](https://www.churchofjesuschrist.org/study/manual/general-handbook/34-finances-and-audits?lang=eng&id=title7#title7), Gospel Library).
 
@@ -157,7 +155,3 @@ This is my witness. Jesus is the Christ. This is His holy work. He will come aga
 
 [^28]: Russell M. Nelson, “[[2022 October - Overcome the World and Find Rest.md|Overcome the World and Find Rest]],” *Liahona*, Nov. 2022, 95.
 
-
-
-
-#Faith #Humanitarian_Aid #Tithing

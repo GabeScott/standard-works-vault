@@ -1,7 +1,5 @@
 # “But the Labourers Are Few”
 
-Thomas S. Monson
-
 By Elder L. Tom Perry - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1992 General Conference*
@@ -87,4 +85,3 @@ That this is His work in which we are engaged is my solemn witness to you in the
 
 
 
-#Missionary_Work #Service

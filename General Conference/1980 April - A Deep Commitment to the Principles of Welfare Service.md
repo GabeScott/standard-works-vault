@@ -1,7 +1,5 @@
 # A Deep Commitment to the Principles of Welfare Service
 
-Spencer W. Kimball
-
 By President Spencer W. Kimball - *President of the Church*
 
 *Given in the April session of the 1980 General Conference*
@@ -23,4 +21,3 @@ Brothers and sisters, I know the gospel is true. It contains the answers to all 
 
 
 
-#Welfare

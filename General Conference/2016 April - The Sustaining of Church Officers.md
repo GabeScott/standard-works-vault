@@ -1,7 +1,5 @@
 # The Sustaining of Church Officers
 
-Cheryl A. Esplin
-
 By Presented by President Dieter F. Uchtdorf - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 2016 General Conference*

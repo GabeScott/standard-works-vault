@@ -1,7 +1,5 @@
 # They Didn’t Give Up
 
-Spencer W. Kimball
-
 By Elder F. Enzio Busche - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1977 General Conference*
@@ -23,4 +21,3 @@ And now this call. It is beyond understanding for a human being. I need all your
 
 
 
-#Testimony

@@ -1,7 +1,5 @@
 # “Strengthen Thy Brethren”
 
-Joseph Fielding Smith
-
 By Bishop Robert L. Simpson - *Of the Presiding Bishopric*
 
 *Given in the October session of the 1971 General Conference*
@@ -85,4 +83,3 @@ Are you converted? You most certainly are, whether you recognize it or not, and 
 
 
 
-#Love #Priesthood

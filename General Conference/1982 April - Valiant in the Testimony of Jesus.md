@@ -1,7 +1,5 @@
 # Valiant in the Testimony of Jesus
 
-Spencer W. Kimball
-
 By President Ezra Taft Benson - *President of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1982 General Conference*
@@ -83,4 +81,3 @@ I bear testimony that this is the Church of Jesus Christ. He presides over it an
 
 
 
-#Faith #Obedience

@@ -1,7 +1,5 @@
 # The Things of God and Man
 
-Spencer W. Kimball
-
 By Elder LeGrand Richards - *Of the Council of the Twelve*
 
 *Given in the October session of the 1977 General Conference*
@@ -93,4 +91,3 @@ Now there are many other differences, as we know, and as we study, so that we un
 
 
 
-#Prophecy #Spirituality

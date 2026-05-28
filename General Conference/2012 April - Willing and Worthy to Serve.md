@@ -1,7 +1,5 @@
 # Willing and Worthy to Serve
 
-Thomas S. Monson
-
 By President Thomas S. Monson - *President of the Church*
 
 *Given in the April session of the 2012 General Conference*
@@ -111,7 +109,3 @@ Let us learn and contemplate our duty. Let us be willing and worthy to serve. Le
 
 [^16]: [[Moses 4.2|Moses 4:2]].
 
-
-
-
-#Duty #Priesthood #Service

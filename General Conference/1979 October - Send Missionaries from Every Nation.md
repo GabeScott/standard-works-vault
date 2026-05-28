@@ -1,7 +1,5 @@
 # Send Missionaries from Every Nation
 
-Spencer W. Kimball
-
 By Elder Yoshihiko Kikuchi - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1979 General Conference*
@@ -51,4 +49,3 @@ I know that Joseph Smith was a prophet of God and that the Book of Mormon contai
 
 
 
-#Miracles #Missionary_Work

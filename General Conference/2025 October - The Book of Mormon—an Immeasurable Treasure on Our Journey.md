@@ -1,7 +1,5 @@
 # The Book of Mormon—an Immeasurable Treasure on Our Journey
 
-Dallin H. Oaks
-
 By Elder Ozani Farias - *Of the Seventy*
 
 *Given in the October session of the 2025 General Conference*
@@ -71,7 +69,3 @@ My beloved brothers and sisters, I encourage each of you to deepen your study of
 
 [^1]: Russell M. Nelson, “Sacrament Meeting” (address given at the seminar for new mission leaders, June 23, 2025).
 
-
-
-
-#Book_Of_Mormon #Conversion #Missionary_Service #Scripture_Study #Testimony

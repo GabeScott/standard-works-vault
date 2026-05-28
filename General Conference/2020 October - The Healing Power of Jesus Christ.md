@@ -1,7 +1,5 @@
 # The Healing Power of Jesus Christ
 
-Russell M. Nelson
-
 By Cristina B. Franco - *Second Counselor in the Primary General Presidency*
 
 *Given in the October session of the 2020 General Conference*
@@ -91,7 +89,3 @@ I testify that Jesus Christ is our loving Savior, our Redeemer, the Master Heale
 
 [^4]: Tad R. Callister, *The Infinite Atonement* (2000), 206–7.
 
-
-
-
-#Atonement #Jesus_Christ

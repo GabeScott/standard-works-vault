@@ -1,7 +1,5 @@
 # “Brother’s Keeper”
 
-Ezra Taft Benson
-
 By Elder Dallin H. Oaks - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1986 General Conference*
@@ -91,4 +89,3 @@ May God bless us to live the Golden Rule in our earning activities. As we seek t
 
 
 
-#Commandments #Honesty #Word_Of_Wisdom

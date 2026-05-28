@@ -1,7 +1,5 @@
 # “Go, and Do Thou Likewise”
 
-Gordon B. Hinckley
-
 By Bishop H. David Burton - *Presiding Bishop*
 
 *Given in the April session of the 1997 General Conference*
@@ -75,4 +73,3 @@ May we be generous with our time and liberal in our contributions for the care o
 
 
 
-#Bishops #Fasting #Good_Samaritan #Jesus_Christ #Joy #Neighbors #Service #Welfare

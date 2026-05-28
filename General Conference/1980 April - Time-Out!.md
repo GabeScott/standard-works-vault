@@ -1,7 +1,5 @@
 # Time-Out!
 
-Spencer W. Kimball
-
 By Elder Paul H. Dunn - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1980 General Conference*
@@ -85,4 +83,3 @@ I learned on that occasion that people are really seeking and want what you and 
 
 
 
-#Prayer #Priesthood

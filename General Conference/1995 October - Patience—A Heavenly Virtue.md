@@ -1,7 +1,5 @@
 # Patience—A Heavenly Virtue
 
-Gordon B. Hinckley
-
 By President Thomas S. Monson - *First Counselor in the First Presidency*
 
 *Given in the October session of the 1995 General Conference*
@@ -133,7 +131,3 @@ In the name of Jesus Christ, amen.
 
 [^13]: “God of Our Fathers, Known of Old,” *Hymns,* 1985, no. 80.
 
-
-
-
-#Adversity #Example #Jesus_Christ #Patience #Resurrection #Scriptures #Service

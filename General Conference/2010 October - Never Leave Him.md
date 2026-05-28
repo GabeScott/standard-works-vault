@@ -1,7 +1,5 @@
 # Never Leave Him
 
-Thomas S. Monson
-
 By Elder Neil L. Andersen - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2010 General Conference*
@@ -202,7 +200,3 @@ I too have that witness. I so testify in the name of Jesus Christ, amen.
 
 [^40]: [[John 6.68|John 6:68–69]][[John 6.69|]].
 
-
-
-
-#Adversity #Jesus_Christ #Loyalty #Offense

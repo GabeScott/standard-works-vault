@@ -1,7 +1,5 @@
 # To All the World in Testimony
 
-Gordon B. Hinckley
-
 By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the April session of the 2000 General Conference*
@@ -65,4 +63,3 @@ And so to all who have made this sacred edifice possible, and to all of you who 
 
 
 
-#General_Conference #Spirituality #Temple_Square

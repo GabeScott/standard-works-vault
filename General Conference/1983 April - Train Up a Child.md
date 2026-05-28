@@ -1,7 +1,5 @@
 # Train Up a Child
 
-Ezra Taft Benson
-
 By Elder L. Tom Perry - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1983 General Conference*
@@ -97,4 +95,3 @@ We who have embraced the gospel of Jesus Christ ought to have the devotion and t
 
 
 
-#Family #Parenthood

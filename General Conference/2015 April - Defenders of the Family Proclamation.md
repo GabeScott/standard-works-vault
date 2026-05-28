@@ -1,7 +1,5 @@
 # Defenders of the Family Proclamation
 
-Cheryl A. Esplin
-
 By Bonnie L. Oscarson - *Young Women General President*
 
 *Given in the April session of the 2015 General Conference*
@@ -57,7 +55,3 @@ I bear witness that Heavenly Father lives and loves each of us. His Son, Jesus C
 
 [^3]: Thomas S. Monson, “[Behold Thy Mother](https://www.churchofjesuschrist.org/study/ensign/1974/01/behold-thy-mother?lang=eng),” *Ensign,* Jan. 1974, 32.
 
-
-
-
-#Courage #Family #Home #Marriage #Motherhood

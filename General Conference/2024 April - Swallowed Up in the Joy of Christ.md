@@ -1,7 +1,5 @@
 # Swallowed Up in the Joy of Christ
 
-Dallin H. Oaks
-
 By Elder Brian K. Taylor - *Of the Seventy*
 
 *Given in the April session of the 2024 General Conference*
@@ -191,7 +189,3 @@ With joyful reverence, I witness our Savior lives and “His promises are sure.�
 
 [^49]: [[Alma 31.38|Alma 31:38]]; see also [[Psalms 30.5|Psalm 30:5]]; [[John 15.10|John 15:10–11]][[John 15.11|]]; [[1 Thessalonians 1.6|1 Thessalonians 1:6]]; Joseph Smith Translation, James 1:2 (in [[James 1.2|James 1:2]], footnote *a*); [[2 Nephi 2.25|2 Nephi 2:25]]; [[2 Nephi 9.18|9:18]]; [[Alma 26.6|Alma 26:6–7, 11, 27, 37]][[Alma 26.7|]][[Alma 26.11|]][[Alma 26.27|]][[Alma 26.37|]]; [[Alma 28.8|28:8]]; [[Alma 33.23|33:23]]; [[Alma 36.20|36:20–21]][[Alma 36.21|]]; [[D&C 109.76|Doctrine and Covenants 109:76]]; [[Moses 5.10|Moses 5:10–11]][[Moses 5.11|]].
 
-
-
-
-#Adversity #Healing #Jesus_Christ #Joy #Miracles

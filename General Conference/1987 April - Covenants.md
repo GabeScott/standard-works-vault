@@ -1,7 +1,5 @@
 # Covenants
 
-Ezra Taft Benson
-
 By Elder Boyd K. Packer - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1987 General Conference*
@@ -129,4 +127,3 @@ God grant that we who have an opportunity to have part in it might seek that opp
 
 
 
-#Covenants #Faith #Family_History #Prayer #Temple_Work

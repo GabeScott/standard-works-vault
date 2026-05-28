@@ -1,7 +1,5 @@
 # A Self-Inflicted Purging
 
-Spencer W. Kimball
-
 By Bishop Vaughn J. Featherstone - *Second Counselor in the Presiding Bishopric*
 
 *Given in the April session of the 1975 General Conference*
@@ -83,4 +81,3 @@ Now, the Lord bless you. This is the greatest group of men collected on the face
 
 
 
-#Morality

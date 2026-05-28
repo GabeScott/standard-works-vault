@@ -1,7 +1,5 @@
 # The Spirit of Revelation
 
-Gordon B. Hinckley
-
 By President Boyd K. Packer - *Acting President of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1999 General Conference*
@@ -165,7 +163,3 @@ You look ahead to a long life, to the long, long future before this Church, befo
 
 [^9]: “The Church of Jesus Christ,” *Children’s Songbook,* 77.
 
-
-
-
-#Holy_Ghost #Music #Prayer #Repentance #Self-Control #Spirituality

@@ -1,7 +1,5 @@
 # Right Before Our Eyes
 
-Dallin H. Oaks
-
 By Elder Ronald A. Rasband - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2025 General Conference*
@@ -143,7 +141,3 @@ I emphasize again the words of our living prophet: “Do you see what is happeni
 
 [^37]: Russell M. Nelson, “[[2024 October - The Lord Jesus Christ Will Come Again.md|The Lord Jesus Christ Will Come Again]],” 121, emphasis added; see also [[D&C 88.73|Doctrine and Covenants 88:73]]: “Behold, I will hasten my work in its time.”
 
-
-
-
-#Balance #Church_Growth #Education #Jesus_Christ #Missionary_Service #Temples

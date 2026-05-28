@@ -1,7 +1,5 @@
 # “Born of Goodly Parents”
 
-Gordon B. Hinckley
-
 By Elder Dallas N. Archibald - *Of the Seventy*
 
 *Given in the October session of the 1992 General Conference*
@@ -53,4 +51,3 @@ In the holy name of Jesus Christ, amen.
 
 
 
-#Parenthood #Self-Esteem #Teaching

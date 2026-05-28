@@ -1,7 +1,5 @@
 # Our Sacred Priesthood Trust
 
-Robert D. Hales
-
 By President Thomas S. Monson - *First Counselor in the First Presidency*
 
 *Given in the April session of the 2006 General Conference*
@@ -143,7 +141,3 @@ May our Heavenly Father ever bless, ever inspire, and ever lead all who hold His
 
 [^10]: [[Ether 12.27|Ether 12:27]].
 
-
-
-
-#Example #Priesthood #Restoration

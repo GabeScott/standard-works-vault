@@ -1,7 +1,5 @@
 # Valiant in the Testimony of Jesus
 
-Jean B. Bingham
-
 By Elder Quentin L. Cook - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2016 General Conference*
@@ -64,9 +62,9 @@ In line with Heber C. Kimball’s prophecy, Elder Neal A. Maxwell said in 1982: 
 
 One of the unique and troubling aspects of our day is that many people engage in sinful conduct but refuse to consider it sinful. They have no remorse or willingness to acknowledge their conduct as being morally wrong. Even some who profess a belief in the Father and the Son wrongfully take the position that a loving Father in Heaven should exact no consequences for conduct that is contrary to His commandments.
 
-This was apparently the position taken by Corianton, the son of Alma the Younger in the Book of Mormon. He had engaged in grievous immoral conduct and was being counseled by Alma. We are blessed that the great prophet Alma, who had personally experienced “the darkest abyss \[and\] the marvelous light,”[^16] recorded the instruction he gave. In the [[Alma 39.1|39th chapter of Alma]], we read how he counseled this son through the repentance process and then explained how Christ would come to take away sin. He made the necessity of repentance clear to Corianton because “no unclean thing can inherit the kingdom of God.”[^17]
+This was apparently the position taken by Corianton, the son of Alma the Younger in the Book of Mormon. He had engaged in grievous immoral conduct and was being counseled by Alma. We are blessed that the great prophet Alma, who had personally experienced “the darkest abyss \[and\] the marvelous light,”[^16] recorded the instruction he gave. In the [[Alma 39.1|39th chapter of Alma]][[Alma 39.2|]][[Alma 39.3|]][[Alma 39.4|]][[Alma 39.5|]][[Alma 39.6|]][[Alma 39.7|]][[Alma 39.8|]][[Alma 39.9|]][[Alma 39.10|]][[Alma 39.11|]][[Alma 39.12|]][[Alma 39.13|]][[Alma 39.14|]][[Alma 39.15|]][[Alma 39.16|]][[Alma 39.17|]][[Alma 39.18|]][[Alma 39.19|]], we read how he counseled this son through the repentance process and then explained how Christ would come to take away sin. He made the necessity of repentance clear to Corianton because “no unclean thing can inherit the kingdom of God.”[^17]
 
-[[Alma 42.1|Alma 42]] contains some of the most magnificent doctrine on the Atonement in all scripture. Alma helped Corianton understand that it is not an “injustice that the sinner should be consigned to a state of misery.”[^18] But he noted that starting with Adam, a merciful God had provided a “space for repentance” because without repentance, “the great plan of salvation would have been frustrated.”[^19] Alma also established that God’s plan is a “plan of happiness.”[^20]
+[[Alma 42.1|Alma 42]][[Alma 42.2|]][[Alma 42.3|]][[Alma 42.4|]][[Alma 42.5|]][[Alma 42.6|]][[Alma 42.7|]][[Alma 42.8|]][[Alma 42.9|]][[Alma 42.10|]][[Alma 42.11|]][[Alma 42.12|]][[Alma 42.13|]][[Alma 42.14|]][[Alma 42.15|]][[Alma 42.16|]][[Alma 42.17|]][[Alma 42.18|]][[Alma 42.19|]][[Alma 42.20|]][[Alma 42.21|]][[Alma 42.22|]][[Alma 42.23|]][[Alma 42.24|]][[Alma 42.25|]][[Alma 42.26|]][[Alma 42.27|]][[Alma 42.28|]][[Alma 42.29|]][[Alma 42.30|]][[Alma 42.31|]] contains some of the most magnificent doctrine on the Atonement in all scripture. Alma helped Corianton understand that it is not an “injustice that the sinner should be consigned to a state of misery.”[^18] But he noted that starting with Adam, a merciful God had provided a “space for repentance” because without repentance, “the great plan of salvation would have been frustrated.”[^19] Alma also established that God’s plan is a “plan of happiness.”[^20]
 
 Alma’s teachings are most instructive: “For behold, justice exerciseth all his demands, and also mercy claimeth all which is her own; and thus, none but the truly penitent are saved.”[^21] Seen in their true light, the glorious blessings of repentance and adherence to the Savior’s teachings are monumentally important. It is not unfair to be clear, as Alma was with Corianton, about the consequences of sinful choices and lack of repentance. It has often been declared, “Sooner or later everybody has to sit down to a banquet of consequences.”[^22]
 
@@ -161,7 +159,3 @@ For us, being valiant in our testimony of Jesus is a stepping-stone toward quali
 
 [^32]: See [[2 Nephi 31.21|2 Nephi 31:21]]; [[Mosiah 3.17|Mosiah 3:17]].
 
-
-
-
-#Adversity #Atonement #Jesus_Christ #Repentance #Testimony

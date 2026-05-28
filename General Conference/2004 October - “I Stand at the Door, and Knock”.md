@@ -1,7 +1,5 @@
 # “I Stand at the Door, and Knock”
 
-Gordon B. Hinckley
-
 By Elder Ronald T. Halverson - *Of the Seventy*
 
 *Given in the October session of the 2004 General Conference*
@@ -106,7 +104,3 @@ I bear my witness that as you do His will, you will feel close to Him and begin 
 
 [^16]: [[2 Nephi 31.21|2 Nephi 31:21]].
 
-
-
-
-#Agency #Holy_Ghost #Jesus_Christ #Peace #Testimony

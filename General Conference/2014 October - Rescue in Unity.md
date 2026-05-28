@@ -1,7 +1,5 @@
 # Rescue in Unity
 
-Thomas S. Monson
-
 By Elder Chi Hong (Sam) Wong - *Of the Seventy*
 
 *Given in the October session of the 2014 General Conference*
@@ -47,7 +45,3 @@ I testify that Jesus Christ is a God of miracles. Jesus Christ loves us all and 
 
 [^1]: See, for example, Thomas S. Monson, “[Our Responsibility to Rescue](https://www.churchofjesuschrist.org/study/ensign/2013/10/our-responsibility-to-rescue?lang=eng),” *Ensign* or *Liahona,* Oct. 2013, 5.
 
-
-
-
-#Activation #Councils #Faith #Jesus_Christ #Unity

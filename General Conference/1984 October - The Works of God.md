@@ -1,7 +1,5 @@
 # The Works of God
 
-Gordon B. Hinckley
-
 By Elder James E. Faust - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1984 General Conference*
@@ -71,4 +69,3 @@ I bear witness that Jesus is the Christ, the Savior of the world and the Redeeme
 
 
 
-#Adversity #Disabilities #Family #Tolerance

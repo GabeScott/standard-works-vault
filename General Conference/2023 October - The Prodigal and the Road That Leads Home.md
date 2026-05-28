@@ -1,7 +1,5 @@
 # The Prodigal and the Road That Leads Home
 
-David A. Bednar
-
 By Elder Dieter F. Uchtdorf - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2023 General Conference*
@@ -185,7 +183,3 @@ It is my prayer that each one of us may hear, in this profound parable, the Fath
 
 [^23]: See [[Psalms 28.7|Psalm 28:7]].
 
-
-
-
-#Forgiveness #Jesus_Christ #Joy #Repentance

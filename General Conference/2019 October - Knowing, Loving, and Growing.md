@@ -1,7 +1,5 @@
 # Knowing, Loving, and Growing
 
-Jeffrey R. Holland
-
 By Elder Hans T. Boom - *Of the Seventy*
 
 *Given in the October session of the 2019 General Conference*
@@ -87,7 +85,3 @@ I testify to you that I know who I am, and I do know who you are. We are all chi
 
 [^10]: [[Joseph Smith History 1.25|Joseph Smith—History 1:25]].
 
-
-
-
-#Discipleship #Individual_Worth #Joseph_Smith #Love #Ministering #Missionary_Work

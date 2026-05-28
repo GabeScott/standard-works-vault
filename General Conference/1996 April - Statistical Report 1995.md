@@ -1,7 +1,5 @@
 # Statistical Report 1995
 
-James E. Faust
-
 By Presented by F. Michael Watson - *Secretary to the First Presidency*
 
 *Given in the April session of the 1996 General Conference*

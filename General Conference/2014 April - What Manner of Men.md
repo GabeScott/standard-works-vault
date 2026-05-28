@@ -1,7 +1,5 @@
 # What Manner of Men?
 
-Thomas S. Monson
-
 By Elder Donald L. Hallstrom - *Of the Presidency of the Seventy*
 
 *Given in the April session of the 2014 General Conference*
@@ -43,4 +41,3 @@ The only complete response to the question posed by Jesus Christ “What manner 
 
 
 
-#Conversion #Priesthood #Service #Worthiness

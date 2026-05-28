@@ -1,7 +1,5 @@
 # The Soil and Roots of Testimony
 
-Ezra Taft Benson
-
 By Elder John K. Carmack - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1988 General Conference*
@@ -111,4 +109,3 @@ And may I just take this opportunity to express my great love to all of you memb
 
 
 
-#Testimony

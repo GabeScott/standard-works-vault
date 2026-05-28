@@ -1,7 +1,5 @@
 # The Father’s Duty to Foster the Welfare of His Family
 
-Spencer W. Kimball
-
 By Bishop H. Burke Peterson - *First Counselor in the Presiding Bishopric*
 
 *Given in the October session of the 1977 General Conference*
@@ -83,4 +81,3 @@ In the name of Jesus Christ, amen.
 
 
 
-#Family #Welfare

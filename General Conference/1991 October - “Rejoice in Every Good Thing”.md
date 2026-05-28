@@ -1,7 +1,5 @@
 # “Rejoice in Every Good Thing”
 
-Gordon B. Hinckley
-
 By Chieko N. Okazaki - *First Counselor in the Relief Society General Presidency*
 
 *Given in the October session of the 1991 General Conference*
@@ -66,4 +64,3 @@ Let us come unto Christ. Let us rejoice in him, the giver of all good things, an
 
 
 
-#Faith #Joy #Love #Unity

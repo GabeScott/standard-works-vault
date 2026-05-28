@@ -1,7 +1,5 @@
 # To Learn, To Do, To Be
 
-Thomas S. Monson
-
 By President Thomas S. Monson - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 1992 General Conference*
@@ -82,7 +80,3 @@ I leave with you my testimony that this work in which we are engaged is true. Th
 
 [^4]: In *Journal of Discourses,* 20:23.
 
-
-
-
-#Priesthood #Service #Spirituality

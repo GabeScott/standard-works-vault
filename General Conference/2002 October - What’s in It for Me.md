@@ -1,7 +1,5 @@
 # What’s in It for Me?
 
-Gordon B. Hinckley
-
 By President James E. Faust - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 2002 General Conference*
@@ -129,7 +127,3 @@ I wish to testify that the greatest fulfilling service to be rendered by any of 
 
 [^22]: [[Matthew 10.39|Matthew 10:39]].
 
-
-
-
-#Generosity #Greed #Sacrifice #Service

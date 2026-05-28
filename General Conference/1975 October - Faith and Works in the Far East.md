@@ -1,7 +1,5 @@
 # Faith and Works in the Far East
 
-Spencer W. Kimball
-
 By Elder Adney Y. Komatsu - *Assistant to the Council of the Twelve*
 
 *Given in the October session of the 1975 General Conference*
@@ -77,4 +75,3 @@ And I bear you this humble testimony that I know that President Spencer W. Kimba
 
 
 
-#Church_Growth

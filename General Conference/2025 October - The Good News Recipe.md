@@ -1,7 +1,5 @@
 # The Good News Recipe
 
-Dallin H. Oaks
-
 By Elder John D. Amos - *Of the Seventy*
 
 *Given in the October session of the 2025 General Conference*
@@ -89,7 +87,3 @@ I testify that Jesus Christ is our Savior and Redeemer. He has “accomplished e
 
 [^14]: Quentin L. Cook, in Ryan Jensen, “‘The Savior Accomplished Everything We Need,’ Elder Cook Tells Saints in Birmingham, England,” *Church News*, May 27, 2025, thechurchnews.com.
 
-
-
-
-#Charity #Happiness #Jesus_Christ #Revelation #Scriptures

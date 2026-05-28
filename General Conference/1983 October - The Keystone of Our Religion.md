@@ -1,7 +1,5 @@
 # The Keystone of Our Religion
 
-Gordon B. Hinckley
-
 By Elder James E. Faust - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1983 General Conference*
@@ -73,4 +71,3 @@ I can now see more clearly through the eyes of my own understanding what my moth
 
 
 
-#Scriptures

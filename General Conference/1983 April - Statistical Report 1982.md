@@ -1,7 +1,5 @@
 # Statistical Report 1982
 
-Ezra Taft Benson
-
 By Presented by Francis M. Gibbons - *Secretary to the First Presidency*
 
 *Given in the April session of the 1983 General Conference*

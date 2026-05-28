@@ -1,7 +1,5 @@
 # Remembering in Whom We Have Trusted
 
-Rosemary M. Wixom
-
 By Elder Allen D. Haynie - *Of the Seventy*
 
 *Given in the October session of the 2015 General Conference*
@@ -101,7 +99,3 @@ Brothers and sisters, if you feel discouraged or wonder if you can ever get out 
 
 [^27]: [[2 Nephi 31.20|2 Nephi 31:20]].
 
-
-
-
-#Jesus_Christ #Plan_Of_Salvation #Repentance #Trust

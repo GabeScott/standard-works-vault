@@ -1,7 +1,5 @@
 # Our Destiny
 
-Gordon B. Hinckley
-
 By Elder L. Aldin Porter - *Of the Presidency of the Seventy*
 
 *Given in the October session of the 1999 General Conference*
@@ -59,4 +57,3 @@ The message of the proclamation will comfort parents who may be questioning thei
 
 
 
-#Agency #Children #Commandments #Death #Faith #Family #Plan_Of_Salvation #Repentance #Sin

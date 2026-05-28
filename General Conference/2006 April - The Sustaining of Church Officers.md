@@ -1,7 +1,5 @@
 # The Sustaining of Church Officers
 
-Robert D. Hales
-
 By President Thomas S. Monson - *First Counselor in the First Presidency*
 
 *Given in the April session of the 2006 General Conference*

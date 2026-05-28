@@ -1,7 +1,5 @@
 # Agency: Essential to the Plan of Life
 
-Thomas S. Monson
-
 By Elder Robert D. Hales - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2010 General Conference*
@@ -149,7 +147,3 @@ I bear my special witness that They live. When we exercise our agency in righteo
 
 [^30]: [[Mosiah 27.31|Mosiah 27:31]].
 
-
-
-
-#Agency #Plan_Of_Salvation #Repentance

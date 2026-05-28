@@ -1,7 +1,5 @@
 # Being Teachable
 
-Gordon B. Hinckley
-
 By Elder Robert R. Steuer - *Of the Seventy*
 
 *Given in the April session of the 2002 General Conference*
@@ -71,7 +69,3 @@ I testify that through the Prophet Joseph Smith we have received countless revel
 
 [^19]: [[D&C 88.40|D&C 88:40]].
 
-
-
-
-#Holy_Ghost #Humility #Obedience

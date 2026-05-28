@@ -1,7 +1,5 @@
 # “Make Thee an Ark”
 
-Gordon B. Hinckley
-
 By Elder W. Don Ladd - *Of the Seventy*
 
 *Given in the October session of the 1994 General Conference*
@@ -57,4 +55,3 @@ My brothers and sisters, I bear you my witness that Jesus is the Christ, that He
 
 
 
-#Family #Jesus_Christ #Preparation

@@ -1,7 +1,5 @@
 # This Day
 
-Dallin H. Oaks
-
 By Elder Ronald A. Rasband - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2022 General Conference*
@@ -20,7 +18,7 @@ There was much more to my reading than just marking scriptures. With each readin
 
 “This day,” one of the greatest missionaries of the Book of Mormon is President Russell M. Nelson. When he was a newly called Apostle, he gave a lecture in Accra, Ghana.[^14] In attendance were dignitaries, including an African tribal king, with whom he spoke through an interpreter. The king was a serious student of the Bible and loved the Lord. Following President Nelson’s remarks, he was approached by that king, who asked in perfect English, “Just who are you?” President Nelson explained that he was an ordained Apostle of Jesus Christ.[^15] The king’s next question was “What can you teach me about Jesus Christ?”[^16]
 
-President Nelson reached for the Book of Mormon and opened it to [[3 Nephi 11.1|3 Nephi 11]]. Together President Nelson and the king read the Savior’s sermon to the Nephites: “Behold, I am Jesus Christ, whom the prophets testified shall come into the world. … I am the light and the life of the world.”[^17]
+President Nelson reached for the Book of Mormon and opened it to [[3 Nephi 11.1|3 Nephi 11]][[3 Nephi 11.2|]][[3 Nephi 11.3|]][[3 Nephi 11.4|]][[3 Nephi 11.5|]][[3 Nephi 11.6|]][[3 Nephi 11.7|]][[3 Nephi 11.8|]][[3 Nephi 11.9|]][[3 Nephi 11.10|]][[3 Nephi 11.11|]][[3 Nephi 11.12|]][[3 Nephi 11.13|]][[3 Nephi 11.14|]][[3 Nephi 11.15|]][[3 Nephi 11.16|]][[3 Nephi 11.17|]][[3 Nephi 11.18|]][[3 Nephi 11.19|]][[3 Nephi 11.20|]][[3 Nephi 11.21|]][[3 Nephi 11.22|]][[3 Nephi 11.23|]][[3 Nephi 11.24|]][[3 Nephi 11.25|]][[3 Nephi 11.26|]][[3 Nephi 11.27|]][[3 Nephi 11.28|]][[3 Nephi 11.29|]][[3 Nephi 11.30|]][[3 Nephi 11.31|]][[3 Nephi 11.32|]][[3 Nephi 11.33|]][[3 Nephi 11.34|]][[3 Nephi 11.35|]][[3 Nephi 11.36|]][[3 Nephi 11.37|]][[3 Nephi 11.38|]][[3 Nephi 11.39|]][[3 Nephi 11.40|]][[3 Nephi 11.41|]]. Together President Nelson and the king read the Savior’s sermon to the Nephites: “Behold, I am Jesus Christ, whom the prophets testified shall come into the world. … I am the light and the life of the world.”[^17]
 
 President Nelson presented the king with that copy of the Book of Mormon, and the king responded, “You could have given me diamonds or rubies, but nothing is more precious to me than this additional knowledge about the Lord Jesus Christ.”[^18]
 
@@ -119,7 +117,3 @@ I testify that by divine design the Book of Mormon was prepared in ancient Ameri
 
 [^33]: [[1 Nephi 13.37|1 Nephi 13:37]].
 
-
-
-
-#Book_Of_Mormon #Missionary_Work

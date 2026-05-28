@@ -1,7 +1,5 @@
 # Modern Pioneers
 
-Gordon B. Hinckley
-
 By Janette Hales Beckham - *Young Women General President*
 
 *Given in the April session of the 1997 General Conference*
@@ -63,4 +61,3 @@ Listen again to the words of the Apostle Paul: “Let no man despise thy youth; 
 
 
 
-#Commandments #Faith #Jesus_Christ #Pioneers #Plan_Of_Salvation #Prophets #Temples #Young_Women

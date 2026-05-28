@@ -1,7 +1,5 @@
 # Address Given by President Spencer W. Kimball at the Welfare Services Meeting Saturday, April 6, 1974
 
-Spencer W. Kimball
-
 By President Spencer W. Kimball - *President of the Church*
 
 *Given in the April session of the 1974 General Conference*
@@ -39,4 +37,3 @@ God bless you. We pray for you and we ask his blessing upon you always, in the n
 
 
 
-#Welfare

@@ -1,7 +1,5 @@
 # Love One Another as He Has Loved Us
 
-Sharon Eubank
-
 By Elder Jose L. Alonso - *Of the Seventy*
 
 *Given in the October session of the 2017 General Conference*
@@ -93,7 +91,3 @@ I know that our Heavenly Father and His Son, Jesus Christ, love us and are willi
 
 [^9]: Thomas S. Monson, “[[2017 April - Kindness, Charity, and Love.md|Kindness, Charity, and Love]],” *Ensign* or *Liahona,* May 2017, 67.
 
-
-
-
-#Forgiveness #Jesus_Christ #Love #Service

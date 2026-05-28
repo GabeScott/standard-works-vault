@@ -1,7 +1,5 @@
 # Help for Parents
 
-Spencer W. Kimball
-
 By Bishop H. Burke Peterson - *First Counselor in the Presiding Bishopric*
 
 *Given in the April session of the 1975 General Conference*
@@ -77,4 +75,3 @@ In the name of Jesus Christ. Amen.
 
 
 
-#Family #Scriptures

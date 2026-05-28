@@ -1,7 +1,5 @@
 # The True Strength of the Church
 
-Harold B. Lee
-
 By Elder Gordon B. Hinckley - *Of the Council of the Twelve*
 
 *Given in the April session of the 1973 General Conference*
@@ -93,4 +91,3 @@ Of these sacred things I offer my solemn testimony and invoke the blessings of t
 
 
 
-#Self-Control #Testimony

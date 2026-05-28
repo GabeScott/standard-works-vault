@@ -1,7 +1,5 @@
 # These Four Things
 
-Spencer W. Kimball
-
 By Elder Robert L. Simpson - *Assistant to the Council of the Twelve*
 
 *Given in the April session of the 1976 General Conference*
@@ -95,4 +93,3 @@ And this is my hope and prayer for all of us, in the name of Jesus Christ. Amen.
 
 
 
-#Family_History #Jesus_Christ #Missionary_Work #Service

@@ -1,7 +1,5 @@
 # All Things Work Together for Good
 
-Thomas S. Monson
-
 By Elder James B. Martino - *Of the Seventy*
 
 *Given in the April session of the 2010 General Conference*
@@ -61,7 +59,3 @@ As we pass through the trials of life, let us keep an eternal perspective, let u
 
 [^11]: [[2 Nephi 2.25|2 Nephi 2:25]].
 
-
-
-
-#Adversity #Jesus_Christ #Perspective

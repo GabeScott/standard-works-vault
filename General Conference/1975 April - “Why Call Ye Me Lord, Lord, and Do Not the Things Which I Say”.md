@@ -1,7 +1,5 @@
 # “Why Call Ye Me Lord, Lord, and Do Not the Things Which I Say?”
 
-Spencer W. Kimball
-
 By President Spencer W. Kimball - *President of the Church*
 
 *Given in the April session of the 1975 General Conference*
@@ -163,4 +161,3 @@ Brethren and sisters, God bless you as you move forward to meet all your commitm
 
 
 
-#Abortion #Honesty #Marriage #Resurrection #Word_Of_Wisdom

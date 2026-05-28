@@ -1,7 +1,5 @@
 # Missionary Service
 
-Gordon B. Hinckley
-
 By Elder Earl C. Tingey - *Of the Presidency of the Seventy*
 
 *Given in the April session of the 1998 General Conference*
@@ -93,7 +91,3 @@ I bear witness of this great privilege we all have in the Church—to be mission
 
 [^8]: *Discourses of Brigham Young,* sel. John A. Widtsoe (1954), 328.
 
-
-
-
-#Jesus_Christ #Missionary_Work #Priesthood

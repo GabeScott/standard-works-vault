@@ -1,7 +1,5 @@
 # Watch Ye Therefore, and Pray Always
 
-Russell M. Nelson
-
 By President M. Russell Ballard - *Acting President of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2020 General Conference*
@@ -127,7 +125,3 @@ How great is the power of prayer, and how needed are our prayers of faith in God
 
 [^14]: [[Luke 21.36|Luke 21:36]], emphasis added; see also [[3 Nephi 18.15|3 Nephi 18:15]].
 
-
-
-
-#Adversity #Prayer

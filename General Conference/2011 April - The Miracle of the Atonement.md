@@ -1,7 +1,5 @@
 # The Miracle of the Atonement
 
-Thomas S. Monson
-
 By Elder C. Scott Grow - *Of the Seventy*
 
 *Given in the April session of the 2011 General Conference*
@@ -141,7 +139,3 @@ I testify that Jesus is the Christ—the Healer of our souls. I pray that each o
 
 [^21]: [[3 Nephi 9.13|3 Nephi 9:13]].
 
-
-
-
-#Atonement #Forgiveness #Jesus_Christ #Mercy #Repentance #Sin

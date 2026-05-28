@@ -1,7 +1,5 @@
 # Agency—A Blessing and a Burden
 
-Gordon B. Hinckley
-
 By Sharon G. Larsen - *Second Counselor in the Young Women General Presidency*
 
 *Given in the October session of the 1999 General Conference*
@@ -61,4 +59,3 @@ I close with the prayer of Nephi speaking for you and for me: “O Lord, wilt th
 
 
 
-#Agency #Atonement #Commitment #Faith #Holy_Ghost #Opposition #Satan

@@ -1,7 +1,5 @@
 # The Atonement Can Clean, Reclaim, and Sanctify Our Lives
 
-Gordon B. Hinckley
-
 By Elder Shayne M. Bowen - *Of the Seventy*
 
 *Given in the October session of the 2006 General Conference*
@@ -53,4 +51,3 @@ I testify that Jesus is the Christ, the Son of the living God, that His Atonemen
 
 
 
-#Atonement #Forgiveness #Repentance

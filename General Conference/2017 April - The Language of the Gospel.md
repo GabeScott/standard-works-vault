@@ -1,7 +1,5 @@
 # The Language of the Gospel
 
-Bonnie H. Cordon
-
 By Elder Valeri V. Cordón - *Of the Seventy*
 
 *Given in the April session of the 2017 General Conference*
@@ -121,7 +119,3 @@ No achievement in this life, important as it may be, will be relevant if we lose
 
 [^18]: See [[Matthew 16.24|Matthew 16:24–26]][[Matthew 16.25|]][[Matthew 16.26|]].
 
-
-
-
-#Example #Family #Parenthood #Sabbath #Scripture_Study #Tithing

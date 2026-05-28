@@ -1,7 +1,5 @@
 # Examples of Righteousness
 
-Dieter F. Uchtdorf
-
 By President Thomas S. Monson - *President of the Church*
 
 *Given in the April session of the 2008 General Conference*
@@ -77,7 +75,3 @@ My brethren, as we now leave this general priesthood meeting, let us all determi
 
 [^4]: [[1 Peter 2.9|1 Peter 2:9]].
 
-
-
-
-#Courage #Example #Priesthood #Service

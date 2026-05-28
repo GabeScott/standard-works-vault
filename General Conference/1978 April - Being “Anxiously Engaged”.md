@@ -1,7 +1,5 @@
 # Being “Anxiously Engaged”
 
-Spencer W. Kimball
-
 By Elder Joseph Anderson - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1978 General Conference*
@@ -63,4 +61,3 @@ I bear testimony that this is the Lord’s work, that the gospel of Jesus Christ
 
 
 
-#Service

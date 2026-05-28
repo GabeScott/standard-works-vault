@@ -1,7 +1,5 @@
 # Obedience—Full Obedience
 
-Marion G. Romney
-
 By Elder Teddy E. Brewerton - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1981 General Conference*
@@ -83,4 +81,3 @@ My true feelings about the Church are that I know in a definite, decisive, indel
 
 
 
-#Obedience

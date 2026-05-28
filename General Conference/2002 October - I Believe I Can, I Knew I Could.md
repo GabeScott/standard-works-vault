@@ -1,7 +1,5 @@
 # I Believe I Can, I Knew I Could
 
-Gordon B. Hinckley
-
 By President James E. Faust - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 2002 General Conference*
@@ -127,7 +125,3 @@ Brethren, great is our work, and heavy are our priesthood responsibilities. I ho
 
 [^19]: [[2 Nephi 16.8|2 Nephi 16:8]].
 
-
-
-
-#Accountability #Priesthood #Service #Talents

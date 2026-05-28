@@ -1,7 +1,5 @@
 # The Lord Has a Plan for Us!
 
-Thomas S. Monson
-
 By Elder Carlos A. Godoy - *Of the Seventy*
 
 *Given in the October session of the 2014 General Conference*
@@ -107,4 +105,3 @@ God lives. He is our Father. The Savior Jesus Christ lives, and I know that thro
 
 
 
-#Agency #Perspective

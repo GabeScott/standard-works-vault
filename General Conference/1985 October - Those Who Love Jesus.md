@@ -1,7 +1,5 @@
 # Those Who Love Jesus
 
-Gordon B. Hinckley
-
 By Elder Thomas S. Monson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1985 General Conference*
@@ -109,4 +107,3 @@ Such is the blessing reserved for those who love Jesus. May each of us qualify f
 
 
 
-#Discipleship #Teaching

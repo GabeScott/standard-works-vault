@@ -1,7 +1,5 @@
 # Equality through Diversity
 
-Gordon B. Hinckley
-
 By Elder M. Russell Ballard - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1993 General Conference*
@@ -51,4 +49,3 @@ May God bless you, my dear sisters, in your personal lives, in your homes and fa
 
 
 
-#Faith #Family #Relief_Society #Women

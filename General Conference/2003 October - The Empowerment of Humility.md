@@ -1,7 +1,5 @@
 # The Empowerment of Humility
 
-Gordon B. Hinckley
-
 By Bishop Richard C. Edgley - *First Counselor in the Presiding Bishopric*
 
 *Given in the October session of the 2003 General Conference*
@@ -45,4 +43,3 @@ May a humble and submissive heart be our empowerment from God, with all of its a
 
 
 
-#Adversity #Couple_Missionaries #Gratitude #Humility

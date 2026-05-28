@@ -1,7 +1,5 @@
 # A Voice of Warning
 
-Gordon B. Hinckley
-
 By Elder Henry B. Eyring - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1998 General Conference*
@@ -77,4 +75,3 @@ I testify that only accepting and living the restored gospel of Jesus Christ bri
 
 
 
-#Book_Of_Mormon #Example #Family #Jesus_Christ #Love #Missionary_Work #Morality #Neighbors #Ordinances #Temples #Testimony

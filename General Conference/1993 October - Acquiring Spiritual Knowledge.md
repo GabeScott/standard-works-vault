@@ -1,7 +1,5 @@
 # Acquiring Spiritual Knowledge
 
-Gordon B. Hinckley
-
 By Elder Richard G. Scott - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1993 General Conference*
@@ -123,4 +121,3 @@ I solemnly testify that Jesus Christ guides this, His church. He knows and loves
 
 
 
-#Education #Faith #Obedience #Testimony

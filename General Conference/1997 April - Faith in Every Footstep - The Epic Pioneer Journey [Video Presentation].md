@@ -1,7 +1,5 @@
 # Faith in Every Footstep: The Epic Pioneer Journey [Video Presentation]
 
-Gordon B. Hinckley
-
 By 
 
 *Given in the April session of the 1997 General Conference*

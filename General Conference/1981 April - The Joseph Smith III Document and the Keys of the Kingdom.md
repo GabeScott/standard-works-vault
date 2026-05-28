@@ -1,7 +1,5 @@
 # The Joseph Smith III Document and the Keys of the Kingdom
 
-Marion G. Romney
-
 By Elder Gordon B. Hinckley - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1981 General Conference*
@@ -69,4 +67,3 @@ We were glad to see our brethren of the Reorganized Church get the document whic
 
 
 
-#Church_Leaders

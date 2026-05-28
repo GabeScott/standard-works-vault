@@ -1,7 +1,5 @@
 # Why Do We Serve?
 
-Gordon B. Hinckley
-
 By Elder Dallin H. Oaks - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1984 General Conference*
@@ -121,4 +119,3 @@ Most of all, I know that God lives, and I know that his Only Begotten Son, Jesus
 
 
 
-#Duty #Love #Plan_Of_Salvation #Service

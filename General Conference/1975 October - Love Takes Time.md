@@ -1,7 +1,5 @@
 # Love Takes Time
 
-Spencer W. Kimball
-
 By Elder Marvin J. Ashton - *Of the Council of the Twelve*
 
 *Given in the October session of the 1975 General Conference*
@@ -59,4 +57,3 @@ I pray our Heavenly Father to help us to remember that true love does take time.
 
 
 
-#Love #Time_Management

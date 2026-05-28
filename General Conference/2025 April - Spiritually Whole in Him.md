@@ -1,7 +1,5 @@
 # Spiritually Whole in Him
 
-Dallin H. Oaks
-
 By President Camille N. Johnson - *Relief Society General President*
 
 *Given in the April session of the 2025 General Conference*
@@ -169,7 +167,3 @@ I humbly add my testimony to Mary’s. He is risen. Jesus Christ lives. Ultimate
 
 [^29]: [[Isaiah 25.8|Isaiah 25:8]].
 
-
-
-
-#Conversion #Faith #Healing #Hope #Jesus_Christ #Mental_Health

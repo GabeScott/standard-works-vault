@@ -1,7 +1,5 @@
 # No Man Shall Add to or Take Away
 
-Marion G. Romney
-
 By Elder Howard W. Hunter - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1981 General Conference*
@@ -61,4 +59,3 @@ May our vision not be so narrow that we would relegate revelation to only the an
 
 
 
-#Scriptures #Spirituality

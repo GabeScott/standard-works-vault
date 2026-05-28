@@ -1,7 +1,5 @@
 # The Faith to Move Mountains
 
-Gordon B. Hinckley
-
 By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the October session of the 2006 General Conference*
@@ -75,4 +73,3 @@ For this I humbly pray, in the sacred and holy name of Him who is the strength o
 
 
 
-#Faith #Pioneers #Prayer #Sacrifice

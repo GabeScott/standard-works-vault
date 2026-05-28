@@ -1,7 +1,5 @@
 # Caring for the Souls of Children
 
-Gordon B. Hinckley
-
 By Patricia P. Pinegar - *Primary General President*
 
 *Given in the April session of the 1997 General Conference*
@@ -55,4 +53,3 @@ My prayer, my brothers and sisters, is that all of us will rejoice in the opport
 
 
 
-#Children #Commandments #Councils #Covenants #Family #God_The_Father #Holy_Ghost #Home #Jesus_Christ #Joy #Love #Parenthood #Satan #Temples

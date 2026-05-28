@@ -1,7 +1,5 @@
 # A Marvelous Work and a Wonder
 
-Spencer W. Kimball
-
 By President Ezra Taft Benson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1980 General Conference*
@@ -80,4 +78,3 @@ May God bless us all to be faithful and valiant, giving our first allegiance to 
 
 
 
-#Church_Growth #Spirituality

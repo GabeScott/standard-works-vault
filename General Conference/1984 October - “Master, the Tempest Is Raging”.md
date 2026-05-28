@@ -1,7 +1,5 @@
 # “Master, the Tempest Is Raging”
 
-Gordon B. Hinckley
-
 By Elder Howard W. Hunter - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1984 General Conference*
@@ -110,4 +108,3 @@ One of the wisest of the ancient Romans once spoke a great gospel truth and prob
 
 
 
-#Adversity #Faith #Opposition

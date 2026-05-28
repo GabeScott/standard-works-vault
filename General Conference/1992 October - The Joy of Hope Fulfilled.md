@@ -1,7 +1,5 @@
 # The Joy of Hope Fulfilled
 
-Gordon B. Hinckley
-
 By Elder M. Russell Ballard - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1992 General Conference*
@@ -83,4 +81,3 @@ May I leave you my testimony that I know that the Lord Jesus Christ lives. He ha
 
 
 
-#Charity #Faith #Hope #Jesus_Christ

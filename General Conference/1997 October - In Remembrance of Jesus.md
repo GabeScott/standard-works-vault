@@ -1,7 +1,5 @@
 # In Remembrance of Jesus
 
-Gordon B. Hinckley
-
 By Elder Robert D. Hales - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1997 General Conference*
@@ -95,4 +93,3 @@ May all who profess to be Christians, all who know and testify of Jesus, come un
 
 
 
-#Atonement #Commandments #Covenants #Fellowshipping #Friendship #Holy_Ghost #Jesus_Christ #Joy #Ordinances #Plan_Of_Salvation #Priesthood #Resurrection #Sacrament #Testimony

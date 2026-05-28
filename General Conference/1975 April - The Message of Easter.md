@@ -1,7 +1,5 @@
 # The Message of Easter
 
-Spencer W. Kimball
-
 By Elder Franklin D. Richards - *Assistant to the Council of the Twelve*
 
 *Given in the April session of the 1975 General Conference*
@@ -105,4 +103,3 @@ With the understanding of the gospel which we have, may we all work for eternal 
 
 
 
-#Jesus_Christ

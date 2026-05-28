@@ -1,7 +1,5 @@
 # Unselfish Service
 
-Thomas S. Monson
-
 By Elder Dallin H. Oaks - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2009 General Conference*
@@ -107,7 +105,3 @@ Our Savior teaches us to follow Him by making the sacrifices necessary to lose o
 
 [^13]: Mark Skousen to Dallin H. Oaks, Feb. 15, 2009.
 
-
-
-
-#Greed #Sacrifice #Service

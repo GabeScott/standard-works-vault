@@ -1,7 +1,5 @@
 # More Than Conquerors through Him That Loved Us
 
-Thomas S. Monson
-
 By Elder Paul V. Johnson - *Of the Seventy*
 
 *Given in the April session of the 2011 General Conference*
@@ -69,7 +67,7 @@ I know that God lives and that His Son, Jesus Christ, lives. I also know that th
 
 [^9]: See [[Exodus 14.5|Exodus 14:5–30]][[Exodus 14.6|]][[Exodus 14.7|]][[Exodus 14.8|]][[Exodus 14.9|]][[Exodus 14.10|]][[Exodus 14.11|]][[Exodus 14.12|]][[Exodus 14.13|]][[Exodus 14.14|]][[Exodus 14.15|]][[Exodus 14.16|]][[Exodus 14.17|]][[Exodus 14.18|]][[Exodus 14.19|]][[Exodus 14.20|]][[Exodus 14.21|]][[Exodus 14.22|]][[Exodus 14.23|]][[Exodus 14.24|]][[Exodus 14.25|]][[Exodus 14.26|]][[Exodus 14.27|]][[Exodus 14.28|]][[Exodus 14.29|]][[Exodus 14.30|]].
 
-[^10]: See [[1 Nephi 3.1|1 Nephi 3–4]].
+[^10]: See [[1 Nephi 3.1|1 Nephi 3–4]][[1 Nephi 3.2|]][[1 Nephi 3.3|]][[1 Nephi 3.4|]][[1 Nephi 3.5|]][[1 Nephi 3.6|]][[1 Nephi 3.7|]][[1 Nephi 3.8|]][[1 Nephi 3.9|]][[1 Nephi 3.10|]][[1 Nephi 3.11|]][[1 Nephi 3.12|]][[1 Nephi 3.13|]][[1 Nephi 3.14|]][[1 Nephi 3.15|]][[1 Nephi 3.16|]][[1 Nephi 3.17|]][[1 Nephi 3.18|]][[1 Nephi 3.19|]][[1 Nephi 3.20|]][[1 Nephi 3.21|]][[1 Nephi 3.22|]][[1 Nephi 3.23|]][[1 Nephi 3.24|]][[1 Nephi 3.25|]][[1 Nephi 3.26|]][[1 Nephi 3.27|]][[1 Nephi 3.28|]][[1 Nephi 3.29|]][[1 Nephi 3.30|]][[1 Nephi 3.31|]].
 
 [^11]: See [[Joseph Smith History 1.15|Joseph Smith—History 1:15–17]][[Joseph Smith History 1.16|]][[Joseph Smith History 1.17|]].
 
@@ -91,7 +89,3 @@ I know that God lives and that His Son, Jesus Christ, lives. I also know that th
 
 [^20]: [[Romans 8.35|Romans 8:35, 37]][[Romans 8.37|]].
 
-
-
-
-#Adversity #Faith #Jesus_Christ #Patience

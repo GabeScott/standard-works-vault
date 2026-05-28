@@ -1,7 +1,5 @@
 # Do Not Fear
 
-Gordon B. Hinckley
-
 By President Boyd K. Packer - *Acting President of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2004 General Conference*
@@ -139,4 +137,3 @@ The Lord Himself encouraged, “Wherefore, be of good cheer, and do not fear, fo
 
 
 
-#Children #Faith #Family #Holy_Ghost

@@ -1,7 +1,5 @@
 # Where Do I Make My Stand?
 
-Gordon B. Hinckley
-
 By President James E. Faust - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 2004 General Conference*
@@ -119,7 +117,3 @@ We have much reason to hope. Joy can be ours if we are willing to sacrifice all 
 
 [^21]: “Remarks,” *Deseret News,* May 31, 1871, 197.
 
-
-
-
-#Adversity #Faith #Perspective

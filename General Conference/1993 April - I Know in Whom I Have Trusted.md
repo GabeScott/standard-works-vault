@@ -1,7 +1,5 @@
 # I Know in Whom I Have Trusted
 
-Thomas S. Monson
-
 By Elder D. Todd Christofferson - *Of the Seventy*
 
 *Given in the April session of the 1993 General Conference*
@@ -25,4 +23,3 @@ I am particularly gratified, and it is of great significance to me, that I may a
 
 
 
-#Commitment #Service #Testimony

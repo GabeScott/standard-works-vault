@@ -1,7 +1,5 @@
 # Now Is the Time
 
-Russell M. Nelson
-
 By President Russell M. Nelson - *President of The Church of Jesus Christ of Latter-day Saints*
 
 *Given in the April session of the 2022 General Conference*
@@ -53,7 +51,3 @@ For this I pray in the sacred name of Jesus Christ, amen.
 
 [^4]: [[Jeremiah 30.22|Jeremiah 30:22]].
 
-
-
-
-#Adversity #Preparation #Spirituality #Temples

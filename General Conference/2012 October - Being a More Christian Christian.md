@@ -1,7 +1,5 @@
 # Being a More Christian Christian
 
-Thomas S. Monson
-
 By Elder Robert D. Hales - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2012 General Conference*
@@ -109,7 +107,3 @@ These are some of the characteristics of those who hear and heed the Savior’s 
 
 [^16]: [[Luke 18.22|Luke 18:22]].
 
-
-
-
-#Christianity #Discipleship

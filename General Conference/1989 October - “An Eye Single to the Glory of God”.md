@@ -1,7 +1,5 @@
 # “An Eye Single to the Glory of God”
 
-Ezra Taft Benson
-
 By Elder Marlin K. Jensen - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1989 General Conference*
@@ -59,4 +57,3 @@ Of these truths I testify, adding my own humble witness of the reality and goodn
 
 
 
-#Humility #Sacrifice

@@ -1,7 +1,5 @@
 # “The Shield of Faith”
 
-Thomas S. Monson
-
 By President Boyd K. Packer - *Acting President of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1995 General Conference*
@@ -91,4 +89,3 @@ And so now with an unbroken line of priesthood authority, an unbroken line of pr
 
 
 
-#Authority #Ezra_Taft_Benson #Faith #Joy #Priesthood #Quorum_Of_The_Twelve_Apostles #Teaching #Unity

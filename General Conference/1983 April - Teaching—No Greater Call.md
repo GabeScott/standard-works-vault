@@ -1,7 +1,5 @@
 # Teaching—No Greater Call
 
-Ezra Taft Benson
-
 By Elder M. Russell Ballard - *Of the Presidency of the First Quorum of the Seventy*
 
 *Given in the April session of the 1983 General Conference*
@@ -53,4 +51,3 @@ To the master teacher, the Lord Jesus Christ, whose resurrection we celebrate at
 
 
 
-#Curriculum #Scriptures #Teaching

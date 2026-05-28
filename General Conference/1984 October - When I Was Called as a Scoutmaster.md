@@ -1,7 +1,5 @@
 # When I Was Called as a Scoutmaster
 
-Gordon B. Hinckley
-
 By President Ezra Taft Benson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1984 General Conference*
@@ -89,4 +87,3 @@ God bless this great gathering of the priesthood, in the name of Jesus Christ, a
 
 
 
-#Missionary_Work #Scouting

@@ -1,7 +1,5 @@
 # Bearers of Heavenly Light
 
-Sharon Eubank
-
 By President Dieter F. Uchtdorf - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 2017 General Conference*
@@ -169,7 +167,3 @@ It is my prayer and blessing that you will succeed in fulfilling your destiny as
 
 [^18]: [[Alma 19.6|Alma 19:6]].
 
-
-
-
-#Healing #Jesus_Christ #Light_Of_Christ #Service #Testimony #Truth

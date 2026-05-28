@@ -1,7 +1,5 @@
 # Have You Been Saved?
 
-Gordon B. Hinckley
-
 By Elder Dallin H. Oaks - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1998 General Conference*
@@ -89,4 +87,3 @@ We invite all to hear this message, and we invite all who receive the confirming
 
 
 
-#Covenants #Death #Endurance #Jesus_Christ #Missionary_Work #Ordinances #Plan_Of_Salvation #Priesthood #Resurrection #Sacrament #Sin

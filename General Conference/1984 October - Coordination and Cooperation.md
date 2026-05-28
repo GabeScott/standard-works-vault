@@ -1,7 +1,5 @@
 # Coordination and Cooperation
 
-Gordon B. Hinckley
-
 By Elder Dean L. Larsen - *Of the Presidency of the First Quorum of the Seventy*
 
 *Given in the October session of the 1984 General Conference*
@@ -37,4 +35,3 @@ I can think of no better illustration to reflect the marvelous qualities that yo
 
 
 
-#Church_Organization #Unity

@@ -1,7 +1,5 @@
 # That the Lost May Be Found
 
-Thomas S. Monson
-
 By Elder M. Russell Ballard - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2012 General Conference*
@@ -69,4 +67,3 @@ As you seek to live the gospel and doctrine of Christ, the Holy Ghost will guide
 
 
 
-#Family #Marriage #Priorities

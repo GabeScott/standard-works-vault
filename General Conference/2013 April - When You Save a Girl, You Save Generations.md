@@ -1,7 +1,5 @@
 # When You Save a Girl, You Save Generations
 
-Thomas S. Monson
-
 By Mary N. Cook - *First Counselor in the Young Women General Presidency*
 
 *Given in the April session of the 2013 General Conference*
@@ -79,7 +77,3 @@ Decide now to do all you can to fill your lamps, that your strong testimony and 
 
 [^8]: Robert D. Hales, “How Will Our Children Remember Us?” *Ensign,* Nov. 1993, 10.
 
-
-
-
-#Adversity #Death #Family #Family_History

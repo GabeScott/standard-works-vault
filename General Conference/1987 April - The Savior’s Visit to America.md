@@ -1,7 +1,5 @@
 # The Savior’s Visit to America
 
-Ezra Taft Benson
-
 By President Ezra Taft Benson - *President of the Church*
 
 *Given in the April session of the 1987 General Conference*
@@ -143,4 +141,3 @@ May we daily be the manner of men He is and thus be prepared to meet and dwell w
 
 
 
-#Book_Of_Mormon #Jesus_Christ #Resurrection

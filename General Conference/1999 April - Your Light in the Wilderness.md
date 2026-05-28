@@ -1,7 +1,5 @@
 # Your Light in the Wilderness
 
-Gordon B. Hinckley
-
 By Sharon G. Larsen - *Second Counselor in the Young Women General Presidency*
 
 *Given in the April session of the 1999 General Conference*
@@ -60,4 +58,3 @@ In the name of Jesus Christ, amen.
 
 
 
-#Goals #Jesus_Christ #Prayer #Young_Women

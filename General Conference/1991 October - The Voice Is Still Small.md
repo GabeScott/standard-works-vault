@@ -1,7 +1,5 @@
 # The Voice Is Still Small
 
-Gordon B. Hinckley
-
 By Elder Graham W. Doxey - *Of the Seventy*
 
 *Given in the October session of the 1991 General Conference*
@@ -63,4 +61,3 @@ I know that he lives. He loves you. He wants you to follow him, and to follow hi
 
 
 
-#Faith #Jesus_Christ #Music #Obedience #Scriptures #Spirituality #Worship

@@ -1,7 +1,5 @@
 # A Faithful Search Rewarded
 
-Russell M. Nelson
-
 By Elder Patricio M. Giuffra - *Of the Seventy*
 
 *Given in the October session of the 2021 General Conference*
@@ -83,7 +81,3 @@ I invite us all to continually increase our faith in Christ, who has changed the
 
 [^8]: Russell M. Nelson, “[[2021 April - Christ Is Risen; Faith in Him Will Move Mountains.md|Christ Is Risen; Faith in Him Will Move Mountains]],” *Liahona*, May 2021, 102.
 
-
-
-
-#Book_Of_Mormon #Conversion #Faith #First_Vision #Joseph_Smith #Missionary_Work #Restoration

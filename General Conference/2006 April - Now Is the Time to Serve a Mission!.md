@@ -1,7 +1,5 @@
 # Now Is the Time to Serve a Mission!
 
-Robert D. Hales
-
 By Elder Richard G. Scott - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2006 General Conference*
@@ -57,7 +55,3 @@ I know that Jesus is the Christ, that His Church and the fulness of His gospel h
 
 [^1]: Communication from the First Presidency, unpublished.
 
-
-
-
-#Missionary_Work #Preparation #Testimony

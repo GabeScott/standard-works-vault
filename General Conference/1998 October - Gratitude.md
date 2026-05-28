@@ -1,7 +1,5 @@
 # Gratitude
 
-Gordon B. Hinckley
-
 By Elder Gordon T. Watts - *Of the Seventy*
 
 *Given in the October session of the 1998 General Conference*
@@ -55,7 +53,3 @@ Elder James E. Talmage said, “Gratitude is twin sister to humility; pride is a
 
 [^6]: [[D&C 78.19|D&C 78:19]].
 
-
-
-
-#Gratitude #Joy #Service

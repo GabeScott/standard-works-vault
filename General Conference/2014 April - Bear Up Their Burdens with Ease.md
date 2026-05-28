@@ -1,7 +1,5 @@
 # Bear Up Their Burdens with Ease
 
-Thomas S. Monson
-
 By Elder David A. Bednar - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2014 General Conference*
@@ -95,4 +93,3 @@ May each of us do and become better through the Savior’s Atonement. Today is A
 
 
 
-#Adversity #Atonement #Jesus_Christ

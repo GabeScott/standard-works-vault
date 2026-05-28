@@ -1,7 +1,5 @@
 # Till We Meet Again
 
-Thomas S. Monson
-
 By President Thomas S. Monson - *President of the Church*
 
 *Given in the October session of the 2013 General Conference*
@@ -29,4 +27,3 @@ My brothers and sisters, may God bless you. May His promised peace be with you n
 
 
 
-#General_Conference

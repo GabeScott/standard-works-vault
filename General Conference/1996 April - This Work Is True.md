@@ -1,7 +1,5 @@
 # This Work Is True
 
-James E. Faust
-
 By Elder David B. Haight - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1996 General Conference*
@@ -47,4 +45,3 @@ God lives. He is our Father. We are His children. He loves us. Jesus is the Chri
 
 
 
-#Church_Growth #Jesus_Christ

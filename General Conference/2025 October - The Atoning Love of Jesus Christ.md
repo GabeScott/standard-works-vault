@@ -1,7 +1,5 @@
 # The Atoning Love of Jesus Christ
 
-Dallin H. Oaks
-
 By Elder Neil L. Andersen - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2025 General Conference*
@@ -159,7 +157,3 @@ I testify of the love, the mercy, and the grace of our Savior and Redeemer. He l
 
 [^24]: [[Moroni 10.33|Moroni 10:33]].
 
-
-
-
-#Atonement #Forgiveness #Healing #Jesus_Christ #Repentance

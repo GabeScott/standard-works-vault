@@ -1,7 +1,5 @@
 # Gratitude
 
-Gordon B. Hinckley
-
 By Elder Jerald L. Taylor - *Of the Seventy*
 
 *Given in the April session of the 1997 General Conference*
@@ -43,4 +41,3 @@ I bear witness that Jesus Christ is the Only Begotten Son of God, our Lord and S
 
 
 
-#Atonement #Gratitude #Jesus_Christ #Kingdom_Of_God #Repentance #Resurrection #Service

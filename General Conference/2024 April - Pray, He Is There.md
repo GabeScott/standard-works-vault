@@ -1,7 +1,5 @@
 # Pray, He Is There
 
-Dallin H. Oaks
-
 By President Susan H. Porter - *Primary General President*
 
 *Given in the April session of the 2024 General Conference*
@@ -107,7 +105,7 @@ I invite you to *pray to know* Heavenly Father is there, *pray to grow* to becom
 
 [^11]: See [[John 13.34|John 13:34–35]][[John 13.35|]].
 
-[^12]: See [[Alma 20.26|Alma 20:26–27]][[Alma 20.27|]]; [[Alma 22.1|22]].
+[^12]: See [[Alma 20.26|Alma 20:26–27]][[Alma 20.27|]]; [[Alma 22.1|22]][[Alma 22.2|]][[Alma 22.3|]][[Alma 22.4|]][[Alma 22.5|]][[Alma 22.6|]][[Alma 22.7|]][[Alma 22.8|]][[Alma 22.9|]][[Alma 22.10|]][[Alma 22.11|]][[Alma 22.12|]][[Alma 22.13|]][[Alma 22.14|]][[Alma 22.15|]][[Alma 22.16|]][[Alma 22.17|]][[Alma 22.18|]][[Alma 22.19|]][[Alma 22.20|]][[Alma 22.21|]][[Alma 22.22|]][[Alma 22.23|]][[Alma 22.24|]][[Alma 22.25|]][[Alma 22.26|]][[Alma 22.27|]][[Alma 22.28|]][[Alma 22.29|]][[Alma 22.30|]][[Alma 22.31|]][[Alma 22.32|]][[Alma 22.33|]][[Alma 22.34|]][[Alma 22.35|]].
 
 [^13]: See [[2 Nephi 2.27|2 Nephi 2:27]]; [[Helaman 14.30|Helaman 14:30]].
 
@@ -115,7 +113,3 @@ I invite you to *pray to know* Heavenly Father is there, *pray to grow* to becom
 
 [^15]: See [[D&C 19.38|Doctrine and Covenants 19:38]].
 
-
-
-
-#God_The_Father #Jesus_Christ #Love #Prayer #Revelation #Spiritual_Growth

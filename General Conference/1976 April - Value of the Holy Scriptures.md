@@ -1,7 +1,5 @@
 # Value of the Holy Scriptures
 
-Spencer W. Kimball
-
 By Elder LeGrand Richards - *Of the Council of the Twelve*
 
 *Given in the April session of the 1976 General Conference*
@@ -99,4 +97,3 @@ May God help us to share the marvelous truths that have come to us in this dispe
 
 
 
-#Prophecy #Restoration #Scriptures

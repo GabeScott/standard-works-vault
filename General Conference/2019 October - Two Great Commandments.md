@@ -1,7 +1,5 @@
 # Two Great Commandments
 
-Jeffrey R. Holland
-
 By President Dallin H. Oaks - *First Counselor in the First Presidency*
 
 *Given in the October session of the 2019 General Conference*
@@ -109,7 +107,3 @@ Speaking of that prophecy, President Russell M. Nelson declared that “the day 
 
 [^23]: Russell M. Nelson, “[[2015 October - A Plea to My Sisters.md|A Plea to My Sisters]],” *Ensign* or *Liahona,* Nov. 2015, 96.
 
-
-
-
-#Commandments #Homosexuality #Love

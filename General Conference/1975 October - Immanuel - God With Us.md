@@ -1,7 +1,5 @@
 # Immanuel: God With Us
 
-Spencer W. Kimball
-
 By Elder Henry D. Taylor - *Assistant to the Council of the Twelve*
 
 *Given in the October session of the 1975 General Conference*
@@ -55,4 +53,3 @@ It is my prayer that every young man may prepare himself to accept a mission cal
 
 
 
-#Missionary_Work #Spirituality

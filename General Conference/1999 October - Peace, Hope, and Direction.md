@@ -1,7 +1,5 @@
 # Peace, Hope, and Direction
 
-Gordon B. Hinckley
-
 By Patricia P. Pinegar - *Recently Released Primary General President*
 
 *Given in the October session of the 1999 General Conference*
@@ -74,4 +72,3 @@ In the name of Jesus Christ, amen.
 
 
 
-#Children #Commandments #Death #Holy_Ghost #Home #Hope #Jesus_Christ #Obedience #Peace #Primary #Trust

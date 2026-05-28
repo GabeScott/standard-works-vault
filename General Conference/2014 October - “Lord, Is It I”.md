@@ -1,7 +1,5 @@
 # “Lord, Is It I?”
 
-Thomas S. Monson
-
 By President Dieter F. Uchtdorf - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 2014 General Conference*
@@ -145,7 +143,3 @@ Of this I testify and leave you my blessing in the name of Jesus Christ, amen.
 
 [^14]: [[D&C 1.28|Doctrine and Covenants 1:28]].
 
-
-
-
-#Conversion #Discipleship #Perspective #Pride #Priorities

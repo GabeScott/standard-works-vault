@@ -1,7 +1,5 @@
 # Be Thou an Example of the Believers
 
-Thomas S. Monson
-
 By Ann M. Dibb - *Second Counselor in the Young Women General Presidency*
 
 *Given in the April session of the 2009 General Conference*
@@ -87,4 +85,3 @@ May each of us strive to be “an example of the believers.” May we live the g
 
 
 
-#Example #Goals #Young_Women

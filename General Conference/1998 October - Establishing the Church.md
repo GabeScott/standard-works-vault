@@ -1,7 +1,5 @@
 # Establishing the Church
 
-Gordon B. Hinckley
-
 By Elder Earl M. Monson - *Of the Seventy*
 
 *Given in the October session of the 1998 General Conference*
@@ -55,7 +53,3 @@ Now is the time to establish the Lord’s Church by securing a confirmation of t
 
 [^7]: In Conference Report, Oct. 1954, 28.
 
-
-
-
-#Blessings #Church_Organization #Jesus_Christ #Plan_Of_Salvation #Scripture_Study

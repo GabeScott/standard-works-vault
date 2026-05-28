@@ -1,7 +1,5 @@
 # The Practice of Truth
 
-Gordon B. Hinckley
-
 By Bishop J. Richard Clarke - *Second Counselor in the Presiding Bishopric*
 
 *Given in the April session of the 1984 General Conference*
@@ -87,4 +85,3 @@ In the name of Jesus Christ, amen.
 
 
 
-#Honesty #Truth

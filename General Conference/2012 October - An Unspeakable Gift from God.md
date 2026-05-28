@@ -1,7 +1,5 @@
 # An Unspeakable Gift from God
 
-Thomas S. Monson
-
 By Elder Craig C. Christensen - *Of the Presidency of the Seventy*
 
 *Given in the October session of the 2012 General Conference*
@@ -105,7 +103,3 @@ I bear witness of the living reality and divine mission of the Holy Ghost and th
 
 [^19]: [[D&C 8.3|Doctrine and Covenants 8:3]]; see also [[D&C 8.2|verse 2]].
 
-
-
-
-#Holy_Ghost #Service #Temples

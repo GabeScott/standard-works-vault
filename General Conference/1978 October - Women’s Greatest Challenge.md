@@ -1,7 +1,5 @@
 # Women’s Greatest Challenge
 
-Spencer W. Kimball
-
 By Barbara B. Smith - *Relief Society General President*
 
 *Given in the October session of the 1978 General Conference*
@@ -59,4 +57,3 @@ May the Lord bless us as women with that eternal perspective. May our decisions 
 
 
 
-#Prayer #Prophets #Scripture_Study #Women

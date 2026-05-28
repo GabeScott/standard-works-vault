@@ -1,7 +1,5 @@
 # Keep the Commandments
 
-N. Eldon Tanner
-
 By Elder Sterling W. Sill - *Assistant to the Council of the Twelve*
 
 *Given in the October session of the 1972 General Conference*
@@ -79,4 +77,3 @@ May God help us to hear and to obey, I humbly pray in the name of Jesus Christ. 
 
 
 
-#Commandments #Obedience

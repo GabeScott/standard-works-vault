@@ -1,7 +1,5 @@
 # Happiness
 
-Ezra Taft Benson
-
 By Elder Jack H. Goaslind - *Of the Presidency of the First Quorum of the Seventy*
 
 *Given in the April session of the 1986 General Conference*
@@ -71,4 +69,3 @@ The commandments are guides to happiness. I implore you to follow them.
 
 
 
-#Adversity #Joy #Sin

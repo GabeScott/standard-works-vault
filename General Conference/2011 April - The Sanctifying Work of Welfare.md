@@ -1,7 +1,5 @@
 # The Sanctifying Work of Welfare
 
-Thomas S. Monson
-
 By Bishop H. David Burton - *Presiding Bishop*
 
 *Given in the April session of the 2011 General Conference*
@@ -97,7 +95,3 @@ The work of caring for one another and being “kind to the poor” is a sanctif
 
 [^17]: [[Luke 10.37|Luke 10:37]].
 
-
-
-
-#Charity #Self-Reliance #Service #Welfare

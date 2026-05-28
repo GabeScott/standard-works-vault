@@ -1,7 +1,5 @@
 # Spiritual Famine
 
-N. Eldon Tanner
-
 By Elder Howard W. Hunter - *Of the Council of the Twelve*
 
 *Given in the October session of the 1972 General Conference*
@@ -63,4 +61,3 @@ It is my witness that God lives and Jesus is the Christ, the Savior of the world
 
 
 
-#Church_Organization #Religion #Restoration #Spirituality

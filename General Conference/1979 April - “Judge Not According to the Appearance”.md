@@ -1,7 +1,5 @@
 # “Judge Not According to the Appearance”
 
-Spencer W. Kimball
-
 By Elder Boyd K. Packer - *Of the Council of the Twelve*
 
 *Given in the April session of the 1979 General Conference*
@@ -181,4 +179,3 @@ In the name of Jesus Christ, amen.
 
 
 
-#Criticism #Faith #Temptation

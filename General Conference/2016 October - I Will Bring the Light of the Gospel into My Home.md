@@ -1,7 +1,5 @@
 # I Will Bring the Light of the Gospel into My Home
 
-Jean B. Bingham
-
 By Jean B. Bingham - *First Counselor in the Primary General Presidency*
 
 *Given in the October session of the 2016 General Conference*
@@ -107,7 +105,3 @@ I bear my witness that as we follow His perfect example, we can receive the gift
 
 [^14]: “As Sisters in Zion,” *Hymns,* no. 309; emphasis added.
 
-
-
-
-#Charity #Jesus_Christ #Judging

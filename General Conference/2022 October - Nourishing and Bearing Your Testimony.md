@@ -1,7 +1,5 @@
 # Nourishing and Bearing Your Testimony
 
-Dallin H. Oaks
-
 By Elder Gary E. Stevenson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2022 General Conference*
@@ -193,7 +191,3 @@ I offer my testimony and witness to you—God is our Heavenly Father, Jesus Chri
 
 [^18]: [[D&C 42.17|Doctrine and Covenants 42:17]].
 
-
-
-
-#Faith #Fear #Jesus_Christ #Joseph_Smith #Testimony

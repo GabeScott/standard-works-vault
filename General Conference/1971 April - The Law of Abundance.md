@@ -1,7 +1,5 @@
 # The Law of Abundance
 
-Joseph Fielding Smith
-
 By Elder Franklin D. Richards - *Assistant to the Council of the Twelve*
 
 *Given in the April session of the 1971 General Conference*
@@ -89,4 +87,3 @@ Therefore, let us dispense the means which the Lord has given us to enrich the l
 
 
 
-#Tithing #Wealth

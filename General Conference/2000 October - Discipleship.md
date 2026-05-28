@@ -1,7 +1,5 @@
 # Discipleship
 
-Gordon B. Hinckley
-
 By Elder L. Tom Perry - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2000 General Conference*
@@ -89,4 +87,3 @@ Moreover, may God bless us that we will earnestly desire to do our spiritual hou
 
 
 
-#Discipleship #Education #Example #Home #Jesus_Christ #Obedience #Repentance #Worldliness

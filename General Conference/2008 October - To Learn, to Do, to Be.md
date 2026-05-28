@@ -1,7 +1,5 @@
 # To Learn, to Do, to Be
 
-Thomas S. Monson
-
 By President Thomas S. Monson - *President of the Church*
 
 *Given in the October session of the 2008 General Conference*
@@ -145,7 +143,3 @@ I leave with you my testimony that this work in which we are engaged is true. Th
 
 [^13]: Personal correspondence; emphasis added.
 
-
-
-
-#Duty #Education #Example #Priesthood

@@ -1,7 +1,5 @@
 # The Sustaining of Church Officers
 
-Thomas S. Monson
-
 By Presented by President Henry B. Eyring - *First Counselor in the First Presidency*
 
 *Given in the October session of the 2013 General Conference*

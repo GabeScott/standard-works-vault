@@ -1,7 +1,5 @@
 # The Reason for Our Hope
 
-Thomas S. Monson
-
 By President Boyd K. Packer - *President of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2014 General Conference*
@@ -75,4 +73,3 @@ As one of the Twelve Apostles, I bear witness of the Lord Jesus Christ. He lives
 
 
 
-#Atonement #Forgiveness #Hope #Jesus_Christ #Repentance #Testimony

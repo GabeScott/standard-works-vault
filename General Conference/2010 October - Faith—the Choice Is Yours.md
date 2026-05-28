@@ -1,7 +1,5 @@
 # Faith—the Choice Is Yours
 
-Thomas S. Monson
-
 By Bishop Richard C. Edgley - *First Counselor in the Presiding Bishopric*
 
 *Given in the October session of the 2010 General Conference*
@@ -51,4 +49,3 @@ And when we choose faith and then nurture that faith to a perfect knowledge of t
 
 
 
-#Agency #Faith #Jesus_Christ #Testimony

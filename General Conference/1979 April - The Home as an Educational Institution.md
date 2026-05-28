@@ -1,7 +1,5 @@
 # The Home as an Educational Institution
 
-Spencer W. Kimball
-
 By Elder G. Homer Durham - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1979 General Conference*
@@ -69,4 +67,3 @@ I pray that fathers will magnify their callings as true priesthood leaders and b
 
 
 
-#Home #Teaching

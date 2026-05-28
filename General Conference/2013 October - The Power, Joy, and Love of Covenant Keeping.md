@@ -1,7 +1,5 @@
 # The Power, Joy, and Love of Covenant Keeping
 
-Thomas S. Monson
-
 By Linda K. Burton - *Relief Society General President*
 
 *Given in the October session of the 2013 General Conference*
@@ -139,7 +137,3 @@ Let us remember that even those who have been wayward in the past or who are cur
 
 [^26]: [[John 10.11|John 10:11]].
 
-
-
-
-#Covenants #Love #Service

@@ -1,7 +1,5 @@
 # Roots and Branches
 
-Thomas S. Monson
-
 By Elder Quentin L. Cook - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2014 General Conference*
@@ -149,7 +147,3 @@ I bear witness of the Savior’s atoning sacrifice and the certainty of the Fath
 
 [^30]: See [[Obadiah 1.21|Obadiah 1:21]].
 
-
-
-
-#Family_History #Temples

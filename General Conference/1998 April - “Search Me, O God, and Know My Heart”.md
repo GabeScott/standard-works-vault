@@ -1,7 +1,5 @@
 # “Search Me, O God, and Know My Heart”
 
-Gordon B. Hinckley
-
 By President James E. Faust - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 1998 General Conference*
@@ -137,7 +135,3 @@ Faithful members of the Church who are true to their covenants with the Master d
 
 [^21]: [[Psalms 139.23|Ps. 139:23]].
 
-
-
-
-#Agency #Character #Commandments #Covenants #Evil #Family #Fasting #Holy_Ghost #Joy #Love #Marriage #Morality #Ordinances #Prayer #Sacrament #Satan #Service #Temples #Truth

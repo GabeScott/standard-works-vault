@@ -1,7 +1,5 @@
 # “Honour Thy Father and Thy Mother”
 
-Gordon B. Hinckley
-
 By Elder Lino Alvarez - *Of the Seventy*
 
 *Given in the October session of the 1992 General Conference*
@@ -47,4 +45,3 @@ I testify that Joseph Smith was a prophet of God and that through him the fulnes
 
 
 
-#Commandments #Obedience #Parenthood

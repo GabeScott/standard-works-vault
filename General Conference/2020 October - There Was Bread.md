@@ -1,7 +1,5 @@
 # There Was Bread
 
-Russell M. Nelson
-
 By Bishop W. Christopher Waddell - *First Counselor in the Presiding Bishopric*
 
 *Given in the October session of the 2020 General Conference*
@@ -113,7 +111,3 @@ Brothers and sisters, in an ever-changing world, we must prepare for uncertainti
 
 [^19]: [[Genesis 41.54|Genesis 41:54]].
 
-
-
-
-#Preparation #Self-Reliance

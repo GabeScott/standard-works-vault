@@ -1,7 +1,5 @@
 # The Divine Power of Repentance
 
-Spencer W. Kimball
-
 By Elder Bernard P. Brockbank - *Assistant to the Council of the Twelve*
 
 *Given in the October session of the 1974 General Conference*
@@ -81,4 +79,3 @@ Every day in our prayers we should thank God for the divine principle of repenta
 
 
 
-#Repentance

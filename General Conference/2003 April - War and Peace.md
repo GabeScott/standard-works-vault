@@ -1,7 +1,5 @@
 # War and Peace
 
-Gordon B. Hinckley
-
 By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the April session of the 2003 General Conference*
@@ -113,4 +111,3 @@ And there, my brothers and sisters, we rest our faith. Regardless of the circums
 
 
 
-#Contention #Faith #Military #Peace

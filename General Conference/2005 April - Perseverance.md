@@ -1,7 +1,5 @@
 # Perseverance
 
-Gordon B. Hinckley
-
 By President James E. Faust - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 2005 General Conference*
@@ -95,7 +93,3 @@ Those who desire to be baptized into the Church are required by the Lord to have
 
 [^12]: See [[John 8.31|John 8:31]].
 
-
-
-
-#Dedication #Service #Teaching

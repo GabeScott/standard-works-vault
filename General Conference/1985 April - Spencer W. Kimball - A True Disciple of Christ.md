@@ -1,7 +1,5 @@
 # Spencer W. Kimball: A True Disciple of Christ
 
-Gordon B. Hinckley
-
 By Elder Marvin J. Ashton - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1985 General Conference*
@@ -117,4 +115,3 @@ I leave you my witness that President Spencer W. Kimball is a prophet, preserved
 
 
 
-#Spencer_W._Kimball

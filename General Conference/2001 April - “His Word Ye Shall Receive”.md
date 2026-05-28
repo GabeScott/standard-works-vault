@@ -1,7 +1,5 @@
 # “His Word Ye Shall Receive”
 
-Gordon B. Hinckley
-
 By Elder M. Russell Ballard - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2001 General Conference*
@@ -61,4 +59,3 @@ My brothers and sisters, I testify to you that the fulness of the everlasting go
 
 
 
-#Adversity #Commandments #Family #Fatherhood #Joy #Leadership #Morality #Obedience #Parents #Peace #Prophets #Quorum_Of_The_Twelve_Apostles #Safety #Youth

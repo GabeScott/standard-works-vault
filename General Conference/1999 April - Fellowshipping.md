@@ -1,7 +1,5 @@
 # Fellowshipping
 
-Gordon B. Hinckley
-
 By Elder Ned B. Roueché - *Of the Seventy*
 
 *Given in the April session of the 1999 General Conference*
@@ -63,7 +61,3 @@ I leave you with my witness that Jesus is the Christ, our Savior and Redeemer. T
 
 [^4]: [[D&C 31.5|D&C 31:5]].
 
-
-
-
-#Activation #Atonement #Fellowshipping #Jesus_Christ #Priesthood #Talents

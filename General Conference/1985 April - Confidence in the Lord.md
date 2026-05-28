@@ -1,7 +1,5 @@
 # Confidence in the Lord
 
-Gordon B. Hinckley
-
 By Bishop Glenn L. Pace - *Second Counselor in the Presiding Bishopric*
 
 *Given in the April session of the 1985 General Conference*
@@ -39,4 +37,3 @@ Finally, I share the prayer of my heart with you at this time. May I display in 
 
 
 
-#Sacrifice #Service

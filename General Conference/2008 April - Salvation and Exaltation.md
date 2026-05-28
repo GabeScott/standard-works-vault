@@ -1,7 +1,5 @@
 # Salvation and Exaltation
 
-Dieter F. Uchtdorf
-
 By Elder Russell M. Nelson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2008 General Conference*
@@ -149,7 +147,3 @@ In those responsible roles, may we go forward in faith, led by Jesus Christ, who
 
 [^26]: See [[Alma 12.24|Alma 12:24]].
 
-
-
-
-#Family #Plan_Of_Salvation

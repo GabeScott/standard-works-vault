@@ -1,7 +1,5 @@
 # Counsel to the Saints
 
-Gordon B. Hinckley
-
 By President Ezra Taft Benson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1984 General Conference*
@@ -187,4 +185,3 @@ To this I testify and leave my blessing, in the name of Jesus Christ, amen.
 
 
 
-#Family #Spirituality

@@ -1,7 +1,5 @@
 # Restoring the Lost Sheep
 
-Gordon B. Hinckley
-
 By Elder Joseph B. Wirthlin - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1984 General Conference*
@@ -93,4 +91,3 @@ May the Lord bless us in this important work, I pray, in the name of Jesus Chris
 
 
 
-#Activation #Women

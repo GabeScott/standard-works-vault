@@ -1,7 +1,5 @@
 # Choose Wisely
 
-Thomas S. Monson
-
 By Elder Quentin L. Cook - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2014 General Conference*
@@ -117,7 +115,3 @@ My prayer is that as a body of priesthood holders, we will make our conduct cons
 
 [^23]: [[D&C 76.79|Doctrine and Covenants 76:79]].
 
-
-
-
-#Agency

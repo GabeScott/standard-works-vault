@@ -1,7 +1,5 @@
 # The Savior’s Touch
 
-Spencer W. Kimball
-
 By Elder M. Russell Ballard - *Of the Presidency of the First Quorum of the Seventy*
 
 *Given in the October session of the 1980 General Conference*
@@ -67,4 +65,3 @@ I bear testimony that Jesus is the Christ, the Son of the living God, that he to
 
 
 
-#Healing #Jesus_Christ #Service

@@ -1,7 +1,5 @@
 # Lost Luggage, Redeemed Souls
 
-Dallin H. Oaks
-
 By Elder Gary E. Stevenson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2026 General Conference*
@@ -149,5 +147,3 @@ That we may fulfill that mission for ourselves and diligently care for others as
 
 [^16]: “God’s love is so great that, except for the few who deliberately become sons of perdition, He has provided a destiny of glory for all of His children (see [[D&C 76.43|Doctrine and Covenants 76:43]])” (Dallin H. Oaks, “[[2020 April - The Great Plan.md|The Great Plan]],” *Liahona*, May 2020, 95).
 
-
-#Children #Love #Ministering #Redemption #Young_Adults #Youth

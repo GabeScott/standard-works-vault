@@ -1,7 +1,5 @@
 # Introductory Remarks
 
-Henry B. Eyring
-
 By President Russell M. Nelson - *President of the Church*
 
 *Given in the April session of the 2018 General Conference*
@@ -37,7 +35,3 @@ We are engaged in the work of Almighty God. Jesus is the Christ! We are His humb
 
 [^3]: [[D&C 1.21|Doctrine and Covenants 1:21]].
 
-
-
-
-#Melchizedek_Priesthood #Ministering #Priesthood_Quorums #Service

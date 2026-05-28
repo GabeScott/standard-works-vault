@@ -1,7 +1,5 @@
 # Pure Testimony
 
-Gordon B. Hinckley
-
 By Elder Joseph B. Wirthlin - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2000 General Conference*
@@ -165,7 +163,3 @@ I pray that you may do so and testify to the ends of the earth that the gospel o
 
 [^21]: In Conference Report, Apr. 2000, [[2000 April - My Testimony.md|88]]; or *Ensign,* May 2000, 71.
 
-
-
-
-#Duty #Faith #Holy_Ghost #Obedience #Prayer #Scripture_Study #Testimony

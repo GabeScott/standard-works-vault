@@ -1,7 +1,5 @@
 # The Administration of the Church
 
-Spencer W. Kimball
-
 By President N. Eldon Tanner - *First Counselor in the First Presidency*
 
 *Given in the October session of the 1979 General Conference*
@@ -195,4 +193,3 @@ We hope and pray always—every day—that the Church is being properly administ
 
 
 
-#Church_Organization #Leadership #Priesthood

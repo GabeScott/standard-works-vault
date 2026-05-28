@@ -1,7 +1,5 @@
 # Bonded to Jesus Christ: Becoming the Salt of the Earth
 
-Henry B. Eyring
-
 By Elder José A. Teixeira - *Of the Presidency of the Seventy*
 
 *Given in the October session of the 2024 General Conference*
@@ -61,7 +59,3 @@ As we remain bonded to the Lord, our lives will naturally reflect His light, and
 
 [^3]: Russell M. Nelson, “[[2021 April - What We Are Learning and Will Never Forget.md|What We Are Learning and Will Never Forget]],” *Liahona*, May 2021, 79.
 
-
-
-
-#Discipleship #Faith #Jesus_Christ #Service

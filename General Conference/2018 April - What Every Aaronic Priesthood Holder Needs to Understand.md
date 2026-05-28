@@ -1,7 +1,5 @@
 # What Every Aaronic Priesthood Holder Needs to Understand
 
-Henry B. Eyring
-
 By Douglas D. Holmes - *First Counselor in the Young Men General Presidency*
 
 *Given in the April session of the 2018 General Conference*
@@ -91,7 +89,7 @@ Young men, God has a work for you to do.[^30] Your Aaronic Priesthood ordination
 
 [^3]: See Dale G. Renlund, “[[2017 October - The Priesthood and the Savior’s Atoning Power.md|The Priesthood and the Savior’s Atoning Power]],” *Ensign* or *Liahona,* Nov. 2017, 64–67.
 
-[^4]: See [[2 Nephi 31.1|2 Nephi 31–32]]; [[3 Nephi 11.30|3 Nephi 11:30–41]][[3 Nephi 11.31|]][[3 Nephi 11.32|]][[3 Nephi 11.33|]][[3 Nephi 11.34|]][[3 Nephi 11.35|]][[3 Nephi 11.36|]][[3 Nephi 11.37|]][[3 Nephi 11.38|]][[3 Nephi 11.39|]][[3 Nephi 11.40|]][[3 Nephi 11.41|]]; [[3 Nephi 27.13|27:13–21]][[3 Nephi 27.14|]][[3 Nephi 27.15|]][[3 Nephi 27.16|]][[3 Nephi 27.17|]][[3 Nephi 27.18|]][[3 Nephi 27.19|]][[3 Nephi 27.20|]][[3 Nephi 27.21|]]; [[Ether 4.18|Ether 4:18–19]][[Ether 4.19|]]; [[Moses 6.52|Moses 6:52–68]][[Moses 6.53|]][[Moses 6.54|]][[Moses 6.55|]][[Moses 6.56|]][[Moses 6.57|]][[Moses 6.58|]][[Moses 6.59|]][[Moses 6.60|]][[Moses 6.61|]][[Moses 6.62|]][[Moses 6.63|]][[Moses 6.64|]][[Moses 6.65|]][[Moses 6.66|]][[Moses 6.67|]][[Moses 6.68|]]; [[Moses 8.24|8:24]].
+[^4]: See [[2 Nephi 31.1|2 Nephi 31–32]][[2 Nephi 31.2|]][[2 Nephi 31.3|]][[2 Nephi 31.4|]][[2 Nephi 31.5|]][[2 Nephi 31.6|]][[2 Nephi 31.7|]][[2 Nephi 31.8|]][[2 Nephi 31.9|]][[2 Nephi 31.10|]][[2 Nephi 31.11|]][[2 Nephi 31.12|]][[2 Nephi 31.13|]][[2 Nephi 31.14|]][[2 Nephi 31.15|]][[2 Nephi 31.16|]][[2 Nephi 31.17|]][[2 Nephi 31.18|]][[2 Nephi 31.19|]][[2 Nephi 31.20|]][[2 Nephi 31.21|]]; [[3 Nephi 11.30|3 Nephi 11:30–41]][[3 Nephi 11.31|]][[3 Nephi 11.32|]][[3 Nephi 11.33|]][[3 Nephi 11.34|]][[3 Nephi 11.35|]][[3 Nephi 11.36|]][[3 Nephi 11.37|]][[3 Nephi 11.38|]][[3 Nephi 11.39|]][[3 Nephi 11.40|]][[3 Nephi 11.41|]]; [[3 Nephi 27.13|27:13–21]][[3 Nephi 27.14|]][[3 Nephi 27.15|]][[3 Nephi 27.16|]][[3 Nephi 27.17|]][[3 Nephi 27.18|]][[3 Nephi 27.19|]][[3 Nephi 27.20|]][[3 Nephi 27.21|]]; [[Ether 4.18|Ether 4:18–19]][[Ether 4.19|]]; [[Moses 6.52|Moses 6:52–68]][[Moses 6.53|]][[Moses 6.54|]][[Moses 6.55|]][[Moses 6.56|]][[Moses 6.57|]][[Moses 6.58|]][[Moses 6.59|]][[Moses 6.60|]][[Moses 6.61|]][[Moses 6.62|]][[Moses 6.63|]][[Moses 6.64|]][[Moses 6.65|]][[Moses 6.66|]][[Moses 6.67|]][[Moses 6.68|]]; [[Moses 8.24|8:24]].
 
 [^5]: [[Moroni 10.32|Moroni 10:32]]; see also *[Preach My Gospel: A Guide to Missionary Service](https://www.churchofjesuschrist.org/study/manual/preach-my-gospel-a-guide-to-missionary-service/what-is-my-purpose-as-a-missionary?lang=eng)* (2004), 6.
 
@@ -145,7 +143,3 @@ Young men, God has a work for you to do.[^30] Your Aaronic Priesthood ordination
 
 [^30]: See [[Moses 1.6|Moses 1:6]].
 
-
-
-
-#Aaronic_Priesthood #Angels #Atonement #Duty #Faith #Ordinances #Repentance #Teaching

@@ -1,7 +1,5 @@
 # Young Women—Real Guardians
 
-Spencer W. Kimball
-
 By Elder David B. Haight - *Of the Council of the Twelve*
 
 *Given in the October session of the 1977 General Conference*
@@ -75,4 +73,3 @@ God’s work cannot fail. His work and purpose will succeed. In the end righteou
 
 
 
-#Character #Missionary_Work #Morality #Women

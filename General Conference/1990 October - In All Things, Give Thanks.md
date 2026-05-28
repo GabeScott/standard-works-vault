@@ -1,7 +1,5 @@
 # In All Things, Give Thanks
 
-Gordon B. Hinckley
-
 By Elder Helio R. Camargo - *Of the Seventy*
 
 *Given in the October session of the 1990 General Conference*
@@ -43,4 +41,3 @@ May human pride and pretensions never arise in us to cause us to imagine in thos
 
 
 
-#Gratitude #Joseph_Smith #Scriptures

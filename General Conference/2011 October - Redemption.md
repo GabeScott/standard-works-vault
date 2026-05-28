@@ -1,7 +1,5 @@
 # Redemption
 
-Richard G. Scott
-
 By Elder LeGrand R. Curtis Jr. - *Of the Seventy*
 
 *Given in the October session of the 2011 General Conference*
@@ -72,4 +70,3 @@ I bear my testimony of the power of Christ’s Atonement. When we repent and com
 
 
 
-#Atonement #Forgiveness #Jesus_Christ #Plan_Of_Salvation #Repentance

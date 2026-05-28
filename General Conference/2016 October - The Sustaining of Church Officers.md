@@ -1,7 +1,5 @@
 # The Sustaining of Church Officers
 
-Jean B. Bingham
-
 By Presented by President Henry B. Eyring - *First Counselor in the First Presidency*
 
 *Given in the October session of the 2016 General Conference*

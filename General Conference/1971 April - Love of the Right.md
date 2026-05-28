@@ -1,7 +1,5 @@
 # Love of the Right
 
-Joseph Fielding Smith
-
 By Elder Marvin J. Ashton - *Assistant to the Council of the Twelve*
 
 *Given in the April session of the 1971 General Conference*
@@ -73,4 +71,3 @@ As we unitedly work to help our youth in combatting and avoiding all of the temp
 
 
 
-#Family #Word_Of_Wisdom

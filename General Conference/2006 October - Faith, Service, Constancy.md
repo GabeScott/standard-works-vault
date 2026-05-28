@@ -1,7 +1,5 @@
 # Faith, Service, Constancy
 
-Gordon B. Hinckley
-
 By Elder David S. Baxter - *Of the Seventy*
 
 *Given in the October session of the 2006 General Conference*
@@ -89,7 +87,3 @@ Of this I testify in the name of Jesus Christ, amen.
 
 [^7]: [[2 Corinthians 4.6|2 Corinthians 4:6]].
 
-
-
-
-#Adversity #Endurance #Faith #Service

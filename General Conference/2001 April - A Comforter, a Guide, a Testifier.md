@@ -1,7 +1,5 @@
 # A Comforter, a Guide, a Testifier
 
-Gordon B. Hinckley
-
 By Margaret D. Nadauld - *Young Women General President*
 
 *Given in the April session of the 2001 General Conference*
@@ -57,4 +55,3 @@ I began with a song reminding us of the days when the Savior lived on earth amon
 
 
 
-#Activation #Atonement #Holy_Ghost #Humility #Jesus_Christ #Peace #Prayer #Spirituality #Testimony #Young_Women

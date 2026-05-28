@@ -1,7 +1,5 @@
 # Focus and Priorities
 
-Gordon B. Hinckley
-
 By Elder Dallin H. Oaks - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2001 General Conference*
@@ -87,4 +85,3 @@ In the name of Jesus Christ, amen.
 
 
 
-#Accountability #Family #Holy_Ghost #Kingdom_Of_God #Media #Obedience #Perspective #Prayer #Priorities #Scripture_Study #Spirituality #Teaching #Temples #Time_Management #Wisdom

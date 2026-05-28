@@ -1,7 +1,5 @@
 # The Covenant Path: The Way to Eternal Life
 
-Russell M. Nelson
-
 By Elder Adeyinka A. Ojediran - *Of the Seventy*
 
 *Given in the April session of the 2022 General Conference*
@@ -53,4 +51,3 @@ I testify that covenant keepers are promised “peace in this world, and eternal
 
 
 
-#Covenants #Holy_Ghost #Jesus_Christ #Ordinances #Sacrament

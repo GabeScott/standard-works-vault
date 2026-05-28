@@ -1,7 +1,5 @@
 # Your Patriarchal Blessing—Inspired Direction from Heavenly Father
 
-Gary E. Stevenson
-
 By Elder Randall K. Bennett - *Of the Seventy*
 
 *Given in the April session of the 2023 General Conference*
@@ -77,7 +75,3 @@ I testify that patriarchal blessings do provide inspired direction from Heavenly
 
 [^12]: Inspired by James E. Faust, “[[1995 October - Priesthood Blessings.md|Priesthood Blessings]],” *Ensign*, Nov. 1995, 62–64.
 
-
-
-
-#Courage #Divine_Nature #Patriarchal_Blessings

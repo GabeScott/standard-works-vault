@@ -1,7 +1,5 @@
 # Mrs. Patton—the Story Continues
 
-Gordon B. Hinckley
-
 By President Thomas S. Monson - *First Counselor in the First Presidency*
 
 *Given in the October session of the 2007 General Conference*
@@ -167,7 +165,3 @@ Will we listen for that knock? Will we hear that voice? Will we open that door t
 
 [^16]: [[Revelation 3.20|Revelation 3:20]].
 
-
-
-
-#Death #Jesus_Christ #Resurrection

@@ -1,7 +1,5 @@
 # Light and Truth
 
-Marion G. Romney
-
 By Elder Theodore M. Burton - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1981 General Conference*
@@ -81,4 +79,3 @@ Now, there are those who believe that this is just another church. There are eve
 
 
 
-#Truth

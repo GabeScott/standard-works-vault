@@ -1,7 +1,5 @@
 # Draw Strength from the Book of Mormon
 
-Gordon B. Hinckley
-
 By Ruth B. Wright - *Second Counselor in the Primary General Presidency*
 
 *Given in the October session of the 1990 General Conference*
@@ -71,4 +69,3 @@ My dear brothers and sisters, I testify that by prayerfully reading and ponderin
 
 
 
-#Book_Of_Mormon #Scriptures

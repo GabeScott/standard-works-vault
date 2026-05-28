@@ -1,7 +1,5 @@
 # The Priesthood—a Sacred Gift
 
-Thomas S. Monson
-
 By President Thomas S. Monson - *First Counselor in the First Presidency*
 
 *Given in the April session of the 2007 General Conference*
@@ -85,7 +83,3 @@ May we each have the courage to do so, I pray in the name of Jesus Christ, amen.
 
 [^7]: [[D&C 107.99|D&C 107:99]].
 
-
-
-
-#Courage #Gratitude #Priesthood #Tithing #Worthiness

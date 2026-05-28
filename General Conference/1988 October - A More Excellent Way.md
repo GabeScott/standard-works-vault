@@ -1,7 +1,5 @@
 # A More Excellent Way
 
-Ezra Taft Benson
-
 By Elder Robert E. Sackley - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1988 General Conference*
@@ -57,4 +55,3 @@ May you have this experience, I pray humbly, in the name of Jesus Christ, amen.
 
 
 
-#Conversion #Testimony

@@ -1,7 +1,5 @@
 # Shepherds of Israel
 
-Ezra Taft Benson
-
 By Elder John R. Lasater - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1988 General Conference*
@@ -45,4 +43,3 @@ I testify, with all the fervency of my soul, regarding the need we have to be tr
 
 
 
-#Jesus_Christ #Leadership

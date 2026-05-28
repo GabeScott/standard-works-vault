@@ -1,7 +1,5 @@
 # Priesthood Power
 
-Thomas S. Monson
-
 By President Thomas S. Monson - *President of the Church*
 
 *Given in the April session of the 2011 General Conference*
@@ -117,7 +115,3 @@ My beloved brethren, may righteousness guide our every step as we journey throug
 
 [^10]: See Gordon B. Hinckley, in Conference Report, Apr. 2002, [[2002 April - Personal Worthiness to Exercise the Priesthood.md|62–66]]; or *Ensign,* May 2002, 52–59.
 
-
-
-
-#Marriage #Priesthood #Testimony #Worthiness

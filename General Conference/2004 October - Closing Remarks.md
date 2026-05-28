@@ -1,7 +1,5 @@
 # Closing Remarks
 
-Gordon B. Hinckley
-
 By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the October session of the 2004 General Conference*
@@ -31,4 +29,3 @@ Now, my brothers and sisters, I express to you again my love. May heaven smile u
 
 
 
-#Courage #Faith #Repentance #Temples

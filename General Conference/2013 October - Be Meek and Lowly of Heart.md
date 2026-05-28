@@ -1,7 +1,5 @@
 # Be Meek and Lowly of Heart
 
-Thomas S. Monson
-
 By Elder Ulisses Soares - *Of the Presidency of the Seventy*
 
 *Given in the October session of the 2013 General Conference*
@@ -101,7 +99,3 @@ I bear my witness that Jesus Christ is our Savior. I testify to you that, thanks
 
 [^16]: [[Luke 23.34|Luke 23:34]].
 
-
-
-
-#Humility #Meekness #Self-Control

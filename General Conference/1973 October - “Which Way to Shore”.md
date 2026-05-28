@@ -1,7 +1,5 @@
 # “Which Way to Shore?”
 
-Harold B. Lee
-
 By Elder William H. Bennett - *Assistant to the Council of the Twelve*
 
 *Given in the October session of the 1973 General Conference*
@@ -92,4 +90,3 @@ I leave you my testimony, my brothers and sisters, that the gospel of Jesus Chri
 
 
 
-#Compassion #Plan_Of_Salvation

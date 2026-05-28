@@ -1,7 +1,5 @@
 # You Know Enough
 
-Thomas S. Monson
-
 By Elder Neil L. Andersen - *Of the Presidency of the Seventy*
 
 *Given in the October session of the 2008 General Conference*
@@ -73,7 +71,3 @@ Jesus is the Christ. He is resurrected. He is our Savior and Redeemer. All will 
 
 [^6]: [[Matthew 18.3|Matthew 18:3]].
 
-
-
-
-#Adversity #Faith #Testimony

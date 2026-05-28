@@ -1,7 +1,5 @@
 # Loyalty
 
-Gordon B. Hinckley
-
 By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the April session of the 2003 General Conference*
@@ -102,4 +100,3 @@ May the blessings of heaven rest upon you and your families, my dear brethren. M
 
 
 
-#Loyalty #Marriage #Media #Morality #Priesthood

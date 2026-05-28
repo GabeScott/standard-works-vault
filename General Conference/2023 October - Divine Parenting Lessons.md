@@ -1,7 +1,5 @@
 # Divine Parenting Lessons
 
-David A. Bednar
-
 By Elder Valeri V. Cordón - *Of the Seventy*
 
 *Given in the October session of the 2023 General Conference*
@@ -123,7 +121,3 @@ As we partner with God through covenants and become His agents in the care of ou
 
 [^27]: [[2 Nephi 25.26|2 Nephi 25:26]].
 
-
-
-
-#Agency #Children #Discipleship #Parenthood #Patriarchal_Blessings #Teaching #Testimony

@@ -1,7 +1,5 @@
 # All Will Be Well Because of Temple Covenants
 
-Dallin H. Oaks
-
 By President Henry B. Eyring - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 2024 General Conference*
@@ -91,7 +89,3 @@ I give you my sure witness that Jesus is the Christ. He lives and leads His Chur
 
 [^9]: See [[2 Corinthians 12.7|2 Corinthians 12:7–10]][[2 Corinthians 12.8|]][[2 Corinthians 12.9|]][[2 Corinthians 12.10|]].
 
-
-
-
-#Covenants #Ordinances #Peace #Sealings #Spiritual_Growth #Temples

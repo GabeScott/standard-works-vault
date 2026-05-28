@@ -1,7 +1,5 @@
 # Prayer
 
-Gordon B. Hinckley
-
 By Elder Henry B. Eyring - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2001 General Conference*
@@ -109,7 +107,3 @@ In the sacred name of Jesus Christ, amen.
 
 [^10]: [[Mosiah 5.13|Mosiah 5:13]].
 
-
-
-
-#Agency #Courage #Dedication #Faith #God_The_Father #Obedience #Ordinances #Prayer #Prophets #Satan #Scriptures #Spirituality

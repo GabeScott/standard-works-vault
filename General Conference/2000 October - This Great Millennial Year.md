@@ -1,7 +1,5 @@
 # This Great Millennial Year
 
-Gordon B. Hinckley
-
 By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the October session of the 2000 General Conference*
@@ -169,4 +167,3 @@ Wilt Thou smile with favor upon us, we pray in the sacred name of our Lord Jesus
 
 
 
-#Commandments #Education #Jesus_Christ #Missionary_Work #Prayer #Temple_Square

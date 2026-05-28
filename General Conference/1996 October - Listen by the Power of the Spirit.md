@@ -1,7 +1,5 @@
 # Listen by the Power of the Spirit
 
-Gordon B. Hinckley
-
 By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the October session of the 1996 General Conference*
@@ -43,4 +41,3 @@ For this I pray in the name of Jesus Christ, amen.
 
 
 
-#Church_Leaders #Listening #Pioneers #Preparation #Unity

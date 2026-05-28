@@ -1,7 +1,5 @@
 # The Witness
 
-Thomas S. Monson
-
 By President Boyd K. Packer - *President of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2014 General Conference*
@@ -101,4 +99,3 @@ I bear my witness that the Savior lives. I *know* the Lord. I am His witness. I 
 
 
 
-#God_The_Father #Holy_Ghost #Jesus_Christ #Parenthood #Testimony #Truth

@@ -1,7 +1,5 @@
 # The Relief Society Role in Priesthood Councils
 
-Spencer W. Kimball
-
 By Barbara B. Smith - *Relief Society General President*
 
 *Given in the October session of the 1979 General Conference*
@@ -95,4 +93,3 @@ Brethren, the Relief Society presidents of the Church are anxious to share of th
 
 
 
-#Charity #Welfare #Women

@@ -1,7 +1,5 @@
 # Sacrament of the Lord’s Supper
 
-James E. Faust
-
 By Elder L. Tom Perry - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1996 General Conference*
@@ -83,4 +81,3 @@ I encourage each of you to be faithful in your attendance at sacrament meeting. 
 
 
 
-#Atonement #Church_Organization #Covenants #Jesus_Christ #Plan_Of_Salvation #Sacrament #Sacrifice

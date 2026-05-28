@@ -1,7 +1,5 @@
 # “Thy Will Be Done, O Lord”
 
-N. Eldon Tanner
-
 By Elder Franklin D. Richards - *Assistant to the Council of the Twelve*
 
 *Given in the October session of the 1972 General Conference*
@@ -111,4 +109,3 @@ I bear you this witness in the name of Jesus Christ. Amen.
 
 
 
-#Joy #Obedience

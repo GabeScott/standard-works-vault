@@ -1,7 +1,5 @@
 # The Household of Faith
 
-Spencer W. Kimball
-
 By Bishop J. Richard Clarke - *Second Counselor in the Presiding Bishopric*
 
 *Given in the October session of the 1980 General Conference*
@@ -117,4 +115,3 @@ Such a people will be known as the “household of faith” ([[D&C 121.45|D&C 12
 
 
 
-#Preparation #Welfare

@@ -1,7 +1,5 @@
 # The Father
 
-Russell M. Nelson
-
 By Brian K. Ashton - *Second Counselor in the Sunday School General Presidency*
 
 *Given in the October session of the 2018 General Conference*
@@ -227,7 +225,3 @@ I testify that your Heavenly Father loves *you* and wants *you* to live with Him
 
 [^67]: [[D&C 78.17|Doctrine and Covenants 78:17–18]][[D&C 78.18|]].
 
-
-
-
-#God_The_Father #Holy_Ghost #Jesus_Christ #Premortal_Existence #Resurrection

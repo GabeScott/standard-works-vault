@@ -1,7 +1,5 @@
 # Pure Testimony
 
-Gordon B. Hinckley
-
 By Elder M. Russell Ballard - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2004 General Conference*
@@ -63,4 +61,3 @@ May the Lord bless you as you continue to nurture your testimonies through your 
 
 
 
-#Holy_Ghost #Jesus_Christ #Missionary_Work #Restoration #Testimony

@@ -1,7 +1,5 @@
 # His Arm Is Sufficient
 
-Thomas S. Monson
-
 By Barbara Thompson - *Second Counselor in the Relief Society General Presidency*
 
 *Given in the April session of the 2009 General Conference*
@@ -108,7 +106,3 @@ We must be “fixed in \[our\] purpose”[^13] as we seek to increase in faith a
 
 [^13]: “The Time Is Far Spent,” *Hymns,* no. 266.
 
-
-
-
-#Faith #Family #Service

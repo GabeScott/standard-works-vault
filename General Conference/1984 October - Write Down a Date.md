@@ -1,7 +1,5 @@
 # Write Down a Date
 
-Gordon B. Hinckley
-
 By Elder M. Russell Ballard - *Of the Presidency of the First Quorum of the Seventy*
 
 *Given in the October session of the 1984 General Conference*
@@ -71,4 +69,3 @@ May God bless all of us that we will have the courage to commit ourselves to a s
 
 
 
-#Conversion #Missionary_Work #Ordinances #Plan_Of_Salvation

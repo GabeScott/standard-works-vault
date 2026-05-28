@@ -1,7 +1,5 @@
 # The Priesthood—a Sacred Gift
 
-Cheryl A. Esplin
-
 By President Thomas S. Monson - *President of the Church*
 
 *Given in the April session of the 2015 General Conference*
@@ -69,7 +67,3 @@ As bearers of the priesthood of God, we are engaged in the work of the Lord Jesu
 
 [^2]: [[Alma 17.2|Alma 17:2–3]][[Alma 17.3|]].
 
-
-
-
-#Aaronic_Priesthood #Blessings #Church_Callings #Duty #Priesthood

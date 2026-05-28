@@ -1,7 +1,5 @@
 # Missionary Work: Sharing What Is in Your Heart
 
-Ulisses Soares
-
 By Elder Dieter F. Uchtdorf - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2019 General Conference*
@@ -167,7 +165,3 @@ I so testify in the name of Jesus Christ, amen.
 
 [^20]: [[D&C 45.44|Doctrine and Covenants 45:44]].
 
-
-
-
-#Missionary_Work

@@ -1,7 +1,5 @@
 # Born of God
 
-Gordon B. Hinckley
-
 By President Ezra Taft Benson - *President of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1985 General Conference*
@@ -105,4 +103,3 @@ May we be convinced that Jesus is the Christ, choose to follow Him, be changed f
 
 
 
-#Jesus_Christ #Repentance

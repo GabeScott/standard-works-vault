@@ -1,7 +1,5 @@
 # The Last Dispensation
 
-Wilford G. Edling
-
 By Elder Alvin R. Dyer - *Assistant to the Council of the Twelve*
 
 *Given in the April session of the 1972 General Conference*
@@ -81,4 +79,3 @@ Of these things I bear my personal witness as conveyed to me by the power of the
 
 
 
-#Dispensations

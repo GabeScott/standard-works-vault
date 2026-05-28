@@ -1,7 +1,5 @@
 # The Greatest Easter Story Ever Told
 
-Gary E. Stevenson
-
 By Elder Gary E. Stevenson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2023 General Conference*
@@ -40,7 +38,7 @@ As Lesa and I continued to ponder and seek ways to expand our family Easter cele
 
 And then we had this heavenly epiphany: In addition to the important verses about Easter in the New Testament, we as Latter-day Saints are endowed with a most remarkable Easter gift! A gift of unique witness, another testament of the Easter miracle that contains perhaps the most magnificent Easter scriptures in all of Christianity. I am referring of course to the Book of Mormon and, more specifically, to the account of Jesus Christ appearing to inhabitants in the New World in His resurrected glory.
 
-The Prophet Joseph Smith described the Book of Mormon as “the most correct of any book,”[^5] and beginning with [[3 Nephi 11.1|3 Nephi 11]], it tells the magnificent story of the resurrected Christ’s visit to the Nephites, the Savior’s Easter ministry. These Easter scriptures bear record of the Resurrection of the Lord Jesus Christ.
+The Prophet Joseph Smith described the Book of Mormon as “the most correct of any book,”[^5] and beginning with [[3 Nephi 11.1|3 Nephi 11]][[3 Nephi 11.2|]][[3 Nephi 11.3|]][[3 Nephi 11.4|]][[3 Nephi 11.5|]][[3 Nephi 11.6|]][[3 Nephi 11.7|]][[3 Nephi 11.8|]][[3 Nephi 11.9|]][[3 Nephi 11.10|]][[3 Nephi 11.11|]][[3 Nephi 11.12|]][[3 Nephi 11.13|]][[3 Nephi 11.14|]][[3 Nephi 11.15|]][[3 Nephi 11.16|]][[3 Nephi 11.17|]][[3 Nephi 11.18|]][[3 Nephi 11.19|]][[3 Nephi 11.20|]][[3 Nephi 11.21|]][[3 Nephi 11.22|]][[3 Nephi 11.23|]][[3 Nephi 11.24|]][[3 Nephi 11.25|]][[3 Nephi 11.26|]][[3 Nephi 11.27|]][[3 Nephi 11.28|]][[3 Nephi 11.29|]][[3 Nephi 11.30|]][[3 Nephi 11.31|]][[3 Nephi 11.32|]][[3 Nephi 11.33|]][[3 Nephi 11.34|]][[3 Nephi 11.35|]][[3 Nephi 11.36|]][[3 Nephi 11.37|]][[3 Nephi 11.38|]][[3 Nephi 11.39|]][[3 Nephi 11.40|]][[3 Nephi 11.41|]], it tells the magnificent story of the resurrected Christ’s visit to the Nephites, the Savior’s Easter ministry. These Easter scriptures bear record of the Resurrection of the Lord Jesus Christ.
 
 In these chapters, Christ calls twelve disciples, teaches as He did in His Sermon on the Mount, announces that He has fulfilled the law of Moses, and prophesies about the latter-day gathering of Israel. He heals the sick and prays for the people in such a glorious way that “no tongue can speak, neither can there be written by any man, neither can the hearts of men conceive so great and marvelous things as we both saw and heard Jesus speak; and no one can conceive of the joy which filled our souls at the time we heard him pray for us unto the Father.”[^6]
 
@@ -113,7 +111,3 @@ I close with my testimony of the truthfulness of the Book of Mormon and of Jesus
 
 [^8]: [[Mosiah 3.20|Mosiah 3:20]].
 
-
-
-
-#Book_Of_Mormon #Christmas #Easter #Jesus_Christ #Resurrection

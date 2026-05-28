@@ -1,7 +1,5 @@
 # Eternal Joy Is Eternal Growth
 
-Joseph Fielding Smith
-
 By Elder Joseph Anderson - *Assistant to the Council of the Twelve*
 
 *Given in the April session of the 1971 General Conference*
@@ -75,4 +73,3 @@ I testify that Jesus is the Christ and that he is the author of the restored gos
 
 
 
-#Plan_Of_Salvation

@@ -1,7 +1,5 @@
 # Our Duty to God
 
-Gordon B. Hinckley
-
 By Elder Cecil O. Samuelson Jr. - *Of the Presidency of the Seventy*
 
 *Given in the October session of the 2001 General Conference*
@@ -103,7 +101,3 @@ You must remember that your duty to God is very clearly linked to your duties to
 
 [^14]: [[1 Samuel 3.10|1 Sam. 3:10]].
 
-
-
-
-#Commandments #Conversion #Duty #Education #Goals #God_The_Father #Jesus_Christ #Parents #Preparation #Priesthood #Respect #Responsibility #Service #Testimony #Worthiness #Youth

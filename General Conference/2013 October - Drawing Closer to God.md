@@ -1,7 +1,5 @@
 # Drawing Closer to God
 
-Thomas S. Monson
-
 By Elder Terence M. Vinson - *Of the Seventy*
 
 *Given in the October session of the 2013 General Conference*
@@ -65,4 +63,3 @@ Because of the multiplicity of experiences and the power with which the Spirit h
 
 
 
-#Adversity #Faith #Love

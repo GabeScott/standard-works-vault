@@ -1,7 +1,5 @@
 # What Has Our Savior Done for Us?
 
-Russell M. Nelson
-
 By President Dallin H. Oaks - *First Counselor in the First Presidency*
 
 *Given in the April session of the 2021 General Conference*
@@ -80,7 +78,7 @@ I testify of all of this and pray that we all will remember what our Savior has 
 
 [^1]: See, for example, [[1 Corinthians 15.19|1 Corinthians 15:19–22]][[1 Corinthians 15.20|]][[1 Corinthians 15.21|]][[1 Corinthians 15.22|]]; [[Helaman 14.17|Helaman 14:17]]; [[Mormon 9.13|Mormon 9:13]].
 
-[^2]: See [[Alma 41.1|Alma 41]].
+[^2]: See [[Alma 41.1|Alma 41]][[Alma 41.2|]][[Alma 41.3|]][[Alma 41.4|]][[Alma 41.5|]][[Alma 41.6|]][[Alma 41.7|]][[Alma 41.8|]][[Alma 41.9|]][[Alma 41.10|]][[Alma 41.11|]][[Alma 41.12|]][[Alma 41.13|]][[Alma 41.14|]][[Alma 41.15|]].
 
 [^3]: “How Great the Wisdom and the Love,” *Hymns*, no. 195, verse 2.
 
@@ -90,7 +88,3 @@ I testify of all of this and pray that we all will remember what our Savior has 
 
 [^6]: See Topical Guide, “[[Follow|Follow]].”
 
-
-
-
-#Adversity #Atonement #Jesus_Christ #Love #Plan_Of_Salvation #Repentance #Resurrection

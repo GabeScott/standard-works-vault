@@ -1,7 +1,5 @@
 # Maintaining Spirituality
 
-Spencer W. Kimball
-
 By President Marion G. Romney - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 1979 General Conference*
@@ -165,4 +163,3 @@ Such is the pattern, my beloved brothers and sisters, for maintaining spirituali
 
 
 
-#Spirituality

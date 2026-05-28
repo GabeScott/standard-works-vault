@@ -1,7 +1,5 @@
 # “Hear Ye Him!”
 
-Spencer W. Kimball
-
 By Elder Mark E. Petersen - *Of the Council of the Twelve*
 
 *Given in the October session of the 1975 General Conference*
@@ -119,4 +117,3 @@ We testify that God does live. He is the Creator of the world. We testify that J
 
 
 
-#Church_Growth #Restoration

@@ -1,7 +1,5 @@
 # Introduction
 
-Dallin H. Oaks
-
 By President Dallin H. Oaks - *President of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2025 General Conference*
@@ -25,4 +23,3 @@ My own brief tribute—suitable to this conference and to the tributes we have a
 
 
 
-#Church_Leaders #General_Conference

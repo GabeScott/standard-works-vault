@@ -1,7 +1,5 @@
 # Receive the Holy Ghost
 
-Thomas S. Monson
-
 By Elder David A. Bednar - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2010 General Conference*
@@ -91,4 +89,3 @@ I bear witness of the living reality of the Father and the Son. I testify the Ho
 
 
 
-#Baptism #Holy_Ghost #Obedience #Restoration #Revelation

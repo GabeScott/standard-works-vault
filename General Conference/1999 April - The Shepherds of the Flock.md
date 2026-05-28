@@ -1,7 +1,5 @@
 # The Shepherds of the Flock
 
-Gordon B. Hinckley
-
 By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the April session of the 1999 General Conference*
@@ -105,4 +103,3 @@ May the blessings of heaven come down upon your wives and your children. Someday
 
 
 
-#Bishops #Evil #Example #Honesty #Priesthood #Worldliness

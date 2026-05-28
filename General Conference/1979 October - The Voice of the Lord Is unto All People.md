@@ -1,7 +1,5 @@
 # The Voice of the Lord Is unto All People
 
-Spencer W. Kimball
-
 By Elder W. Grant Bangerter - *Of the Presidency of the First Quorum of the Seventy*
 
 *Given in the October session of the 1979 General Conference*
@@ -43,4 +41,3 @@ To all of you of whom I have made mention—unbelievers; nonmembers; members of 
 
 
 
-#Obedience #Prophets

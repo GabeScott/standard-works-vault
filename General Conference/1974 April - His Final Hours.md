@@ -1,7 +1,5 @@
 # His Final Hours
 
-Spencer W. Kimball
-
 By Elder Howard W. Hunter - *Of the Council of the Twelve*
 
 *Given in the April session of the 1974 General Conference*
@@ -85,4 +83,3 @@ History bears well the burden of providing ample evidence of his death. As surel
 
 
 
-#Jesus_Christ #Passover

@@ -1,7 +1,5 @@
 # “This Is My Gospel”
 
-Harold B. Lee
-
 By Elder Howard W. Hunter - *Of the Council of the Twelve*
 
 *Given in the April session of the 1973 General Conference*
@@ -95,4 +93,3 @@ May this peace come to us by living the commandments of the Savior and by follow
 
 
 
-#Jesus_Christ #Plan_Of_Salvation

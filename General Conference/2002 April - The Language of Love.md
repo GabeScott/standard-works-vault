@@ -1,7 +1,5 @@
 # The Language of Love
 
-Gordon B. Hinckley
-
 By Gayle M. Clegg - *Second Counselor in the Primary General Presidency*
 
 *Given in the April session of the 2002 General Conference*
@@ -95,4 +93,3 @@ I give thanks for the great blessing to “behold \[our\] little ones.” I like
 
 
 
-#Children #God_The_Father #Joy #Love #Music #Prayer

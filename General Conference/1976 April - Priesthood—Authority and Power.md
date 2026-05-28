@@ -1,7 +1,5 @@
 # Priesthood—Authority and Power
 
-Spencer W. Kimball
-
 By Bishop H. Burke Peterson - *First Counselor in the Presiding Bishopric*
 
 *Given in the April session of the 1976 General Conference*
@@ -95,4 +93,3 @@ I testify to you that I know that He lives, that Jesus is the Christ, in the nam
 
 
 
-#Authority #Family #Priesthood #Women

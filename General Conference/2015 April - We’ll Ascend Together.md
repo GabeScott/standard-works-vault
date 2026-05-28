@@ -1,7 +1,5 @@
 # We’ll Ascend Together
 
-Cheryl A. Esplin
-
 By Linda K. Burton - *Relief Society General President*
 
 *Given in the April session of the 2015 General Conference*
@@ -145,7 +143,3 @@ emp.byui.edu/SATTERFIELDB/PDF/RoleManWoman2.pdf
 
 [^18]: Jeffrey R. Holland, “The Tongue of Angels,” *Ensign* or *Liahona,* May 2007, 18.
 
-
-
-
-#Communication #Fatherhood #Kindness #Love #Marriage #Safety

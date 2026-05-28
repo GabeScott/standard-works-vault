@@ -1,7 +1,5 @@
 # Living Water to Quench Spiritual Thirst
 
-Thomas S. Monson
-
 By Elder Joseph B. Wirthlin - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1995 General Conference*
@@ -121,7 +119,3 @@ As one who also stands as a special witness, I join my testimony with those beli
 
 [^29]: [[John 4.34|John 4:34]].
 
-
-
-
-#Gordon_B._Hinckley #Howard_W._Hunter #Jesus_Christ

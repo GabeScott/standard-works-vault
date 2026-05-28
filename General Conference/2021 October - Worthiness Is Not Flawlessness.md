@@ -1,7 +1,5 @@
 # Worthiness Is Not Flawlessness
 
-Russell M. Nelson
-
 By Bradley R. Wilcox - *Second Counselor in the Young Men General Presidency*
 
 *Given in the October session of the 2021 General Conference*
@@ -109,7 +107,3 @@ I promise those blessings and that joy are real and within reach for those who k
 
 [^31]: [[3 Nephi 9.14|3 Nephi 9:14]].
 
-
-
-
-#Forgiveness #Grace #Habits #Repentance #Worthiness

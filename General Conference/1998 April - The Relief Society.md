@@ -1,7 +1,5 @@
 # The Relief Society
 
-Gordon B. Hinckley
-
 By President Boyd K. Packer - *Acting President of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1998 General Conference*
@@ -125,7 +123,3 @@ I conclude where I began—it is my purpose to endorse the Relief Society, to be
 
 [^7]: “As Sisters in Zion,” *Hymns,* no. 309.
 
-
-
-
-#Church_Callings #Councils #Family #Home #Marriage #Priesthood #Relief_Society #Temples #Women

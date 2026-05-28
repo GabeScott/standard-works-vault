@@ -1,7 +1,5 @@
 # Satan’s Thrust—Youth
 
-Joseph Fielding Smith
-
 By Elder Ezra Taft Benson - *Of the Council of the Twelve*
 
 *Given in the October session of the 1971 General Conference*
@@ -133,4 +131,3 @@ God grant that we as parents and leaders of youth may have the power and the goo
 
 
 
-#Music #Satan #Youth

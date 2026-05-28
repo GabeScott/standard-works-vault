@@ -1,7 +1,5 @@
 # This Road We Call Life
 
-Gordon B. Hinckley
-
 By Elder Ben B. Banks - *Of the Presidency of the Seventy*
 
 *Given in the April session of the 2002 General Conference*
@@ -59,4 +57,3 @@ Of this I so testify in the name of Jesus Christ, amen.
 
 
 
-#Agency #Goals #Holy_Ghost #Joy

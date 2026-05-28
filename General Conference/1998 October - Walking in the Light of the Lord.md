@@ -1,7 +1,5 @@
 # Walking in the Light of the Lord
 
-Gordon B. Hinckley
-
 By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the October session of the 1998 General Conference*
@@ -105,4 +103,3 @@ I leave my blessing, my testimony, and my love with you in the name of the Lord 
 
 
 
-#Children #Evil #Family #Fatherhood #Love #Marriage #Motherhood #Relief_Society #Satan #Women

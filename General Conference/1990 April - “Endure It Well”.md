@@ -1,7 +1,5 @@
 # “Endure It Well”
 
-Thomas S. Monson
-
 By Elder Neal A. Maxwell - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1990 General Conference*
@@ -99,4 +97,3 @@ For the eloquence and for the exquisiteness and the elegance of Christ’s everl
 
 
 
-#Adversity #Endurance #Faith

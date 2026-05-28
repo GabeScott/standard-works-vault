@@ -1,7 +1,5 @@
 # Principles of Welfare
 
-Spencer W. Kimball
-
 By Elder Vaughn J. Featherstone - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1976 General Conference*
@@ -165,4 +163,3 @@ God bless you, our beloved leaders, to have charity for the unfortunate, which c
 
 
 
-#Employment #Welfare

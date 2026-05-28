@@ -1,7 +1,5 @@
 # Where Much Is Given, Much Is Required
 
-Spencer W. Kimball
-
 By Elder Boyd K. Packer - *Of the Council of the Twelve*
 
 *Given in the October session of the 1974 General Conference*
@@ -159,4 +157,3 @@ This is His church. I have that witness. Jesus is the Christ; he lives. It’s c
 
 
 
-#Missionary_Work #Tithing

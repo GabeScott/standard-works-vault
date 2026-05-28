@@ -1,7 +1,5 @@
 # Assurance That Comes from Knowing
 
-Ezra Taft Benson
-
 By Elder Angel Abrea - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1988 General Conference*
@@ -93,4 +91,3 @@ To all those faithful Latter-day Saints who share their testimonies concerning t
 
 
 
-#Example #Holy_Ghost #Testimony

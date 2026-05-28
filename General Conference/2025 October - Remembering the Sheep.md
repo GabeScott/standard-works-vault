@@ -1,7 +1,5 @@
 # Remembering the Sheep
 
-Dallin H. Oaks
-
 By Elder William K. Jackson - *Of the Seventy*
 
 *Given in the October session of the 2025 General Conference*
@@ -12,7 +10,7 @@ By Elder William K. Jackson - *Of the Seventy*
 
 Christ is the Good Shepherd. Each one of the flock is precious to Him. He patterned shepherding and taught us by word and deed the qualities of a good shepherd, including knowing your sheep by name, loving them, finding those that are lost, feeding, and, ultimately, leading them back home again. He expects us to do the same as His undershepherds.
 
-We can learn much about ministering the Lord’s way from the ancient prophet—and exceptional shepherd—Moroni. He lived during very difficult times, not having the benefits of cell phones, computers, and the internet. But he managed to keep track of the sheep. How was this done? We get a glimpse into his methodology in [[Moroni 6.1|Moroni 6]]. There we read that members “were numbered among the people of the church of Christ; and their names were taken, that they might be remembered and nourished by the good word of God, to keep them in the right way. … The church did meet together oft, to fast and to pray, *and to speak one with another concerning the welfare of their souls*” ([[Moroni 6.4|Moroni 6:4–5]][[Moroni 6.5|]]; emphasis added).
+We can learn much about ministering the Lord’s way from the ancient prophet—and exceptional shepherd—Moroni. He lived during very difficult times, not having the benefits of cell phones, computers, and the internet. But he managed to keep track of the sheep. How was this done? We get a glimpse into his methodology in [[Moroni 6.1|Moroni 6]][[Moroni 6.2|]][[Moroni 6.3|]][[Moroni 6.4|]][[Moroni 6.5|]][[Moroni 6.6|]][[Moroni 6.7|]][[Moroni 6.8|]][[Moroni 6.9|]]. There we read that members “were numbered among the people of the church of Christ; and their names were taken, that they might be remembered and nourished by the good word of God, to keep them in the right way. … The church did meet together oft, to fast and to pray, *and to speak one with another concerning the welfare of their souls*” ([[Moroni 6.4|Moroni 6:4–5]][[Moroni 6.5|]]; emphasis added).
 
 For Moroni, it was all about people—names! He practiced the principle of counting and accounting so that *all* would be remembered. Any who struggled or wandered were noticed, allowing the Saints to discuss their welfare in councils. Like the shepherd who left the ninety and nine (safe and secure, I am certain) and went after the one that was lost (see [[Luke 15.4|Luke 15:4–7]][[Luke 15.5|]][[Luke 15.6|]][[Luke 15.7|]]), we have been asked to be just as aware of our flocks—to notice and remember and go and do likewise.
 
@@ -45,4 +43,3 @@ In the Church of Jesus Christ, we have been instructed by prophets past and prop
 
 
 
-#Church_Callings #Individual_Worth #Ministering #Service

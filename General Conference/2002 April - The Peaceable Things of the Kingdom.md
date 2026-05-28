@@ -1,7 +1,5 @@
 # The Peaceable Things of the Kingdom
 
-Gordon B. Hinckley
-
 By Elder M. Russell Ballard - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2002 General Conference*
@@ -111,4 +109,3 @@ I am grateful that I can witness to you that Jesus is the Christ, and He is the 
 
 
 
-#Conscience #Forgiveness #Jesus_Christ #Peace

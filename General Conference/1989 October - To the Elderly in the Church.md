@@ -1,7 +1,5 @@
 # To the Elderly in the Church
 
-Ezra Taft Benson
-
 By President Ezra Taft Benson - *President of the Church*
 
 *Given in the October session of the 1989 General Conference*
@@ -119,4 +117,3 @@ I leave my blessing upon you. The Savior lives. This is His church. The work is 
 
 
 
-#Charity #Elderly #Endurance #Family #Love #Service

@@ -1,7 +1,5 @@
 # A Lesson from the Book of Mormon
 
-Thomas S. Monson
-
 By Vicki F. Matsumori - *Second Counselor in the Primary General Presidency*
 
 *Given in the April session of the 2007 General Conference*
@@ -71,7 +69,3 @@ In the name of Jesus Christ, amen.
 
 [^5]: *Children’s Songbook,* 173.
 
-
-
-
-#Covenants #Faith #Family #Honesty #Prayer #Scriptures

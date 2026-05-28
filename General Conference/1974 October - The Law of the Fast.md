@@ -1,7 +1,5 @@
 # The Law of the Fast
 
-Spencer W. Kimball
-
 By Elder Henry D. Taylor - *Assistant to the Council of the Twelve*
 
 *Given in the October session of the 1974 General Conference*
@@ -57,4 +55,3 @@ I firmly believe that the paying of fast offerings does result in rich blessings
 
 
 
-#Fasting #Welfare

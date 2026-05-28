@@ -1,7 +1,5 @@
 # Address Given by President Spencer W. Kimball at Welfare Services Session Saturday, April 5, 1975
 
-Spencer W. Kimball
-
 By President Spencer W. Kimball - *President of the Church*
 
 *Given in the April session of the 1975 General Conference*
@@ -59,4 +57,3 @@ As I close I would only like to commend these brethren on the wonderful work the
 
 
 
-#Welfare

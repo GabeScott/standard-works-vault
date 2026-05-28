@@ -1,7 +1,5 @@
 # Christ in America
 
-Spencer W. Kimball
-
 By President N. Eldon Tanner - *First Counselor in the First Presidency*
 
 *Given in the April session of the 1975 General Conference*
@@ -107,4 +105,3 @@ All these teachings did Christ give to those Nephite people as he came to them a
 
 
 
-#Book_Of_Mormon #Jesus_Christ #Repentance

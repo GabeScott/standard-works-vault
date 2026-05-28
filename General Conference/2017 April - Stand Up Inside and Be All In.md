@@ -1,7 +1,5 @@
 # Stand Up Inside and Be All In
 
-Bonnie H. Cordon
-
 By Elder Gary B. Sabin - *Of the Seventy*
 
 *Given in the April session of the 2017 General Conference*
@@ -155,7 +153,3 @@ Brothers and sisters, no one has sinned tomorrow. May we recalculate our route i
 
 [^29]: [[1 Corinthians 2.9|1 Corinthians 2:9]].
 
-
-
-
-#Adversity #Commitment #Plan_Of_Salvation #Repentance

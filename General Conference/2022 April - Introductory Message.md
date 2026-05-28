@@ -1,7 +1,5 @@
 # Introductory Message
 
-Russell M. Nelson
-
 By President Dallin H. Oaks - *First Counselor in the First Presidency*
 
 *Given in the April session of the 2022 General Conference*
@@ -29,4 +27,3 @@ This is the work of the Lord Jesus Christ. We are His servants, directed by His 
 
 
 
-#Church_Doctrine #General_Conference #Women

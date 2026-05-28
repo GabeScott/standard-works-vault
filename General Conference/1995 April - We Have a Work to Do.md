@@ -1,7 +1,5 @@
 # We Have a Work to Do
 
-Thomas S. Monson
-
 By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the April session of the 1995 General Conference*
@@ -51,4 +49,3 @@ At the opening of this session, the choir sang a wonderful hymn. “Faith of our
 
 
 
-#Church_Organization #Commitment #Faith #Family #General_Conference #Honesty #Love #Media #Respect #Temples #Time_Management #Work #Youth

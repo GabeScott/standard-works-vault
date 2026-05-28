@@ -1,7 +1,5 @@
 # Love Is the Power That Will Cure the Family
 
-Spencer W. Kimball
-
 By Elder F. Enzio Busche - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1982 General Conference*
@@ -71,4 +69,3 @@ Brothers and sisters, I know that God lives, that this is his church, that these
 
 
 
-#Love #Marriage

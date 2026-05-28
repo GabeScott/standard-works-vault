@@ -1,7 +1,5 @@
 # The Way to Perfection
 
-Ezra Taft Benson
-
 By Elder Royden G. Derrick - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1989 General Conference*
@@ -71,4 +69,3 @@ I testify that this restored gospel which we espouse is indeed the real truth an
 
 
 
-#Jesus_Christ #Plan_Of_Salvation #Resurrection

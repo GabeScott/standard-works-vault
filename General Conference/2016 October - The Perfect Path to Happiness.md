@@ -1,7 +1,5 @@
 # The Perfect Path to Happiness
 
-Jean B. Bingham
-
 By President Thomas S. Monson
 
 *Given in the October session of the 2016 General Conference*
@@ -33,7 +31,3 @@ My brothers and sisters, I leave with you my love and my blessing as I close, an
 
 [^1]: [[Moses 1.39|Moses 1:39]].
 
-
-
-
-#Jesus_Christ #Plan_Of_Salvation

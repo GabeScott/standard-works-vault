@@ -1,7 +1,5 @@
 # Dad, Are You Awake?
 
-Gordon B. Hinckley
-
 By Elder F. Melvin Hammond - *Of the Seventy*
 
 *Given in the October session of the 2002 General Conference*
@@ -59,4 +57,3 @@ In the name of Jesus Christ, amen.
 
 
 
-#Discipline #Family #Fatherhood #Leadership #Love #Marriage

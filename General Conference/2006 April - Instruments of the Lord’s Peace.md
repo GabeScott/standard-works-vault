@@ -1,7 +1,5 @@
 # Instruments of the Lord’s Peace
 
-Robert D. Hales
-
 By Elder Robert S. Wood - *Of the Seventy*
 
 *Given in the April session of the 2006 General Conference*
@@ -89,7 +87,3 @@ In the name of Jesus Christ, amen.
 
 [^23]: [[2 Peter 1.8|2 Peter 1:8–9]][[2 Peter 1.9|]].
 
-
-
-
-#Peace #Tolerance #Unity

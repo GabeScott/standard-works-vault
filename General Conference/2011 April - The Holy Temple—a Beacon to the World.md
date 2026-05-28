@@ -1,7 +1,5 @@
 # The Holy Temple—a Beacon to the World
 
-Thomas S. Monson
-
 By President Thomas S. Monson - *President of the Church*
 
 *Given in the April session of the 2011 General Conference*
@@ -109,7 +107,3 @@ My beloved brothers and sisters, may we make whatever sacrifices are necessary t
 
 [^7]: Janice Kapp Perry, “I Love to See the Temple,” *Children’s Songbook,* 95.
 
-
-
-
-#Covenants #Sacrifice #Temple_Work #Temples

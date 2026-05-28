@@ -1,7 +1,5 @@
 # God’s Love for Us Transcends Our Transgressions
 
-Spencer W. Kimball
-
 By Elder Ronald E. Poelman - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1982 General Conference*
@@ -75,4 +73,3 @@ I know of no greater inducement to repentance and reconciliation with our Father
 
 
 
-#Forgiveness

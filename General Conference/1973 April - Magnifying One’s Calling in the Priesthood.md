@@ -1,7 +1,5 @@
 # Magnifying One’s Calling in the Priesthood
 
-Harold B. Lee
-
 By President Marion G. Romney - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 1973 General Conference*
@@ -141,4 +139,3 @@ That the Lord will help each of us bearers of the holy priesthood to acquire suc
 
 
 
-#Priesthood

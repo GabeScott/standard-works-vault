@@ -1,7 +1,5 @@
 # Father, Come Home
 
-Thomas S. Monson
-
 By Elder James E. Faust - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1993 General Conference*
@@ -55,4 +53,3 @@ I so testify that the blessings of the priesthood, honored by fathers and husban
 
 
 
-#Faith #Fatherhood #Priesthood

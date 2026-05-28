@@ -1,7 +1,5 @@
 # The Rock of Revelation
 
-Harold B. Lee
-
 By Elder Joseph Anderson - *Assistant to the Council of the Twelve*
 
 *Given in the April session of the 1973 General Conference*
@@ -75,4 +73,3 @@ The history of this world is in fulfillment of the plan prepared in the heavens 
 
 
 
-#Spirituality

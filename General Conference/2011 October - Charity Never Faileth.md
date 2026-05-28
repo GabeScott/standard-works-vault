@@ -1,7 +1,5 @@
 # Charity Never Faileth
 
-Richard G. Scott
-
 By Silvia H. Allred - *First Counselor in the Relief Society General Presidency*
 
 *Given in the October session of the 2011 General Conference*
@@ -129,7 +127,3 @@ May our knowledge of the great love that the Father and the Son have for us, and
 
 [^16]: *Teachings of Presidents of the Church: Joseph Smith* (2007), 454.
 
-
-
-
-#Charity #Service #Visiting_Teaching

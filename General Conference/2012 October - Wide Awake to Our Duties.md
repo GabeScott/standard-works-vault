@@ -1,7 +1,5 @@
 # Wide Awake to Our Duties
 
-Thomas S. Monson
-
 By Carole M. Stephens - *First Counselor in the Relief Society General Presidency*
 
 *Given in the October session of the 2012 General Conference*
@@ -117,7 +115,3 @@ This is a work of salvation, and the strengthening and enabling power of the Ato
 
 [^15]: Thomas S. Monson, “The Holy Temple—a Beacon to the World,” *Liahona* and *Ensign,* May 2011, 92.
 
-
-
-
-#Duty #Endurance #Responsibility #Service

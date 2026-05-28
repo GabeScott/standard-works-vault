@@ -1,7 +1,5 @@
 # Keeping Covenants
 
-Thomas S. Monson
-
 By Elder M. Russell Ballard - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1993 General Conference*
@@ -75,4 +73,3 @@ I know this Church is true. I know God lives and Jesus is the Christ. I know tha
 
 
 
-#Covenants #Morality #Repentance

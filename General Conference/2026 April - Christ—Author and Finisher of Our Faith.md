@@ -1,7 +1,5 @@
 # Christ—Author and Finisher of Our Faith
 
-Dallin H. Oaks
-
 By Elder Eduardo F. Ortega - *Of the Seventy*
 
 *Given in the April session of the 2026 General Conference*
@@ -79,5 +77,3 @@ I testify of the healing, refining, and perfecting power of Jesus Christ. I know
 
 [^15]: See [[Moroni 6.4|Moroni 6:4]].
 
-
-#Conversion #Discipleship #Jesus_Christ #Testimony

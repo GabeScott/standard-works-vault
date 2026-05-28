@@ -1,7 +1,5 @@
 # Revelation
 
-Spencer W. Kimball
-
 By Elder Henry D. Taylor - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1978 General Conference*
@@ -51,4 +49,3 @@ The person that we look to today for revelation is President Spencer W. Kimball.
 
 
 
-#Spirituality

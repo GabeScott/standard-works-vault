@@ -1,7 +1,5 @@
 # “We Thank Thee, O God, for a Prophet”
 
-Harold B. Lee
-
 By Elder Gordon B. Hinckley - *Of the Council of the Twelve*
 
 *Given in the October session of the 1973 General Conference*
@@ -79,4 +77,3 @@ God lives and is a revealer of eternal truth. Jesus Christ is our Savior and sta
 
 
 
-#Compassion #Missionary_Work

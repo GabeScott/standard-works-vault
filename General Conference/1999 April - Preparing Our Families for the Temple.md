@@ -1,7 +1,5 @@
 # Preparing Our Families for the Temple
 
-Gordon B. Hinckley
-
 By Carol B. Thomas - *First Counselor in the Young Women General Presidency*
 
 *Given in the April session of the 1999 General Conference*
@@ -71,4 +69,3 @@ Brothers and sisters, as servants of the living God, we shall press forward in t
 
 
 
-#Children #Covenants #Parenthood #Preparation #Satan #Spirituality #Teaching #Temple_Work #Temples

@@ -1,7 +1,5 @@
 # Strengthening the Family—the Basic Unit of the Church
 
-Spencer W. Kimball
-
 By President Spencer W. Kimball - *President of the Church*
 
 *Given in the April session of the 1978 General Conference*
@@ -186,4 +184,3 @@ Salvation could not come to this world without the mediation of Jesus Christ. Ho
 
 
 
-#Children #Family #Scripture_Study

@@ -1,7 +1,5 @@
 # Personal Preparation to Meet the Savior
 
-Dallin H. Oaks
-
 By Elder Dale G. Renlund - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2025 General Conference*
@@ -149,7 +147,3 @@ In the name of Jesus Christ, amen.
 
 [^34]: “When the Savior Comes Again,” *Hymns—For Home and Church*, Gospel Library.
 
-
-
-
-#Fear #Jesus_Christ #Parables #Preparation #Second_Coming #Service

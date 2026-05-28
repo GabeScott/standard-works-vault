@@ -1,7 +1,5 @@
 # To the Home Teachers of the Church
 
-Ezra Taft Benson
-
 By President Ezra Taft Benson - *President of the Church*
 
 *Given in the April session of the 1987 General Conference*
@@ -147,4 +145,3 @@ As you do this, I promise you the blessings of heaven and the indescribable joy 
 
 
 
-#Home_Teaching

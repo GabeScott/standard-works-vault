@@ -1,7 +1,5 @@
 # “I Am an Adult Now”
 
-Ezra Taft Benson
-
 By Elder Marvin J. Ashton - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1987 General Conference*
@@ -83,4 +81,3 @@ God is our Father. Jesus is the Christ. May our knowledge of them on a continuin
 
 
 
-#Love #Obedience #Responsibility

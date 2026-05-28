@@ -1,7 +1,5 @@
 # An Enduring Testimony of the Mission of the Prophet Joseph
 
-Gordon B. Hinckley
-
 By Elder Henry B. Eyring - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2003 General Conference*
@@ -105,7 +103,3 @@ I testify that God lives. I know that Jesus Christ lives and that He is our Savi
 
 [^10]: [[Moroni 7.46|Moroni 7:46–47]][[Moroni 7.47|]].
 
-
-
-
-#Holy_Ghost #Joseph_Smith #Prayer #Scripture_Study #Testimony

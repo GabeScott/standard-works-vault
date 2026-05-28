@@ -1,7 +1,5 @@
 # The Heritage of Royal Families
 
-Spencer W. Kimball
-
 By Elder Royden G. Derrick - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1979 General Conference*
@@ -83,4 +81,3 @@ A royal family is not necessarily confined to the political kingdoms ruling the 
 
 
 
-#Family_History

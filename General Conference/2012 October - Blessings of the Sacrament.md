@@ -1,7 +1,5 @@
 # Blessings of the Sacrament
 
-Thomas S. Monson
-
 By Elder Don R. Clarke - *Of the Seventy*
 
 *Given in the October session of the 2012 General Conference*
@@ -69,7 +67,7 @@ We will be blessed as we feel gratitude for the Atonement of Jesus Christ, renew
 
 [^1]: [[Luke 22.19|Luke 22:19–20]][[Luke 22.20|]]; emphasis added.
 
-[^2]: See [[3 Nephi 18.1|3 Nephi 18]].
+[^2]: See [[3 Nephi 18.1|3 Nephi 18]][[3 Nephi 18.2|]][[3 Nephi 18.3|]][[3 Nephi 18.4|]][[3 Nephi 18.5|]][[3 Nephi 18.6|]][[3 Nephi 18.7|]][[3 Nephi 18.8|]][[3 Nephi 18.9|]][[3 Nephi 18.10|]][[3 Nephi 18.11|]][[3 Nephi 18.12|]][[3 Nephi 18.13|]][[3 Nephi 18.14|]][[3 Nephi 18.15|]][[3 Nephi 18.16|]][[3 Nephi 18.17|]][[3 Nephi 18.18|]][[3 Nephi 18.19|]][[3 Nephi 18.20|]][[3 Nephi 18.21|]][[3 Nephi 18.22|]][[3 Nephi 18.23|]][[3 Nephi 18.24|]][[3 Nephi 18.25|]][[3 Nephi 18.26|]][[3 Nephi 18.27|]][[3 Nephi 18.28|]][[3 Nephi 18.29|]][[3 Nephi 18.30|]][[3 Nephi 18.31|]][[3 Nephi 18.32|]][[3 Nephi 18.33|]][[3 Nephi 18.34|]][[3 Nephi 18.35|]][[3 Nephi 18.36|]][[3 Nephi 18.37|]][[3 Nephi 18.38|]][[3 Nephi 18.39|]].
 
 [^3]: David O. McKay, in Conference Report, Oct. 1929, 11.
 
@@ -93,7 +91,3 @@ We will be blessed as we feel gratitude for the Atonement of Jesus Christ, renew
 
 [^13]: Melvin J. Ballard, in Bryant S. Hinckley, *Sermons and Missionary Services of Melvin Joseph Ballard* (1949), 149.
 
-
-
-
-#Atonement #Sacrament

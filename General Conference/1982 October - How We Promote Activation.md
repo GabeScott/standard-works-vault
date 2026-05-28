@@ -1,7 +1,5 @@
 # How We Promote Activation
 
-Spencer W. Kimball
-
 By Michael Nicholas - *Beavercreek Ward, Dayton Ohio East Stake*
 
 *Given in the October session of the 1982 General Conference*
@@ -31,4 +29,3 @@ I know that the Aaronic Priesthood and Young Men program works. It has worked in
 
 
 
-#Priesthood

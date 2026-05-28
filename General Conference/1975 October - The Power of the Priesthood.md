@@ -1,7 +1,5 @@
 # The Power of the Priesthood
 
-Spencer W. Kimball
-
 By Elder W. Grant Bangerter - *Assistant to the Council of the Twelve*
 
 *Given in the October session of the 1975 General Conference*
@@ -65,4 +63,3 @@ In missionary work some stakes have raised their sights so much that each ward i
 
 
 
-#Fellowshipping #Priesthood

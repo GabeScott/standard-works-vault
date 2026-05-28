@@ -1,7 +1,5 @@
 # The “Little Things” and Eternal Life
 
-Gordon B. Hinckley
-
 By Elder Angel Abrea - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1981 General Conference*
@@ -71,4 +69,3 @@ I know that the Lord has made this possible and that he blesses us and will cont
 
 
 
-#Obedience

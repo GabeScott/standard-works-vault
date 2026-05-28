@@ -1,7 +1,5 @@
 # Trust in That Spirit Which Leadeth to Do Good
 
-Cheryl A. Esplin
-
 By President Henry B. Eyring - *First Counselor in the First Presidency*
 
 *Given in the April session of the 2016 General Conference*
@@ -89,7 +87,3 @@ I testify that this is the Church of the resurrected Jesus Christ. He is risen. 
 
 [^3]: “Sweet Is the Work,” *Hymns,* no. 147.
 
-
-
-
-#Holy_Ghost #Humility #Jesus_Christ #Love #Service

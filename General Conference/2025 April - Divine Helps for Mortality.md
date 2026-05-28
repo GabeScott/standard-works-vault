@@ -1,7 +1,5 @@
 # Divine Helps for Mortality
 
-Dallin H. Oaks
-
 By President Dallin H. Oaks - *First Counselor in the First Presidency*
 
 *Given in the April session of the 2025 General Conference*
@@ -83,7 +81,3 @@ I have spoken of the many mortal helps our loving Father in Heaven has given to 
 
 [^10]: See [[Matthew 25.1|Matthew 25:1–2]][[Matthew 25.2|]].
 
-
-
-
-#Agency #Atonement #Commandments #Covenants #Holy_Ghost #Jesus_Christ #Light_Of_Christ #Ordinances #Plan_Of_Salvation

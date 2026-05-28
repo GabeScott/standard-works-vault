@@ -1,7 +1,5 @@
 # Behold the Lamb of God
 
-Ulisses Soares
-
 By Elder Jeffrey R. Holland - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2019 General Conference*
@@ -75,7 +73,3 @@ Beloved friends, as we unite across the globe each week in what we hope is an in
 
 [^11]: “More Holiness Give Me,” *Hymns,* no. 131.
 
-
-
-
-#Atonement #Church_Meetings #Jesus_Christ #Reverence #Sacrament #Sacrifice

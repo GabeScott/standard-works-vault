@@ -1,7 +1,5 @@
 # “From the Beginning”
 
-Gordon B. Hinckley
-
 By Elder Neal A. Maxwell - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1993 General Conference*
@@ -108,4 +106,3 @@ I so testify in the holy name of Jesus Christ, amen!
 
 
 
-#Apostasy #Faith #Restoration

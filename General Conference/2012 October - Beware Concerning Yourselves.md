@@ -1,7 +1,5 @@
 # Beware Concerning Yourselves
 
-Thomas S. Monson
-
 By Elder Anthony D. Perkins - *Of the Seventy*
 
 *Given in the October session of the 2012 General Conference*
@@ -159,7 +157,3 @@ I promise that if men keep the priesthood covenant to “beware concerning yours
 
 [^45]: [[D&C 84.43|Doctrine and Covenants 84:43]]; see also [[Deuteronomy 4.9|Deuteronomy 4:9]]; [[Mosiah 4.29|Mosiah 4:29–30]][[Mosiah 4.30|]].
 
-
-
-
-#Conversion #Covenants #Family #Priesthood

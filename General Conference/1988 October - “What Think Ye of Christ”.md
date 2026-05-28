@@ -1,7 +1,5 @@
 # “What Think Ye of Christ?”
 
-Ezra Taft Benson
-
 By Elder Dallin H. Oaks - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1988 General Conference*
@@ -178,4 +176,3 @@ In all of this, we remember and rely on the Lord’s sure word: “Keep my comma
 
 
 
-#Atonement #Christianity #Jesus_Christ

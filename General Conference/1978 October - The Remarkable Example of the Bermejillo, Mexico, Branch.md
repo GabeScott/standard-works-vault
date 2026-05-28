@@ -1,7 +1,5 @@
 # The Remarkable Example of the Bermejillo, Mexico, Branch
 
-Spencer W. Kimball
-
 By Bishop Victor L. Brown - *Presiding Bishop*
 
 *Given in the October session of the 1978 General Conference*
@@ -95,4 +93,3 @@ May each of us catch the vision of welfare services as these Saints have in Berm
 
 
 
-#Welfare

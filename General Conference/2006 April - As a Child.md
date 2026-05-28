@@ -1,7 +1,5 @@
 # As a Child
 
-Robert D. Hales
-
 By Elder Henry B. Eyring - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2006 General Conference*
@@ -123,7 +121,3 @@ In the name of Jesus Christ, amen.
 
 [^13]: See [[D&C 62.1|D&C 62:1]].
 
-
-
-
-#Children #Faith #Holy_Ghost #Safety

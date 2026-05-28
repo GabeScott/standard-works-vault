@@ -1,7 +1,5 @@
 # “O, Divine Redeemer”
 
-Gordon B. Hinckley
-
 By Elder Neal A. Maxwell - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1981 General Conference*
@@ -117,4 +115,3 @@ In the holy name of Jesus Christ, amen.
 
 
 
-#Jesus_Christ

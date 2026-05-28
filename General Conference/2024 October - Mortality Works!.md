@@ -1,7 +1,5 @@
 # Mortality Works!
 
-Henry B. Eyring
-
 By Elder Brook P. Hales - *Of the Seventy*
 
 *Given in the October session of the 2024 General Conference*
@@ -36,7 +34,7 @@ As Lehi taught his son Jacob:
 
 “Thou hast suffered afflictions and much sorrow. … Nevertheless, … \[God\] shall consecrate thine afflictions for thy gain. … Wherefore, I know that thou art redeemed, because of the righteousness of thy Redeemer.”[^5]
 
-Because this life is a testing ground and “dark clouds of trouble hang o’er us and threaten our peace to destroy,”[^6] it is helpful to remember this counsel and promise found in [[Mosiah 23.1|Mosiah 23]] relating to life’s challenges: “Nevertheless—whosoever putteth his trust in \[the Lord\] the same shall be lifted up at the last day.”[^7]
+Because this life is a testing ground and “dark clouds of trouble hang o’er us and threaten our peace to destroy,”[^6] it is helpful to remember this counsel and promise found in [[Mosiah 23.1|Mosiah 23]][[Mosiah 23.2|]][[Mosiah 23.3|]][[Mosiah 23.4|]][[Mosiah 23.5|]][[Mosiah 23.6|]][[Mosiah 23.7|]][[Mosiah 23.8|]][[Mosiah 23.9|]][[Mosiah 23.10|]][[Mosiah 23.11|]][[Mosiah 23.12|]][[Mosiah 23.13|]][[Mosiah 23.14|]][[Mosiah 23.15|]][[Mosiah 23.16|]][[Mosiah 23.17|]][[Mosiah 23.18|]][[Mosiah 23.19|]][[Mosiah 23.20|]][[Mosiah 23.21|]][[Mosiah 23.22|]][[Mosiah 23.23|]][[Mosiah 23.24|]][[Mosiah 23.25|]][[Mosiah 23.26|]][[Mosiah 23.27|]][[Mosiah 23.28|]][[Mosiah 23.29|]][[Mosiah 23.30|]][[Mosiah 23.31|]][[Mosiah 23.32|]][[Mosiah 23.33|]][[Mosiah 23.34|]][[Mosiah 23.35|]][[Mosiah 23.36|]][[Mosiah 23.37|]][[Mosiah 23.38|]][[Mosiah 23.39|]] relating to life’s challenges: “Nevertheless—whosoever putteth his trust in \[the Lord\] the same shall be lifted up at the last day.”[^7]
 
 As a youth, I personally experienced great emotional pain and shame that came as the result of the unrighteous actions of another, which for many years affected my self-worth and my sense of worthiness before the Lord. Nevertheless, I bear personal witness that the Lord can strengthen us and bear us up in whatever difficulties we are called upon to experience during our sojourn in this vale of tears.
 
@@ -101,7 +99,3 @@ I testify that as we receive the ordinances of the gospel, enter into covenants 
 
 [^12]: [[Mosiah 2.41|Mosiah 2:41]].
 
-
-
-
-#Adversity #Atonement #Mortality #Plan_Of_Salvation

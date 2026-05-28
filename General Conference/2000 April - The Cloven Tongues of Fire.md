@@ -1,7 +1,5 @@
 # The Cloven Tongues of Fire
 
-Gordon B. Hinckley
-
 By President Boyd K. Packer - *Acting President of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2000 General Conference*
@@ -234,7 +232,3 @@ As surely as I know that I am here and you are there, I know that Jesus is the C
 
 [^36]: [[John 14.27|John 14:27]].
 
-
-
-
-#Adversity #Apostasy #Church_History #Church_Membership #Commandments #Fear #General_Conference #Holy_Ghost #Jesus_Christ #Joseph_Smith #Obedience #Ordinances #Peace #Prayer #Priesthood #Restoration #Satan #Scriptures #Sin

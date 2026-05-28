@@ -1,7 +1,5 @@
 # Thanks Be to God
 
-Ezra Taft Benson
-
 By President Thomas S. Monson - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 1989 General Conference*
@@ -111,4 +109,3 @@ May this be our universal blessing, I pray in the name of Jesus Christ, amen.
 
 
 
-#Faith #Missionary_Work

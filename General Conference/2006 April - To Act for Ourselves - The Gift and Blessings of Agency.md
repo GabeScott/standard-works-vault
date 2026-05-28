@@ -1,7 +1,5 @@
 # To Act for Ourselves: The Gift and Blessings of Agency
 
-Robert D. Hales
-
 By Elder Robert D. Hales - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2006 General Conference*
@@ -123,7 +121,3 @@ To all who desire to enjoy the supernal blessings of agency, I testify that agen
 
 [^26]: See [[D&C 50.24|D&C 50:24]].
 
-
-
-
-#Agency #Holy_Ghost #Temptation

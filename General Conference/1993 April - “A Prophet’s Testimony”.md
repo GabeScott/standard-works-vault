@@ -1,7 +1,5 @@
 # “A Prophet’s Testimony”
 
-Thomas S. Monson
-
 By President Gordon B. Hinckley - *First Counselor in the First Presidency*
 
 *Given in the April session of the 1993 General Conference*
@@ -51,4 +49,3 @@ Beloved friends and associates, we wish for each of you a safe return to your ho
 
 
 
-#Ezra_Taft_Benson #Jesus_Christ #Testimony

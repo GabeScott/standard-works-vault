@@ -1,7 +1,5 @@
 # The Resurrection
 
-Gordon B. Hinckley
-
 By Elder Hartman Rector, Jr. - *Of the Seventy*
 
 *Given in the October session of the 1990 General Conference*
@@ -83,4 +81,3 @@ If I have done anything or said anything that has offended anyone within hearing
 
 
 
-#Adversity #Morality #Repentance #Resurrection

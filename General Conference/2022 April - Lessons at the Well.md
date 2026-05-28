@@ -1,7 +1,5 @@
 # Lessons at the Well
 
-Russell M. Nelson
-
 By Susan H. Porter - *First Counselor in the Primary General Presidency*
 
 *Given in the April session of the 2022 General Conference*
@@ -133,7 +131,3 @@ I pray that we can come to the Savior, like the woman at the well, and drink of 
 
 [^19]: [[John 4.42|John 4:42]].
 
-
-
-
-#Adversity #Divine_Nature #Jesus_Christ #Power

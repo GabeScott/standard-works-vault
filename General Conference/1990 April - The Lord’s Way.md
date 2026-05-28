@@ -1,7 +1,5 @@
 # The Lord’s Way
 
-Thomas S. Monson
-
 By President Thomas S. Monson - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 1990 General Conference*
@@ -109,4 +107,3 @@ That we may, as a people, merit the blessings of God, I pray in the name of Jesu
 
 
 
-#Financial_Management #Tithing #Youth

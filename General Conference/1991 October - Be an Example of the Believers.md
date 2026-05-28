@@ -1,7 +1,5 @@
 # Be an Example of the Believers
 
-Gordon B. Hinckley
-
 By Elder M. Russell Ballard - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1991 General Conference*
@@ -85,4 +83,3 @@ I testify to you that Jesus Christ lives and that He presides over this Church. 
 
 
 
-#Adversity #Example #Faith #Family #Women

@@ -1,7 +1,5 @@
 # It’s a Miracle
 
-Thomas S. Monson
-
 By Elder Neil L. Andersen - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2013 General Conference*
@@ -159,7 +157,3 @@ I testify that “the voice of the Lord \[shall be\] unto the ends of the earth,
 
 [^33]: [[D&C 1.11|Doctrine and Covenants 1:11]].
 
-
-
-
-#Missionary_Work

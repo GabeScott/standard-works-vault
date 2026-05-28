@@ -1,7 +1,5 @@
 # Prepare for a Mission
 
-Gordon B. Hinckley
-
 By R. LaVell Edwards - *Head Football Coach, Brigham Young University*
 
 *Given in the October session of the 1984 General Conference*
@@ -47,4 +45,3 @@ Now brethren, in my career I have had many wonderful things happen to me, many m
 
 
 
-#Adversity #Leadership #Missionary_Work #Success

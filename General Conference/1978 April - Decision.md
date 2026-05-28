@@ -1,7 +1,5 @@
 # Decision
 
-Spencer W. Kimball
-
 By Elder Eldred G. Smith - *Patriarch to the Church*
 
 *Given in the April session of the 1978 General Conference*
@@ -71,4 +69,3 @@ Seek the guidance of the Lord in making decisions, but use that God-given right 
 
 
 
-#Agency #Youth

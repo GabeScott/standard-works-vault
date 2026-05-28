@@ -1,7 +1,5 @@
 # That He May Become Strong Also
 
-Jean B. Bingham
-
 By President Henry B. Eyring - *First Counselor in the First Presidency*
 
 *Given in the October session of the 2016 General Conference*
@@ -117,7 +115,3 @@ God the Father lives. Jesus is the Christ. This is His Church and kingdom. This 
 
 [^9]: [[D&C 84.106|Doctrine and Covenants 84:106–8]][[D&C 84.107|]][[D&C 84.108|]].
 
-
-
-
-#Gratitude #Priesthood #Service

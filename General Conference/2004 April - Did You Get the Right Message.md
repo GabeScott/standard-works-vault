@@ -1,7 +1,5 @@
 # Did You Get the Right Message?
 
-Gordon B. Hinckley
-
 By President James E. Faust - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 2004 General Conference*
@@ -101,7 +99,3 @@ In the nine years that President Thomas S. Monson and I have served as counselor
 
 [^21]: [[Alma 5.40|Alma 5:40]].
 
-
-
-
-#Holy_Ghost #Honesty #Prophets #Spirituality #Temples

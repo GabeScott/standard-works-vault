@@ -1,7 +1,5 @@
 # Application of Welfare Principles in the Home: A Key to Many Family Problems
 
-Spencer W. Kimball
-
 By Barbara B. Smith - *Relief Society General President*
 
 *Given in the October session of the 1982 General Conference*
@@ -75,4 +73,3 @@ May we press on, with a perfect brightness of hope, overcome our problems, and e
 
 
 
-#Family #Love

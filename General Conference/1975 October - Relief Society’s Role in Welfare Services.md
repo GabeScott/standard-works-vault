@@ -1,7 +1,5 @@
 # Relief Society’s Role in Welfare Services
 
-Spencer W. Kimball
-
 By Barbara B. Smith - *Relief Society General President*
 
 *Given in the October session of the 1975 General Conference*
@@ -55,4 +53,3 @@ I testify to you that we will rejoice in the opportunity to serve in this great 
 
 
 
-#Relief_Society #Welfare

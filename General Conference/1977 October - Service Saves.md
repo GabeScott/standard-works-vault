@@ -1,7 +1,5 @@
 # Service Saves
 
-Spencer W. Kimball
-
 By Elder A. Theodore Tuttle - *Of the Presidency of the First Quorum of the Seventy*
 
 *Given in the October session of the 1977 General Conference*
@@ -57,4 +55,3 @@ I know that we are in the service of the Master. I know that Jesus is the Christ
 
 
 
-#Missionary_Work

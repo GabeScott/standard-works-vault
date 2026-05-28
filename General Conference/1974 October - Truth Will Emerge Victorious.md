@@ -1,7 +1,5 @@
 # Truth Will Emerge Victorious
 
-Spencer W. Kimball
-
 By Elder John H. Vandenberg - *Assistant to the Council of the Twelve*
 
 *Given in the October session of the 1974 General Conference*
@@ -85,4 +83,3 @@ After reading that passage of scripture Joseph Smith sought a grove of trees in 
 
 
 
-#Prophecy #Scriptures #Testimony

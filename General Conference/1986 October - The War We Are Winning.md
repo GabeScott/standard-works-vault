@@ -1,7 +1,5 @@
 # The War We Are Winning
 
-Ezra Taft Benson
-
 By President Gordon B. Hinckley - *First Counselor in the First Presidency*
 
 *Given in the October session of the 1986 General Conference*
@@ -109,4 +107,3 @@ In the name of Jesus Christ, amen.
 
 
 
-#Commitment #Courage #Faith #Priesthood #Satan #Word_Of_Wisdom

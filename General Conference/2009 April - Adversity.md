@@ -1,7 +1,5 @@
 # Adversity
 
-Thomas S. Monson
-
 By President Henry B. Eyring - *First Counselor in the First Presidency*
 
 *Given in the April session of the 2009 General Conference*
@@ -70,7 +68,7 @@ The Lord always suits the relief to the person in need to best strengthen and pu
 
 Most of us know widows who need attention. What touches me is to hear, as I have, of an older widow whom I was intending to visit again having been inspired to visit a younger widow to comfort her. A widow needing comfort herself was sent to comfort another. The Lord helped and blessed two widows by inspiring them to encourage each other. So He gave succor to them both.
 
-The Lord sent help in that same way to the humble poor in [[Alma 34.1|Alma 34]] who had responded to the teaching and testimony of His servants. Once they had repented and were converted, they were still poor. But He sent them to do for others what they might reasonably have thought was beyond them and which they still needed. They were to give others what they would have hoped He would give them. Through His servant, the Lord gave these poor converts this hard task: “After ye have done all these things, if ye turn away the needy, and the naked, and visit not the sick and afflicted, and impart of your substance, if ye have, to those who stand in need—I say unto you, if ye do not any of these things, behold, your prayer is vain, and availeth you nothing, and ye are as hypocrites who do deny the faith.”[^6]
+The Lord sent help in that same way to the humble poor in [[Alma 34.1|Alma 34]][[Alma 34.2|]][[Alma 34.3|]][[Alma 34.4|]][[Alma 34.5|]][[Alma 34.6|]][[Alma 34.7|]][[Alma 34.8|]][[Alma 34.9|]][[Alma 34.10|]][[Alma 34.11|]][[Alma 34.12|]][[Alma 34.13|]][[Alma 34.14|]][[Alma 34.15|]][[Alma 34.16|]][[Alma 34.17|]][[Alma 34.18|]][[Alma 34.19|]][[Alma 34.20|]][[Alma 34.21|]][[Alma 34.22|]][[Alma 34.23|]][[Alma 34.24|]][[Alma 34.25|]][[Alma 34.26|]][[Alma 34.27|]][[Alma 34.28|]][[Alma 34.29|]][[Alma 34.30|]][[Alma 34.31|]][[Alma 34.32|]][[Alma 34.33|]][[Alma 34.34|]][[Alma 34.35|]][[Alma 34.36|]][[Alma 34.37|]][[Alma 34.38|]][[Alma 34.39|]][[Alma 34.40|]][[Alma 34.41|]] who had responded to the teaching and testimony of His servants. Once they had repented and were converted, they were still poor. But He sent them to do for others what they might reasonably have thought was beyond them and which they still needed. They were to give others what they would have hoped He would give them. Through His servant, the Lord gave these poor converts this hard task: “After ye have done all these things, if ye turn away the needy, and the naked, and visit not the sick and afflicted, and impart of your substance, if ye have, to those who stand in need—I say unto you, if ye do not any of these things, behold, your prayer is vain, and availeth you nothing, and ye are as hypocrites who do deny the faith.”[^6]
 
 That may seem much to ask of people in such great need themselves. But I know one young man who was inspired to do that very thing early in his marriage. He and his wife were barely getting by on a tiny budget. But he saw another couple even poorer than they were. To the surprise of his wife, he gave help to them from their scanty finances. A promised blessing of peace came while they were still in their poverty. The blessing of prosperity beyond their fondest dreams came later. And the pattern of seeing someone in need, someone with less or in pain, has never ceased.
 
@@ -113,7 +111,3 @@ I bear you my testimony that God the Father lives. He set a course for each of u
 
 [^7]: [[2 Timothy 4.5|2 Timothy 4:5–8]][[2 Timothy 4.6|]][[2 Timothy 4.7|]][[2 Timothy 4.8|]].
 
-
-
-
-#Adversity #Humility #Service

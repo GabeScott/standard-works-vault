@@ -1,7 +1,5 @@
 # “Bring Up Your Children in Light and Truth”
 
-Gordon B. Hinckley
-
 By Elder H. Verlan Andersen - *Released Member of the Seventy*
 
 *Given in the October session of the 1991 General Conference*
@@ -55,4 +53,3 @@ It is my prayer that each of us will recognize and fulfill well our sacred duty 
 
 
 
-#Faith #Family #Spirituality #Teaching

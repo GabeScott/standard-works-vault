@@ -1,7 +1,5 @@
 # Inspired Ministering
 
-Henry B. Eyring
-
 By President Henry B. Eyring - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 2018 General Conference*
@@ -113,7 +111,3 @@ I bear you my witness that the Lord has already begun a great step forward in Hi
 
 [^2]: Name has been changed.
 
-
-
-
-#Charity #Ministering #Priesthood_Quorums #Service

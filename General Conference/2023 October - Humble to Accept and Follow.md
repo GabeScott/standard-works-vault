@@ -1,7 +1,5 @@
 # Humble to Accept and Follow
 
-David A. Bednar
-
 By Elder Joni L. Koch - *Of the Seventy*
 
 *Given in the October session of the 2023 General Conference*
@@ -10,7 +8,7 @@ By Elder Joni L. Koch - *Of the Seventy*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2023/10/32koch?lang=eng)
 
-In the [[Alma 5.1|fifth chapter of Alma]], an introspective question is posed: “Could ye say, if ye were called to die at this time, within yourselves, that ye have been sufficiently humble?”[^1] That question implies that humility is a mandatory requirement for us to be ready to return to the presence of God.
+In the [[Alma 5.1|fifth chapter of Alma]][[Alma 5.2|]][[Alma 5.3|]][[Alma 5.4|]][[Alma 5.5|]][[Alma 5.6|]][[Alma 5.7|]][[Alma 5.8|]][[Alma 5.9|]][[Alma 5.10|]][[Alma 5.11|]][[Alma 5.12|]][[Alma 5.13|]][[Alma 5.14|]][[Alma 5.15|]][[Alma 5.16|]][[Alma 5.17|]][[Alma 5.18|]][[Alma 5.19|]][[Alma 5.20|]][[Alma 5.21|]][[Alma 5.22|]][[Alma 5.23|]][[Alma 5.24|]][[Alma 5.25|]][[Alma 5.26|]][[Alma 5.27|]][[Alma 5.28|]][[Alma 5.29|]][[Alma 5.30|]][[Alma 5.31|]][[Alma 5.32|]][[Alma 5.33|]][[Alma 5.34|]][[Alma 5.35|]][[Alma 5.36|]][[Alma 5.37|]][[Alma 5.38|]][[Alma 5.39|]][[Alma 5.40|]][[Alma 5.41|]][[Alma 5.42|]][[Alma 5.43|]][[Alma 5.44|]][[Alma 5.45|]][[Alma 5.46|]][[Alma 5.47|]][[Alma 5.48|]][[Alma 5.49|]][[Alma 5.50|]][[Alma 5.51|]][[Alma 5.52|]][[Alma 5.53|]][[Alma 5.54|]][[Alma 5.55|]][[Alma 5.56|]][[Alma 5.57|]][[Alma 5.58|]][[Alma 5.59|]][[Alma 5.60|]][[Alma 5.61|]][[Alma 5.62|]], an introspective question is posed: “Could ye say, if ye were called to die at this time, within yourselves, that ye have been sufficiently humble?”[^1] That question implies that humility is a mandatory requirement for us to be ready to return to the presence of God.
 
 We all like to think we are sufficiently humble, but some experiences in life make us realize that the natural, prideful man or woman often is very much alive within us.
 
@@ -95,7 +93,3 @@ May we be humble to follow the counsel of our prophets and accept that only God 
 
 [^11]: [[D&C 112.10|Doctrine and Covenants 112:10]].
 
-
-
-
-#Humility #Pride #Prophets

@@ -1,7 +1,5 @@
 # “Because I Live, Ye Shall Live Also”
 
-Thomas S. Monson
-
 By Elder Shayne M. Bowen - *Of the Seventy*
 
 *Given in the October session of the 2012 General Conference*
@@ -99,7 +97,3 @@ I testify that on that bright, glorious morning of the First Resurrection, your 
 
 [^6]: *Preach My Gospel: A Guide to Missionary Service* (2004), 52.
 
-
-
-
-#Children #Death #Hope #Jesus_Christ #Resurrection

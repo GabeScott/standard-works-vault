@@ -1,7 +1,5 @@
 # The Priesthood—Mighty Army of the Lord
 
-Gordon B. Hinckley
-
 By President Thomas S. Monson - *First Counselor in the First Presidency*
 
 *Given in the April session of the 1999 General Conference*
@@ -99,7 +97,3 @@ In the name of the Lord Jesus Christ, amen.
 
 [^5]: *Teachings of the Prophet Joseph Smith,* sel. Joseph Fielding Smith (1976), 255–56.
 
-
-
-
-#Bishops #Commandments #Home #Morality #Priesthood

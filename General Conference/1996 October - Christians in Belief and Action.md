@@ -1,7 +1,5 @@
 # Christians in Belief and Action
 
-Gordon B. Hinckley
-
 By Elder Joseph B. Wirthlin - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1996 General Conference*
@@ -133,7 +131,7 @@ I add my personal testimony to others you have heard. Jesus is the Christ, the S
 
 [^28]: See [[Alma 12.32|Alma 12:32–34]][[Alma 12.33|]][[Alma 12.34|]]; [[D&C 130.20|D&C 130:20–21]][[D&C 130.21|]].
 
-[^29]: [[Alma 34.16|Alma 34:16]]; see also [[Mosiah 15.9|Mosiah 15:9]]; [[Alma 42.1|Alma 42]].
+[^29]: [[Alma 34.16|Alma 34:16]]; see also [[Mosiah 15.9|Mosiah 15:9]]; [[Alma 42.1|Alma 42]][[Alma 42.2|]][[Alma 42.3|]][[Alma 42.4|]][[Alma 42.5|]][[Alma 42.6|]][[Alma 42.7|]][[Alma 42.8|]][[Alma 42.9|]][[Alma 42.10|]][[Alma 42.11|]][[Alma 42.12|]][[Alma 42.13|]][[Alma 42.14|]][[Alma 42.15|]][[Alma 42.16|]][[Alma 42.17|]][[Alma 42.18|]][[Alma 42.19|]][[Alma 42.20|]][[Alma 42.21|]][[Alma 42.22|]][[Alma 42.23|]][[Alma 42.24|]][[Alma 42.25|]][[Alma 42.26|]][[Alma 42.27|]][[Alma 42.28|]][[Alma 42.29|]][[Alma 42.30|]][[Alma 42.31|]].
 
 [^30]: See [[D&C 20.37|D&C 20:37]].
 
@@ -159,7 +157,3 @@ I add my personal testimony to others you have heard. Jesus is the Christ, the S
 
 [^41]: In Conference Report, Apr. 1996, [[1996 April - This Glorious Easter Morn.md|92]]; or *Ensign,* May 1996, 67.
 
-
-
-
-#Atonement #Christianity #Commandments #Conversion #Faith #Holy_Ghost #Jesus_Christ #Ordinances #Repentance #Restoration #Scriptures

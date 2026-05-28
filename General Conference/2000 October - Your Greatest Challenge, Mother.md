@@ -1,7 +1,5 @@
 # Your Greatest Challenge, Mother
 
-Gordon B. Hinckley
-
 By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the October session of the 2000 General Conference*
@@ -113,4 +111,3 @@ May the virtue of your children’s lives sanctify and hallow your old age. May 
 
 
 
-#Children #Education #Family #Friendship #Home #Honesty #Loneliness #Motherhood #Prayer #Respect #Single_Members #Standards #Teaching #Tolerance #Women #Word_Of_Wisdom

@@ -1,7 +1,5 @@
 # What Manner of Men Ought We to Be?
 
-Gordon B. Hinckley
-
 By President Ezra Taft Benson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1983 General Conference*
@@ -147,4 +145,3 @@ This is my fervent witness as I invoke the blessings of God upon each one of you
 
 
 
-#Repentance

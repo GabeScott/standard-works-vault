@@ -1,7 +1,5 @@
 # A More Excellent Way
 
-Thomas S. Monson
-
 By President Howard W. Hunter - *President of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1992 General Conference*
@@ -91,4 +89,3 @@ I add my witness that Jesus is the Christ, the Savior of the world, and that thi
 
 
 
-#Charity #Jesus_Christ #Love

@@ -1,7 +1,5 @@
 # The Welfare Production-Distribution Department
 
-Spencer W. Kimball
-
 By Bishop H. Burke Peterson - *First Counselor in the Presiding Bishopric*
 
 *Given in the October session of the 1975 General Conference*
@@ -63,7 +61,3 @@ Brothers and Sisters, I testify that though we do all else and yet do not care f
 
 [^*]: (*excerpts only*)
 
-
-
-
-#Welfare

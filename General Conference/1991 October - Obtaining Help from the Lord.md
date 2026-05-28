@@ -1,7 +1,5 @@
 # Obtaining Help from the Lord
 
-Gordon B. Hinckley
-
 By Elder Richard G. Scott - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1991 General Conference*
@@ -93,4 +91,3 @@ If you are despondent, racked by transgression, are ill, alone, or desperately i
 
 
 
-#Adversity #Faith #Obedience #Prayer #Spirituality

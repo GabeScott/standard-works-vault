@@ -1,7 +1,5 @@
 # Gratitude
 
-Gordon B. Hinckley
-
 By Elder Adney Y. Komatsu - *Emeritus Member of the Seventy*
 
 *Given in the October session of the 1993 General Conference*
@@ -33,4 +31,3 @@ Let us all be diligent and obedient in keeping the commandments of the Lord, tha
 
 
 
-#Gratitude

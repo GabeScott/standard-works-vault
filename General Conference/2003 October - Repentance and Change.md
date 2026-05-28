@@ -1,7 +1,5 @@
 # Repentance and Change
 
-Gordon B. Hinckley
-
 By Elder Dallin H. Oaks - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2003 General Conference*
@@ -101,4 +99,3 @@ I testify that this is what our Lord and Savior would have us do so that we may 
 
 
 
-#Couple_Missionaries #Covenants #Honesty #Morality #Repentance #Worship

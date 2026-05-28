@@ -1,7 +1,5 @@
 # The Spark of Faith
 
-Ezra Taft Benson
-
 By Bishop Henry B. Eyring - *First Counselor in the Presiding Bishopric*
 
 *Given in the October session of the 1986 General Conference*
@@ -65,4 +63,3 @@ I bear my testimony that God lives, Jesus is the Christ, and in this dispensatio
 
 
 
-#Atonement #Faith #Jesus_Christ #Repentance

@@ -1,7 +1,5 @@
 # To Become One of the Fishers
 
-N. Eldon Tanner
-
 By Elder James E. Faust - *Assistant to the Council of the Twelve*
 
 *Given in the October session of the 1972 General Conference*
@@ -31,4 +29,3 @@ Now as a humble follower of the divine Master, I bear witness to the divinity of
 
 
 
-#Gratitude #Humility #Obedience

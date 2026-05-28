@@ -1,7 +1,5 @@
 # The Heart of the Widow
 
-Sharon Eubank
-
 By Elder O. Vincent Haleck - *Of the Seventy*
 
 *Given in the October session of the 2017 General Conference*
@@ -63,7 +61,3 @@ I bear my testimony of the great love that we can share as disciples and followe
 
 [^5]: [[3 Nephi 11.11|3 Nephi 11:11]].
 
-
-
-
-#Consecration #Conversion #Gratitude #Jesus_Christ #Sacrifice #Temples

@@ -1,7 +1,5 @@
 # A Pattern of Righteousness
 
-Thomas S. Monson
-
 By Janette C. Hales - *Second Counselor in the Young Women General Presidency*
 
 *Given in the April session of the 1991 General Conference*
@@ -45,4 +43,3 @@ I am grateful to men and women and people of all ages whose lives help us see th
 
 
 
-#Example #Prayer #Scripture_Study #Service #Spirituality

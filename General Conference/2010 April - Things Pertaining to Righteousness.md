@@ -1,7 +1,5 @@
 # Things Pertaining to Righteousness
 
-Thomas S. Monson
-
 By Elder Francisco J. Viñas - *Of the Seventy*
 
 *Given in the April session of the 2010 General Conference*
@@ -71,4 +69,3 @@ This can be achieved more effectively if revelation is facilitated during the te
 
 
 
-#Obedience #Parents #Scriptures #Teaching

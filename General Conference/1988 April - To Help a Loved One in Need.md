@@ -1,7 +1,5 @@
 # To Help a Loved One in Need
 
-Ezra Taft Benson
-
 By Elder Richard G. Scott - *Of the Presidency of the First Quorum of the Seventy*
 
 *Given in the April session of the 1988 General Conference*
@@ -69,4 +67,3 @@ I know they live. I know that Jesus is the Christ, our Savior and Redeemer. I lo
 
 
 
-#Adversity #Atonement #Forgiveness #Love

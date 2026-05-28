@@ -1,7 +1,5 @@
 # Jesus Christ Is Not Our Burden; He Is Our Relief
 
-Dallin H. Oaks
-
 By Brother David J. Wunderli - *First Counselor in the Young Men General Presidency*
 
 *Given in the April session of the 2026 General Conference*
@@ -109,5 +107,3 @@ Jesus Christ is not the weight; He is our relief;[^18] He is our strength;[^19] 
 
 [^20]: See [[John 14.6|John 14:6]].
 
-
-#Adversity #Discipleship #Jesus_Christ #Youth

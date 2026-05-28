@@ -1,7 +1,5 @@
 # Planting Gospel Seeds of Spirituality
 
-N. Eldon Tanner
-
 By Elder David B. Haight - *Assistant to the Council of the Twelve*
 
 *Given in the October session of the 1972 General Conference*
@@ -85,4 +83,3 @@ May your sons respond to the great call that shall be theirs, I humbly pray in t
 
 
 
-#Missionary_Work

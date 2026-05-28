@@ -1,7 +1,5 @@
 # The Book of Mormon: What Would Your Life Be Like without It?
 
-Sharon Eubank
-
 By President Russell M. Nelson - *President of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2017 General Conference*
@@ -34,7 +32,7 @@ I explained that after the Savior’s Crucifixion and Resurrection, He came to t
 
 At this point, the king became *very* interested. I turned to the mission president accompanying me and asked if he had an extra copy of the Book of Mormon with him. He pulled one from his briefcase.
 
-I opened it to [[3 Nephi 11.1|3 Nephi chapter 11]], and together the king and I read the Savior’s sermon to the Nephites. I then presented the copy of the Book of Mormon to him. His response lodged in my mind and heart forever: “You could have given me diamonds or rubies, but nothing is more precious to me than this additional knowledge about the Lord Jesus Christ.”
+I opened it to [[3 Nephi 11.1|3 Nephi chapter 11]][[3 Nephi 11.2|]][[3 Nephi 11.3|]][[3 Nephi 11.4|]][[3 Nephi 11.5|]][[3 Nephi 11.6|]][[3 Nephi 11.7|]][[3 Nephi 11.8|]][[3 Nephi 11.9|]][[3 Nephi 11.10|]][[3 Nephi 11.11|]][[3 Nephi 11.12|]][[3 Nephi 11.13|]][[3 Nephi 11.14|]][[3 Nephi 11.15|]][[3 Nephi 11.16|]][[3 Nephi 11.17|]][[3 Nephi 11.18|]][[3 Nephi 11.19|]][[3 Nephi 11.20|]][[3 Nephi 11.21|]][[3 Nephi 11.22|]][[3 Nephi 11.23|]][[3 Nephi 11.24|]][[3 Nephi 11.25|]][[3 Nephi 11.26|]][[3 Nephi 11.27|]][[3 Nephi 11.28|]][[3 Nephi 11.29|]][[3 Nephi 11.30|]][[3 Nephi 11.31|]][[3 Nephi 11.32|]][[3 Nephi 11.33|]][[3 Nephi 11.34|]][[3 Nephi 11.35|]][[3 Nephi 11.36|]][[3 Nephi 11.37|]][[3 Nephi 11.38|]][[3 Nephi 11.39|]][[3 Nephi 11.40|]][[3 Nephi 11.41|]], and together the king and I read the Savior’s sermon to the Nephites. I then presented the copy of the Book of Mormon to him. His response lodged in my mind and heart forever: “You could have given me diamonds or rubies, but nothing is more precious to me than this additional knowledge about the Lord Jesus Christ.”
 
 After experiencing the power of the Savior’s words in 3 Nephi, the king proclaimed, “If I am converted and join the Church, I will bring my whole tribe with me.”
 
@@ -191,7 +189,7 @@ I know that President Thomas S. Monson is the prophet of God on the earth today.
 
 [^6]: See [[1 Nephi 13.29|1 Nephi 13:29–33]][[1 Nephi 13.30|]][[1 Nephi 13.31|]][[1 Nephi 13.32|]][[1 Nephi 13.33|]].
 
-[^7]: See [[2 Nephi 26.1|2 Nephi 26–33]].
+[^7]: See [[2 Nephi 26.1|2 Nephi 26–33]][[2 Nephi 26.2|]][[2 Nephi 26.3|]][[2 Nephi 26.4|]][[2 Nephi 26.5|]][[2 Nephi 26.6|]][[2 Nephi 26.7|]][[2 Nephi 26.8|]][[2 Nephi 26.9|]][[2 Nephi 26.10|]][[2 Nephi 26.11|]][[2 Nephi 26.12|]][[2 Nephi 26.13|]][[2 Nephi 26.14|]][[2 Nephi 26.15|]][[2 Nephi 26.16|]][[2 Nephi 26.17|]][[2 Nephi 26.18|]][[2 Nephi 26.19|]][[2 Nephi 26.20|]][[2 Nephi 26.21|]][[2 Nephi 26.22|]][[2 Nephi 26.23|]][[2 Nephi 26.24|]][[2 Nephi 26.25|]][[2 Nephi 26.26|]][[2 Nephi 26.27|]][[2 Nephi 26.28|]][[2 Nephi 26.29|]][[2 Nephi 26.30|]][[2 Nephi 26.31|]][[2 Nephi 26.32|]][[2 Nephi 26.33|]].
 
 [^8]: See [[Moroni 8.11|Moroni 8:11–15]][[Moroni 8.12|]][[Moroni 8.13|]][[Moroni 8.14|]][[Moroni 8.15|]].
 
@@ -205,7 +203,3 @@ I know that President Thomas S. Monson is the prophet of God on the earth today.
 
 [^13]: See *[Teachings of Presidents of the Church: Brigham Young](https://www.churchofjesuschrist.org/study/manual/teachings-brigham-young/chapter-41?lang=eng)* (1997), 299. He was referring to the importance of temple and family history work.
 
-
-
-
-#Book_Of_Mormon #Conversion #Jesus_Christ

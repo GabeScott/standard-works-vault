@@ -1,7 +1,5 @@
 # Do Not Delay
 
-Gordon B. Hinckley
-
 By Elder Henry B. Eyring - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1999 General Conference*
@@ -87,4 +85,3 @@ I testify that God the Father lives. I know that. And He loves us. His Only Bego
 
 
 
-#Family #Forgiveness #Joy #Parenthood #Plan_Of_Salvation #Preparation #Repentance #Sin #Time_Management

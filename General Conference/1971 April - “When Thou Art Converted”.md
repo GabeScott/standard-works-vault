@@ -1,7 +1,5 @@
 # “When Thou Art Converted”
 
-Joseph Fielding Smith
-
 By President S. Dilworth Young - *Of the First Council of the Seventy*
 
 *Given in the April session of the 1971 General Conference*
@@ -55,4 +53,3 @@ I know, too, that Jesus Christ the Lord leads this latter-day work and that he l
 
 
 
-#Conversion #Missionary_Work #Quorums_Of_Seventy

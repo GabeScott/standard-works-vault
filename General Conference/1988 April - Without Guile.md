@@ -1,7 +1,5 @@
 # Without Guile
 
-Ezra Taft Benson
-
 By Elder Joseph B. Wirthlin - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1988 General Conference*
@@ -125,4 +123,3 @@ I testify to you that our Heavenly Father lives and that he is the father of our
 
 
 
-#Honesty

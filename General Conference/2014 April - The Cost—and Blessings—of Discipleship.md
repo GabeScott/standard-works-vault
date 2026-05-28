@@ -1,7 +1,5 @@
 # The Cost—and Blessings—of Discipleship
 
-Thomas S. Monson
-
 By Elder Jeffrey R. Holland - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2014 General Conference*
@@ -111,7 +109,3 @@ Be strong. Live the gospel faithfully even if others around you don’t live it 
 
 [^20]: See [[Helaman 5.12|Helaman 5:12]].
 
-
-
-
-#Adversity #Discipleship #Jesus_Christ #Spirituality

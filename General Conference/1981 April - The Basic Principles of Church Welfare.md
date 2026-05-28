@@ -1,7 +1,5 @@
 # The Basic Principles of Church Welfare
 
-Marion G. Romney
-
 By President Marion G. Romney - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 1981 General Conference*
@@ -69,4 +67,3 @@ That we may have the wisdom and the discipline and live to implement these great
 
 
 
-#Family #Self-Reliance

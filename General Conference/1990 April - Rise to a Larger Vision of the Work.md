@@ -1,7 +1,5 @@
 # Rise to a Larger Vision of the Work
 
-Thomas S. Monson
-
 By President Gordon B. Hinckley - *First Counselor in the First Presidency*
 
 *Given in the April session of the 1990 General Conference*
@@ -93,4 +91,3 @@ This is the work of the Almighty. Let us never forget that. It is the work of Hi
 
 
 
-#Financial_Management #Jesus_Christ #Prophets #Tithing

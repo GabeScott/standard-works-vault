@@ -1,7 +1,5 @@
 # Priesthood—Its Power and Vitality
 
-Wilford G. Edling
-
 By President A. Theodore Tuttle - *Of the First Council of the Seventy*
 
 *Given in the April session of the 1972 General Conference*
@@ -111,4 +109,3 @@ I testify that these men hold the keys of the holy priesthood, that there is pow
 
 
 
-#Priesthood

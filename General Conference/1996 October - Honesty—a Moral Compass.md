@@ -1,7 +1,5 @@
 # Honesty—a Moral Compass
 
-Gordon B. Hinckley
-
 By President James E. Faust - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 1996 General Conference*
@@ -126,7 +124,3 @@ Holding and exercising the priesthood of God is a marvelous blessing. We are pri
 
 [^9]: “Four Simple Things to Help Our Families and Our Nations,” *Ensign,* Sept. 1996, 7.
 
-
-
-
-#Honesty #Priesthood #Truth

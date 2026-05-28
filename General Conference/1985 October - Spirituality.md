@@ -1,7 +1,5 @@
 # Spirituality
 
-Gordon B. Hinckley
-
 By Elder Dallin H. Oaks - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1985 General Conference*
@@ -117,4 +115,3 @@ May we strive to attain that level of spirituality where we sanctify ourselves t
 
 
 
-#Spirituality

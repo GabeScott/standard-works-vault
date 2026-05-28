@@ -1,7 +1,5 @@
 # The Miracle of the Holy Bible
 
-Thomas S. Monson
-
 By Elder M. Russell Ballard - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2007 General Conference*
@@ -71,4 +69,3 @@ My brothers and sisters, we must help all people, including our own members, und
 
 
 
-#Bible #Jesus_Christ #Joseph_Smith #Sacrifice #Scriptures

@@ -1,7 +1,5 @@
 # Modern Pioneers
 
-Ezra Taft Benson
-
 By Elder Dallin H. Oaks - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1989 General Conference*
@@ -105,4 +103,3 @@ This is His work. We are His children. He loves us—one and all. Of this I test
 
 
 
-#Courage #Faith #Forgiveness #Pioneers #Service

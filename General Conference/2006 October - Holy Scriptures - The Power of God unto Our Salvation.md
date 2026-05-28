@@ -1,7 +1,5 @@
 # Holy Scriptures: The Power of God unto Our Salvation
 
-Gordon B. Hinckley
-
 By Elder Robert D. Hales - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2006 General Conference*
@@ -117,7 +115,3 @@ We are living in the latter days, brothers and sisters, in the fulness of times.
 
 [^22]: See [[1 Nephi 15.24|1 Nephi 15:24]].
 
-
-
-
-#Book_Of_Mormon #Jesus_Christ #Scriptures

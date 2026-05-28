@@ -1,7 +1,5 @@
 # Press Forward and Be Steadfast
 
-Gordon B. Hinckley
-
 By Elaine S. Dalton - *Second Counselor in the Young Women General Presidency*
 
 *Given in the April session of the 2003 General Conference*
@@ -47,4 +45,3 @@ And so I say with Nephi: “Wherefore, ye *must* press forward with a steadfastn
 
 
 
-#Endurance #Holy_Ghost #Hope

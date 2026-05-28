@@ -1,7 +1,5 @@
 # The Lengthened Shadow of the Hand of God
 
-Ezra Taft Benson
-
 By President Gordon B. Hinckley - *First Counselor in the First Presidency*
 
 *Given in the April session of the 1987 General Conference*
@@ -117,4 +115,3 @@ As I said at the outset, I marvel at what is happening in the growth and expansi
 
 
 
-#Church_Growth #Joseph_Smith #Missionary_Work #Restoration

@@ -1,7 +1,5 @@
 # Fundamentals of Enduring Family Relationships
 
-Spencer W. Kimball
-
 By President Ezra Taft Benson - *President of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1982 General Conference*
@@ -125,4 +123,3 @@ God bless us to strengthen our homes with love and unity and by following his pr
 
 
 
-#Marriage

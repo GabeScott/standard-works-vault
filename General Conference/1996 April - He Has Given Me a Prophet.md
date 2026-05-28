@@ -1,7 +1,5 @@
 # He Has Given Me a Prophet
 
-James E. Faust
-
 By Anne Prescott - *Midvale East Third Ward, Midvale Utah East Stake*
 
 *Given in the April session of the 1996 General Conference*
@@ -19,4 +17,3 @@ I would just like to tell you how important a latter-day prophet is to me. He is
 
 
 
-#Prayer #Prophets

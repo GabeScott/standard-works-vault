@@ -1,7 +1,5 @@
 # “What Manner of Men Ought Ye to Be?”
 
-James E. Faust
-
 By President Howard W. Hunter - *President of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1994 General Conference*
@@ -35,4 +33,3 @@ What manner of men and women ought we to be? Even as he is. In the name of Jesus
 
 
 
-#Atonement #Example #Jesus_Christ

@@ -1,7 +1,5 @@
 # God Is at the Helm
 
-James E. Faust
-
 By President Gordon B. Hinckley - *First Counselor in the First Presidency*
 
 *Given in the April session of the 1994 General Conference*
@@ -111,4 +109,3 @@ I leave you my blessing and love and my testimony of these things in the name of
 
 
 
-#Authority #Church_Leaders #Church_Organization #Covenants #First_Presidency #Jesus_Christ #Priesthood #Unity

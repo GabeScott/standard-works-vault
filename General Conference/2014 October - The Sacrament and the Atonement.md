@@ -1,7 +1,5 @@
 # The Sacrament and the Atonement
 
-Thomas S. Monson
-
 By Elder James J. Hamula - *Of the Seventy*
 
 *Given in the October session of the 2014 General Conference*
@@ -135,7 +133,3 @@ I bear witness of the power of Jesus Christ to redeem us all from death and sin 
 
 [^41]: [[D&C 84.22|Doctrine and Covenants 84:22]].
 
-
-
-
-#Atonement #Jesus_Christ #Sacrament

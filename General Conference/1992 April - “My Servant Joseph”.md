@@ -1,7 +1,5 @@
 # “My Servant Joseph”
 
-Thomas S. Monson
-
 By Elder Neal A. Maxwell - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1992 General Conference*
@@ -75,4 +73,3 @@ Now, my brethren, “these are \[your\] days” ([[Helaman 7.9|Hel. 7:9]]) in th
 
 
 
-#Adversity #Joseph_Smith #Prophets #Restoration

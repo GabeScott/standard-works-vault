@@ -1,7 +1,5 @@
 # He Slumbers Not, nor Sleeps
 
-Ezra Taft Benson
-
 By President Gordon B. Hinckley - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 1983 General Conference*
@@ -99,4 +97,3 @@ I bear witness to you this morning that he, watching over Israel, slumbers not n
 
 
 
-#Jesus_Christ #Mission_Of_The_Church

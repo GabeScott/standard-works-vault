@@ -1,7 +1,5 @@
 # Come Drink the Living Water
 
-Spencer W. Kimball
-
 By Elder A. Theodore Tuttle - *Of the First Council of the Seventy*
 
 *Given in the April session of the 1975 General Conference*
@@ -57,4 +55,3 @@ We have tasted of the living water, for we know the source. Like those on the re
 
 
 
-#Activation #Blessings

@@ -1,7 +1,5 @@
 # Peace Within
 
-Thomas S. Monson
-
 By Elder Joseph B. Wirthlin - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1991 General Conference*
@@ -57,8 +55,3 @@ I bear testimony that our Heavenly Father lives and that he knows and loves each
 
 
 
-
-
-
-
-#Faith #Holy_Ghost #Jesus_Christ #Peace #Scripture_Study #Spirituality

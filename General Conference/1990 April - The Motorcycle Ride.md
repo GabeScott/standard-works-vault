@@ -1,7 +1,5 @@
 # The Motorcycle Ride
 
-Thomas S. Monson
-
 By Elder Kenneth Johnson - *Of the Seventy*
 
 *Given in the April session of the 1990 General Conference*
@@ -39,4 +37,3 @@ I know that Jesus lives, that he is the Christ, and that he leads this church. I
 
 
 
-#Agency #Jesus_Christ #Youth

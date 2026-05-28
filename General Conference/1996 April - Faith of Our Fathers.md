@@ -1,7 +1,5 @@
 # Faith of Our Fathers
 
-James E. Faust
-
 By Elder Joseph B. Wirthlin - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1996 General Conference*
@@ -131,7 +129,3 @@ Let us dedicate ourselves to doing the Lord’s work to the best of our abilitie
 
 [^28]: [[Jacob 1.7|Jacob 1:7]].
 
-
-
-
-#Atonement #Church_Callings #Commandments #Exodus #Faith #Gratitude #Jesus_Christ #Joseph_Smith #Obedience #Pioneers #Plan_Of_Salvation #Prophets #Service

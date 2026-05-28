@@ -1,7 +1,5 @@
 # Let Us Go Forward!
 
-Gordon B. Hinckley
-
 By President Gordon B. Hinckley - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 1983 General Conference*
@@ -85,4 +83,3 @@ I leave you my testimony and invoke the blessings of heaven upon you. I know tha
 
 
 
-#Adversity

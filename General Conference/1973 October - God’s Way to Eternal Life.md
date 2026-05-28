@@ -1,7 +1,5 @@
 # God’s Way to Eternal Life
 
-Harold B. Lee
-
 By Elder Bernard P. Brockbank - *Assistant to the Council of the Twelve*
 
 *Given in the October session of the 1973 General Conference*
@@ -139,4 +137,3 @@ In the name of Jesus Christ. Amen.
 
 
 
-#Plan_Of_Salvation #Spirituality #Truth

@@ -1,7 +1,5 @@
 # Call of the Prophets
 
-Marion G. Romney
-
 By Elder LeGrand Richards - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1981 General Conference*
@@ -91,4 +89,3 @@ God bless you! Thank God for the restoration of the gospel through the Prophet J
 
 
 
-#Prophets #Restoration

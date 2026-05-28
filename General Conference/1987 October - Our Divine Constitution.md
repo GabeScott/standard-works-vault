@@ -1,7 +1,5 @@
 # Our Divine Constitution
 
-Ezra Taft Benson
-
 By President Ezra Taft Benson - *President of the Church*
 
 *Given in the October session of the 1987 General Conference*
@@ -113,4 +111,3 @@ May we be equally as valiant and as free, I pray in the name of Jesus Christ, am
 
 
 
-#U.S._Constitution

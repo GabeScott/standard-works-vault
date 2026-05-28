@@ -1,7 +1,5 @@
 # Sustaining the Living Prophets
 
-James E. Faust
-
 By Janette Hales Beckham - *Young Women General President*
 
 *Given in the April session of the 1996 General Conference*
@@ -43,4 +41,3 @@ It is my prayer that we will show by our behavior that we are a covenant people,
 
 
 
-#Church_Leaders #Prophets #Testimony

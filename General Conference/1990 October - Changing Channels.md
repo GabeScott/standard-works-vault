@@ -1,7 +1,5 @@
 # Changing Channels
 
-Gordon B. Hinckley
-
 By Elder Marion D. Hanks - *Of the Presidency of the Seventy*
 
 *Given in the October session of the 1990 General Conference*
@@ -97,4 +95,3 @@ That we may, faithfully, I pray in the name of Jesus Christ, amen.
 
 
 
-#Agency #Priesthood #Youth

@@ -1,7 +1,5 @@
 # Our Responsibilities as Priesthood Holders
 
-Joseph Fielding Smith
-
 By President Joseph Fielding Smith - *President of the Church*
 
 *Given in the April session of the 1971 General Conference*
@@ -47,4 +45,3 @@ I testify that the work is true and pray that all of us may be true and faithful
 
 
 
-#Priesthood

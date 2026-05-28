@@ -1,7 +1,5 @@
 # Back to Gospel Basics
 
-Thomas S. Monson
-
 By Elder L. Tom Perry - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1993 General Conference*
@@ -95,4 +93,3 @@ God lives! Jesus is the Christ, the Savior of the world. This is my solemn witne
 
 
 
-#Prayer #Scripture_Study

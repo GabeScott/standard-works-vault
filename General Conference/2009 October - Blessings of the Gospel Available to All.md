@@ -1,7 +1,5 @@
 # Blessings of the Gospel Available to All
 
-Thomas S. Monson
-
 By Elder Joseph W. Sitati - *Of the Seventy*
 
 *Given in the October session of the 2009 General Conference*
@@ -75,7 +73,7 @@ I testify of the Savior Jesus Christ, by whom we have the gospel and promise of 
 
 [^6]: See [[Genesis 11.1|Genesis 11:1–8]][[Genesis 11.2|]][[Genesis 11.3|]][[Genesis 11.4|]][[Genesis 11.5|]][[Genesis 11.6|]][[Genesis 11.7|]][[Genesis 11.8|]].
 
-[^7]: See [[Ether 2.8|Ether 2:8–12]][[Ether 2.9|]][[Ether 2.10|]][[Ether 2.11|]][[Ether 2.12|]]; see also [[Ether 1.33|Ether 1:33–43]][[Ether 1.34|]][[Ether 1.35|]][[Ether 1.36|]][[Ether 1.37|]][[Ether 1.38|]][[Ether 1.39|]][[Ether 1.40|]][[Ether 1.41|]][[Ether 1.42|]][[Ether 1.43|]]; [[Ether 4.1|4–6]].
+[^7]: See [[Ether 2.8|Ether 2:8–12]][[Ether 2.9|]][[Ether 2.10|]][[Ether 2.11|]][[Ether 2.12|]]; see also [[Ether 1.33|Ether 1:33–43]][[Ether 1.34|]][[Ether 1.35|]][[Ether 1.36|]][[Ether 1.37|]][[Ether 1.38|]][[Ether 1.39|]][[Ether 1.40|]][[Ether 1.41|]][[Ether 1.42|]][[Ether 1.43|]]; [[Ether 4.1|4–6]][[Ether 4.2|]][[Ether 4.3|]][[Ether 4.4|]][[Ether 4.5|]][[Ether 4.6|]][[Ether 4.7|]][[Ether 4.8|]][[Ether 4.9|]][[Ether 4.10|]][[Ether 4.11|]][[Ether 4.12|]][[Ether 4.13|]][[Ether 4.14|]][[Ether 4.15|]][[Ether 4.16|]][[Ether 4.17|]][[Ether 4.18|]][[Ether 4.19|]].
 
 [^8]: See [[Genesis 12.1|Genesis 12–17]][[Genesis 12.2|]][[Genesis 12.3|]][[Genesis 12.4|]][[Genesis 12.5|]][[Genesis 12.6|]][[Genesis 12.7|]][[Genesis 12.8|]][[Genesis 12.9|]][[Genesis 12.10|]][[Genesis 12.11|]][[Genesis 12.12|]][[Genesis 12.13|]][[Genesis 12.14|]][[Genesis 12.15|]][[Genesis 12.16|]][[Genesis 12.17|]][[Genesis 12.18|]][[Genesis 12.19|]][[Genesis 12.20|]]; [[Genesis 22.1|22]][[Genesis 22.2|]][[Genesis 22.3|]][[Genesis 22.4|]][[Genesis 22.5|]][[Genesis 22.6|]][[Genesis 22.7|]][[Genesis 22.8|]][[Genesis 22.9|]][[Genesis 22.10|]][[Genesis 22.11|]][[Genesis 22.12|]][[Genesis 22.13|]][[Genesis 22.14|]][[Genesis 22.15|]][[Genesis 22.16|]][[Genesis 22.17|]][[Genesis 22.18|]][[Genesis 22.19|]][[Genesis 22.20|]][[Genesis 22.21|]][[Genesis 22.22|]][[Genesis 22.23|]][[Genesis 22.24|]]; see also [[Abraham 1.1|Abraham 1–2]][[Abraham 1.2|]][[Abraham 1.3|]][[Abraham 1.4|]][[Abraham 1.5|]][[Abraham 1.6|]][[Abraham 1.7|]][[Abraham 1.8|]][[Abraham 1.9|]][[Abraham 1.10|]][[Abraham 1.11|]][[Abraham 1.12|]][[Abraham 1.13|]][[Abraham 1.14|]][[Abraham 1.15|]][[Abraham 1.16|]][[Abraham 1.17|]][[Abraham 1.18|]][[Abraham 1.19|]][[Abraham 1.20|]][[Abraham 1.21|]][[Abraham 1.22|]][[Abraham 1.23|]][[Abraham 1.24|]][[Abraham 1.25|]][[Abraham 1.26|]][[Abraham 1.27|]][[Abraham 1.28|]][[Abraham 1.29|]][[Abraham 1.30|]][[Abraham 1.31|]].
 
@@ -95,7 +93,3 @@ I testify of the Savior Jesus Christ, by whom we have the gospel and promise of 
 
 [^16]: See [[Jacob 5.57|Jacob 5:57–68]][[Jacob 5.58|]][[Jacob 5.59|]][[Jacob 5.60|]][[Jacob 5.61|]][[Jacob 5.62|]][[Jacob 5.63|]][[Jacob 5.64|]][[Jacob 5.65|]][[Jacob 5.66|]][[Jacob 5.67|]][[Jacob 5.68|]].
 
-
-
-
-#Covenants #Missionary_Work #Restoration

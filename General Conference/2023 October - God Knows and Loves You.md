@@ -1,7 +1,5 @@
 # God Knows and Loves You
 
-David A. Bednar
-
 By Elder Alan T. Phillips - *Of the Seventy*
 
 *Given in the October session of the 2023 General Conference*
@@ -149,7 +147,3 @@ Of these simple but foundational truths I testify in the name of Jesus Christ, a
 
 [^30]: See [[Mark 8.27|Mark 8:27–29]][[Mark 8.28|]][[Mark 8.29|]].
 
-
-
-
-#Atonement #Divine_Nature #God_The_Father #Jesus_Christ #Love

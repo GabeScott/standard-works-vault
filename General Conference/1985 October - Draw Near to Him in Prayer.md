@@ -1,7 +1,5 @@
 # Draw Near to Him in Prayer
 
-Gordon B. Hinckley
-
 By Dwan J. Young - *Primary General President*
 
 *Given in the October session of the 1985 General Conference*
@@ -61,4 +59,3 @@ The important thing to remember is to pray often, talk to Heavenly Father, seek 
 
 
 
-#Prayer

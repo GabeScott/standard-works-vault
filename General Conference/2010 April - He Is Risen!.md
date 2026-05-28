@@ -1,7 +1,5 @@
 # He Is Risen!
 
-Thomas S. Monson
-
 By President Thomas S. Monson - *President of the Church*
 
 *Given in the April session of the 2010 General Conference*
@@ -157,7 +155,3 @@ As one of His special witnesses on earth today, this glorious Easter Sunday, I d
 
 [^18]: “He Is Risen!” *Hymns,* no. 199.
 
-
-
-
-#Death #Jesus_Christ #Resurrection

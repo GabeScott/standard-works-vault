@@ -1,7 +1,5 @@
 # “By Love, Serve One Another”
 
-Joseph Fielding Smith
-
 By President S. Dilworth Young - *Of the First Council of the Seventy*
 
 *Given in the October session of the 1971 General Conference*
@@ -55,4 +53,3 @@ I know that Jesus Christ lives, and that his Holy Father lives also. I sustain P
 
 
 
-#Love #Service

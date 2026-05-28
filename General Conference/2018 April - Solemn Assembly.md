@@ -1,7 +1,5 @@
 # Solemn Assembly
 
-Henry B. Eyring
-
 By Presented by President Henry B. Eyring - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 2018 General Conference*
@@ -91,4 +89,3 @@ Thank you, brothers and sisters, for your love and support.
 
 
 
-#Church_Organization #Prophets

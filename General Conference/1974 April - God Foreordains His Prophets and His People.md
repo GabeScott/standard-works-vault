@@ -1,7 +1,5 @@
 # God Foreordains His Prophets and His People
 
-Spencer W. Kimball
-
 By Elder Bruce R. McConkie - *Of the Council of the Twelve*
 
 *Given in the April session of the 1974 General Conference*
@@ -101,4 +99,3 @@ God be thanked that he has poured out his Spirit upon us so that we know of the 
 
 
 
-#Foreordination #Plan_Of_Salvation

@@ -1,7 +1,5 @@
 # The Opportunity of a Lifetime
 
-Richard G. Scott
-
 By Elder W. Christopher Waddell - *Of the Seventy*
 
 *Given in the October session of the 2011 General Conference*
@@ -65,4 +63,3 @@ As you accept this invitation, you will learn a great lesson, as did Elder Misie
 
 
 
-#Activation #Book_Of_Mormon #Missionary_Work #Sacrifice #Service #Youth

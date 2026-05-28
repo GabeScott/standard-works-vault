@@ -1,7 +1,5 @@
 # The Twelve Apostles
 
-Gordon B. Hinckley
-
 By President Boyd K. Packer - *Acting President of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1996 General Conference*
@@ -179,7 +177,3 @@ There are limits to what the Spirit permits us to say.[^34] And so I close with 
 
 [^35]: [[D&C 1.30|D&C 1:30]].
 
-
-
-
-#Angels #Church_Leaders #Family #Holy_Ghost #Prophets #Quorum_Of_The_Twelve_Apostles #Restoration #Testimony #Unity

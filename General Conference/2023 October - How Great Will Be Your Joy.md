@@ -1,7 +1,5 @@
 # How Great Will Be Your Joy
 
-David A. Bednar
-
 By Elder Ronald A. Rasband - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2023 General Conference*
@@ -133,7 +131,3 @@ I also promise that as you serve, you will feel the love of the Lord in your lif
 
 [^30]: [[Jude 1.2|Jude 1:2]].
 
-
-
-
-#Gathering #Joy #Missionary_Work #Senior_Missionaries #Service

@@ -1,7 +1,5 @@
 # To Be Free of Heavy Burdens
 
-Gordon B. Hinckley
-
 By Elder Richard G. Scott - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2002 General Conference*
@@ -77,7 +75,7 @@ In closing, if you have felt impressions to be free of burdens caused by yoursel
 
 [^7]: [[Alma 38.8|Alma 38:8–9]][[Alma 38.9|]].
 
-[^8]: See [[Alma 39.1|Alma 39–42]].
+[^8]: See [[Alma 39.1|Alma 39–42]][[Alma 39.2|]][[Alma 39.3|]][[Alma 39.4|]][[Alma 39.5|]][[Alma 39.6|]][[Alma 39.7|]][[Alma 39.8|]][[Alma 39.9|]][[Alma 39.10|]][[Alma 39.11|]][[Alma 39.12|]][[Alma 39.13|]][[Alma 39.14|]][[Alma 39.15|]][[Alma 39.16|]][[Alma 39.17|]][[Alma 39.18|]][[Alma 39.19|]].
 
 [^9]: [[2 Nephi 2.7|2 Nephi 2:7]]; see also [[Psalms 34.18|Psalm 34:18]].
 
@@ -89,7 +87,3 @@ In closing, if you have felt impressions to be free of burdens caused by yoursel
 
 [^13]: See Richard G. Scott, in Conference Report, Apr. 1992, [[1992 April - Healing the Tragic Scars of Abuse.md|43–46]]; or *Ensign,* May 1992, 31.
 
-
-
-
-#Accountability #Atonement #Forgiveness #Healing #Peace #Repentance

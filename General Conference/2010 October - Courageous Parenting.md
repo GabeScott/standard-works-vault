@@ -1,7 +1,5 @@
 # Courageous Parenting
 
-Thomas S. Monson
-
 By Elder Larry R. Lawrence - *Of the Seventy*
 
 *Given in the October session of the 2010 General Conference*
@@ -71,7 +69,3 @@ Parenting teenagers in the latter days is a very humbling assignment. Satan and 
 
 [^4]: Boyd K. Packer, in Conference Report, Apr. 1992, [[1992 April - Our Moral Environment.md|93]]; or *Ensign,* May 1992, 67.
 
-
-
-
-#Children #Family #Holy_Ghost #Obedience #Parenthood

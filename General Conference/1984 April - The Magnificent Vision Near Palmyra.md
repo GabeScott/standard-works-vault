@@ -1,7 +1,5 @@
 # The Magnificent Vision Near Palmyra
 
-Gordon B. Hinckley
-
 By Elder James E. Faust - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1984 General Conference*
@@ -113,4 +111,3 @@ Since no one was with Joseph when this great vision took place in the wooded gro
 
 
 
-#Church_History #Joseph_Smith

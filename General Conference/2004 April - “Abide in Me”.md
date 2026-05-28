@@ -1,7 +1,5 @@
 # “Abide in Me”
 
-Gordon B. Hinckley
-
 By Elder Jeffrey R. Holland - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2004 General Conference*
@@ -57,7 +55,3 @@ Jesus said, “Without me ye can do nothing.”[^6] I testify that that is God�
 
 [^6]: [[John 15.5|John 15:5]].
 
-
-
-
-#Activation #Conversion #Couple_Missionaries #Endurance #Missionary_Work #Sacrifice

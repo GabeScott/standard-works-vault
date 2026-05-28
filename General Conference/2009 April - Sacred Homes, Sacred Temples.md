@@ -1,7 +1,5 @@
 # Sacred Homes, Sacred Temples
 
-Thomas S. Monson
-
 By Elder Gary E. Stevenson - *Of the Seventy*
 
 *Given in the April session of the 2009 General Conference*
@@ -93,7 +91,3 @@ I conclude where I began, with the words of an innocent child: “You are never 
 
 [^14]: Boyd K. Packer, in Conference Report, Apr. 1995, [[1995 April - “The Shield of Faith”.md|8]]; or *Ensign,* May 1995, 8.
 
-
-
-
-#Family #Home #Temples

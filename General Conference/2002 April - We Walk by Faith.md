@@ -1,7 +1,5 @@
 # We Walk by Faith
 
-Gordon B. Hinckley
-
 By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the April session of the 2002 General Conference*
@@ -89,4 +87,3 @@ May God, our Eternal Father, continue to smile upon this, His Kingdom, and cause
 
 
 
-#Faith #Prayer #Tithing

@@ -1,7 +1,5 @@
 # The Exquisite Gift of the Son
 
-Russell M. Nelson
-
 By Elder Matthew S. Holland - *Of the Seventy*
 
 *Given in the October session of the 2020 General Conference*
@@ -99,7 +97,3 @@ I witness to you that through the staggering goodness of Jesus Christ and His in
 
 [^26]: See [[Isaiah 61.3|Isaiah 61:3]]; [[Joseph Smith History 1.31|Joseph Smith—History 1:31]].
 
-
-
-
-#Adversity #Atonement #Jesus_Christ #Repentance

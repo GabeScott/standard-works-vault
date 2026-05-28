@@ -1,7 +1,5 @@
 # The Voice of Warning
 
-Bonnie H. Cordon
-
 By Elder D. Todd Christofferson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2017 General Conference*
@@ -165,7 +163,3 @@ May we each be able to say to the Lord with David: “I have not hid thy righteo
 
 [^36]: [[Psalms 40.10|Psalm 40:10–11]][[Psalms 40.11|]].
 
-
-
-
-#Accountability #Jesus_Christ #Love #Parenthood #Prophets #Standards

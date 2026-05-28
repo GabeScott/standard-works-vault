@@ -1,7 +1,5 @@
 # Save the Children
 
-Gordon B. Hinckley
-
 By President Gordon B. Hinckley - *First Counselor in the First Presidency*
 
 *Given in the October session of the 1994 General Conference*
@@ -123,4 +121,3 @@ Save the children. Too many suffer and weep. God bless us to be mindful of them,
 
 
 
-#Abuse #Children #Faith #Home #Morality

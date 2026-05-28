@@ -1,7 +1,5 @@
 # At All Times, in All Things, and in All Places
 
-Dieter F. Uchtdorf
-
 By Elaine S. Dalton - *First Counselor in the Young Women General Presidency*
 
 *Given in the April session of the 2008 General Conference*
@@ -49,4 +47,3 @@ I testify that as you stand as a witness, obey the commandments, and press forwa
 
 
 
-#Courage #Faith #Jesus_Christ #Obedience

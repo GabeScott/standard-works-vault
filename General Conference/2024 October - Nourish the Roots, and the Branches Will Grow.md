@@ -1,7 +1,5 @@
 # Nourish the Roots, and the Branches Will Grow
 
-Henry B. Eyring
-
 By Elder Dieter F. Uchtdorf - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2024 General Conference*
@@ -145,7 +143,3 @@ It is my sincere prayer and blessing that we will constantly nourish the roots o
 
 [^22]: [[Alma 32.37|Alma 32:37, 41–43]][[Alma 32.41|]][[Alma 32.42|]][[Alma 32.43|]].
 
-
-
-
-#Faith #Jesus_Christ #Testimony #Truth

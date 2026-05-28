@@ -1,7 +1,5 @@
 # Scriptures
 
-Spencer W. Kimball
-
 By Elder Boyd K. Packer - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1982 General Conference*
@@ -105,4 +103,3 @@ He lives. He is our Savior, our Redeemer, our Lord. Of Him I bear an apostolic w
 
 
 
-#Book_Of_Mormon #Scriptures

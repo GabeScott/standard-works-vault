@@ -1,7 +1,5 @@
 # Waiting upon the Lord: Thy Will Be Done
 
-Richard G. Scott
-
 By Elder Robert D. Hales - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2011 General Conference*
@@ -167,7 +165,3 @@ On this Sabbath morning, I express gratitude that “in my Gethsemane”[^43] an
 
 [^47]: [[Matthew 26.42|Matthew 26:42]].
 
-
-
-
-#Adversity #Endurance #Faith #Hope #Opposition #Patience #Trust

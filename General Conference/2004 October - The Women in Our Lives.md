@@ -1,7 +1,5 @@
 # The Women in Our Lives
 
-Gordon B. Hinckley
-
 By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the October session of the 2004 General Conference*
@@ -112,4 +110,3 @@ How thankful I am, how thankful we all must be, for the women in our lives. God 
 
 
 
-#Divorce #Love #Marriage #Service #Women

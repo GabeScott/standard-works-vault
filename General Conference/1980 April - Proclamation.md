@@ -1,7 +1,5 @@
 # Proclamation
 
-Spencer W. Kimball
-
 By 
 
 *Given in the April session of the 1980 General Conference*
@@ -55,4 +53,3 @@ We call upon all men and women to forsake evil and turn to God; to work together
 
 
 
-#Restoration

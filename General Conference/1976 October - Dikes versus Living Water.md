@@ -1,7 +1,5 @@
 # Dikes versus Living Water
 
-Spencer W. Kimball
-
 By Elder Joseph B. Wirthlin - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1976 General Conference*
@@ -43,4 +41,3 @@ How could one’s strength ebb or falter when it may be so dependably and contin
 
 
 
-#Dedication #Safety #Success

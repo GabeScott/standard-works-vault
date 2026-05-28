@@ -1,7 +1,5 @@
 # We Need Men of Courage
 
-Spencer W. Kimball
-
 By President Marion G. Romney - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 1975 General Conference*
@@ -102,4 +100,3 @@ God bless us to that end, I pray in the name of Jesus. Amen.
 
 
 
-#Courage

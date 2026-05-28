@@ -1,7 +1,5 @@
 # Consider Your Ways
 
-Harold B. Lee
-
 By Elder L. Tom Perry - *Assistant to the Council of the Twelve*
 
 *Given in the April session of the 1973 General Conference*
@@ -71,4 +69,3 @@ I leave you my witness that I know that God lives. I know that his Son is direct
 
 
 
-#Family #Holy_Ghost #Home #Repentance

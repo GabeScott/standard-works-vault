@@ -1,7 +1,5 @@
 # “I Was a Stranger”
 
-Cheryl A. Esplin
-
 By Linda K. Burton - *Relief Society General President*
 
 *Given in the April session of the 2016 General Conference*
@@ -123,7 +121,3 @@ As we consider the “pressing calls” of those who need our help, let’s ask 
 
 [^21]: [[Mark 14.6|Mark 14:6, 8]][[Mark 14.8|]].
 
-
-
-
-#Divine_Nature #Love #Relief_Society #Service #Women

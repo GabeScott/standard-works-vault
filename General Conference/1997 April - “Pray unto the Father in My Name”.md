@@ -1,7 +1,5 @@
 # “Pray unto the Father in My Name”
 
-Gordon B. Hinckley
-
 By Elder L. Edward Brown - *Of the Seventy*
 
 *Given in the April session of the 1997 General Conference*
@@ -57,4 +55,3 @@ I testify to you in that holy name, even the name of Jesus Christ, that God is o
 
 
 
-#Children #Communication #God_The_Father #Holy_Ghost #Jesus_Christ #Prayer

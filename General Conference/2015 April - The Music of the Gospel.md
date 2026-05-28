@@ -1,7 +1,5 @@
 # The Music of the Gospel
 
-Cheryl A. Esplin
-
 By Elder Wilford W. Andersen - *Of the Seventy*
 
 *Given in the April session of the 2015 General Conference*
@@ -51,4 +49,3 @@ May it be so in each of our lives and in each of our homes is my prayer in the n
 
 
 
-#Children #Holy_Ghost #Home #Parenthood #Patience

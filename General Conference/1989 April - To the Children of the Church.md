@@ -1,7 +1,5 @@
 # To the Children of the Church
 
-Ezra Taft Benson
-
 By President Ezra Taft Benson - *President of the Church*
 
 *Given in the April session of the 1989 General Conference*
@@ -141,4 +139,3 @@ For this I fervently pray for the children of the Church, in the name of Jesus C
 
 
 
-#Book_Of_Mormon #Children #Family #Obedience #Plan_Of_Salvation

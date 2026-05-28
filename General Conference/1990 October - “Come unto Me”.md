@@ -1,7 +1,5 @@
 # “Come unto Me”
 
-Gordon B. Hinckley
-
 By President Howard W. Hunter - *President of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1990 General Conference*
@@ -53,4 +51,3 @@ May we do so in appreciation for the loving gift of eternal joy he offers us I p
 
 
 
-#Adversity #Faith #Humility #Jesus_Christ #Pride

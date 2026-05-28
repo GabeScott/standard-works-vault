@@ -1,7 +1,5 @@
 # Priesthood
 
-Spencer W. Kimball
-
 By President Marion G. Romney - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 1982 General Conference*

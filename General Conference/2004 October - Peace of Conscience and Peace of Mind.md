@@ -1,7 +1,5 @@
 # Peace of Conscience and Peace of Mind
 
-Gordon B. Hinckley
-
 By Elder Richard G. Scott - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2004 General Conference*
@@ -101,7 +99,3 @@ When memory of prior mistakes encroached upon Ammon’s mind, he turned his thou
 
 [^13]: See [[Alma 26.17|Alma 26:17–20]][[Alma 26.18|]][[Alma 26.19|]][[Alma 26.20|]].
 
-
-
-
-#Conscience #Forgiveness #Jesus_Christ #Peace #Repentance #Temptation

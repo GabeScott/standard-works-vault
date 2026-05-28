@@ -1,7 +1,5 @@
 # Welcome to Conference
 
-Gordon B. Hinckley
-
 By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the October session of the 1998 General Conference*
@@ -33,4 +31,3 @@ Now, brothers and sisters, I invite all of you to listen to those whom you have 
 
 
 
-#Family #General_Conference #Jesus_Christ #Scripture_Study

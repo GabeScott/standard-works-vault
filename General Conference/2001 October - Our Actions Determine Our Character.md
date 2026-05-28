@@ -1,7 +1,5 @@
 # Our Actions Determine Our Character
 
-Gordon B. Hinckley
-
 By Elder Wayne S. Peterson - *Of the Seventy*
 
 *Given in the October session of the 2001 General Conference*
@@ -67,4 +65,3 @@ Jesus Christ is the perfect example. He is our Savior and our Redeemer. I testif
 
 
 
-#Agency #Contention #Fear #Home #Jesus_Christ #Love

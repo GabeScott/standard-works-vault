@@ -1,7 +1,5 @@
 # Be of Good Cheer
 
-Thomas S. Monson
-
 By President Thomas S. Monson - *President of the Church*
 
 *Given in the April session of the 2009 General Conference*
@@ -114,7 +112,3 @@ I declare that God lives and that He hears and answers our prayers. His Son, Jes
 
 [^9]: [[2 Nephi 9.18|2 Nephi 9:18]].
 
-
-
-
-#Adversity #Dedication #Hope #Joy

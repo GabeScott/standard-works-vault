@@ -1,7 +1,5 @@
 # Broken Things to Mend
 
-Robert D. Hales
-
 By Elder Jeffrey R. Holland - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2006 General Conference*
@@ -130,7 +128,3 @@ May we all, especially the poor in spirit, come unto Him and be made whole, I pr
 
 [^19]: George Blair, “The Carpenter of Nazareth,” in Obert C. Tanner, *Christ’s Ideals for Living* (Sunday School manual, 1955), 22.
 
-
-
-
-#Jesus_Christ #Peace #Repentance

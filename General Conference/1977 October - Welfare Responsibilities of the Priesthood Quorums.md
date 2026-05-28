@@ -1,7 +1,5 @@
 # Welfare Responsibilities of the Priesthood Quorums
 
-Spencer W. Kimball
-
 By Elder Gordon B. Hinckley - *Of the Council of the Twelve*
 
 *Given in the October session of the 1977 General Conference*
@@ -61,4 +59,3 @@ God help us to increase our efforts toward that day of realization, I humbly pra
 
 
 
-#Priesthood #Welfare

@@ -1,7 +1,5 @@
 # The Bond of Charity
 
-Spencer W. Kimball
-
 By Barbara B. Smith - *Relief Society General President*
 
 *Given in the October session of the 1980 General Conference*
@@ -55,4 +53,3 @@ God grant that we may “learn, then teach” with receptive minds and clear pur
 
 
 
-#Charity #Relief_Society

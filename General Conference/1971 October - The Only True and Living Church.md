@@ -1,7 +1,5 @@
 # The Only True and Living Church
 
-Joseph Fielding Smith
-
 By Elder Boyd K. Packer - *Of the Council of the Twelve*
 
 *Given in the October session of the 1971 General Conference*
@@ -85,7 +83,3 @@ I bear witness that he is a prophet of God. I have a witness that Jesus is the C
 
 [^1]: “To an Atheist,” in *The Search* (Trilogy Arts, 1970), p. 34.
 
-
-
-
-#Church_Organization

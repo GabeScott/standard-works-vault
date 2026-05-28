@@ -1,7 +1,5 @@
 # The Fruit of Our Welfare Services Labors
 
-Spencer W. Kimball
-
 By President Spencer W. Kimball - *President of the Church*
 
 *Given in the October session of the 1978 General Conference*
@@ -133,4 +131,3 @@ May the Lord bless us in this great and divinely inspired welfare work, I humbly
 
 
 
-#Preparation #Relief_Society #Welfare

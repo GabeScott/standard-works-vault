@@ -1,7 +1,5 @@
 # Good Habits Develop Good Character
 
-Spencer W. Kimball
-
 By Elder Delbert L. Stapley - *Of the Council of the Twelve*
 
 *Given in the October session of the 1974 General Conference*
@@ -98,4 +96,3 @@ I bear solemn witness to the value of good habits and praiseworthy character in 
 
 
 
-#Character #Habits

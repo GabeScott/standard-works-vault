@@ -1,7 +1,5 @@
 # The Soul’s Sincere Desire
 
-Jean B. Bingham
-
 By Carol F. McConkie - *First Counselor in the Young Women General Presidency*
 
 *Given in the October session of the 2016 General Conference*
@@ -103,7 +101,3 @@ Prayer is a gift from God. We need never feel lost or alone. I testify that ever
 
 [^22]: [[2 Nephi 31.20|2 Nephi 31:20]].
 
-
-
-
-#Prayer

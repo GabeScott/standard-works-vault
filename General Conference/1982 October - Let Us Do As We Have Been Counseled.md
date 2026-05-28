@@ -1,7 +1,5 @@
 # Let Us Do As We Have Been Counseled
 
-Spencer W. Kimball
-
 By President N. Eldon Tanner - *First Counselor in the First Presidency*
 
 *Given in the October session of the 1982 General Conference*
@@ -31,4 +29,3 @@ May the Lord bless us to this end, I pray in the name of Jesus Christ, amen.
 
 
 
-#Prayer

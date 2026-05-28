@@ -1,7 +1,5 @@
 # “He Hath Filled the Hungry with Good Things”
 
-Gordon B. Hinckley
-
 By Elder Jeffrey R. Holland - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1997 General Conference*
@@ -103,7 +101,3 @@ I pray this morning that all who are hungering and thirsting, and sometimes wand
 
 [^25]: See [[Luke 1.53|Luke 1:53]].
 
-
-
-
-#Atonement #Death #Forgiveness #General_Conference #Jesus_Christ #Mercy #Plan_Of_Salvation #Repentance #Restoration #Resurrection #Spirituality

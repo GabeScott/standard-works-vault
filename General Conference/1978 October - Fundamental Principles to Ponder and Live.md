@@ -1,7 +1,5 @@
 # Fundamental Principles to Ponder and Live
 
-Spencer W. Kimball
-
 By President Spencer W. Kimball - *President of the Church*
 
 *Given in the October session of the 1978 General Conference*
@@ -150,4 +148,3 @@ And now in closing, I wish to express appreciation for all that has been said by
 
 
 
-#Animals #Profanity #Women

@@ -1,7 +1,5 @@
 # That Ye May Have Roots and Branches
 
-Ezra Taft Benson
-
 By Elder Hartman Rector, Jr. - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1983 General Conference*
@@ -59,4 +57,3 @@ Who, then, can afford not to give the Lord his tenth? Surely neither you nor I; 
 
 
 
-#Tithing

@@ -1,7 +1,5 @@
 # Five Million Members—A Milestone and Not a Summit
 
-Spencer W. Kimball
-
 By President Gordon B. Hinckley - *Counselor in the First Presidency*
 
 *Given in the April session of the 1982 General Conference*
@@ -95,4 +93,3 @@ In reaching a membership of five million, we have reached a milestone. It must n
 
 
 
-#Endurance #Love #Obedience

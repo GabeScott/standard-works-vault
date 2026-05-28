@@ -1,7 +1,5 @@
 # Spiritual Eclipse
 
-Sharon Eubank
-
 By Elder Gary E. Stevenson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2017 General Conference*
@@ -145,7 +143,3 @@ I bear testimony that no matter the obstruction that may block our vision of gos
 
 [^17]: See “Solar Eclipse and Your Eyes,” preventblindness.org.
 
-
-
-
-#Adversity #Humility #Media #Perspective #Pride #Safety

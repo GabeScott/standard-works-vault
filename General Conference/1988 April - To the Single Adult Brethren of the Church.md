@@ -1,7 +1,5 @@
 # To the Single Adult Brethren of the Church
 
-Ezra Taft Benson
-
 By President Ezra Taft Benson - *President of the Church*
 
 *Given in the April session of the 1988 General Conference*
@@ -99,4 +97,3 @@ Know, my good brethren, that I have spoken from my heart and by His Spirit becau
 
 
 
-#Marriage #Priorities #Single_Members

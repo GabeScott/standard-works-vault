@@ -1,7 +1,5 @@
 # Witnesses
 
-Gordon B. Hinckley
-
 By Elder Loren C. Dunn - *Of the Seventy*
 
 *Given in the October session of the 1995 General Conference*
@@ -53,4 +51,3 @@ And to that witness I would add my own witness as to the truthfulness of this wo
 
 
 
-#Holy_Ghost #Jesus_Christ #Missionary_Work #Ordinances #Restoration #Sacrament #Testimony

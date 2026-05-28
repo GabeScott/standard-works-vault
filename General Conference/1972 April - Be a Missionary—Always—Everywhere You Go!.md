@@ -1,7 +1,5 @@
 # Be a Missionary—Always—Everywhere You Go!
 
-Wilford G. Edling
-
 By Elder William H. Bennett - *Assistant to the Council of the Twelve*
 
 *Given in the April session of the 1972 General Conference*
@@ -101,4 +99,3 @@ I bear you my testimony that this work is true. God lives, and his Son Jesus Chr
 
 
 
-#Example #Missionary_Work

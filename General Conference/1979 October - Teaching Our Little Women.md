@@ -1,7 +1,5 @@
 # Teaching Our Little Women
 
-Spencer W. Kimball
-
 By Naomi M. Shumway - *Primary General President*
 
 *Given in the October session of the 1979 General Conference*
@@ -45,4 +43,3 @@ Regardless of our age or own assignment in life, our charge as women today is to
 
 
 
-#Children

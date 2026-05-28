@@ -1,7 +1,5 @@
 # The Book of Mormon: A Sacred Ancient Record
 
-Gordon B. Hinckley
-
 By Elder Ted E. Brewerton - *Emeritus Member of the Seventy*
 
 *Given in the October session of the 1995 General Conference*
@@ -81,4 +79,3 @@ I am one of the witnesses that He *is* risen, and He *is* coming. In the name of
 
 
 
-#Bible #Book_Of_Mormon #Holy_Ghost #House_Of_Israel

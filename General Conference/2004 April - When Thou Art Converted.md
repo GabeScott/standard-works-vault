@@ -1,7 +1,5 @@
 # When Thou Art Converted
 
-Gordon B. Hinckley
-
 By Elder D. Todd Christofferson - *Of the Presidency of the Seventy*
 
 *Given in the April session of the 2004 General Conference*
@@ -83,7 +81,3 @@ We have talked of desire, submissiveness to God, study, prayer, service, repenta
 
 [^21]: [[Joel 2.13|Joel 2:13]]. “Draw near unto me and I will draw near unto you; seek me diligently and ye shall find me; ask, and ye shall receive; knock, and it shall be opened unto you” ([[D&C 88.63|D&C 88:63]]).
 
-
-
-
-#Conversion #Prayer #Repentance #Scripture_Study

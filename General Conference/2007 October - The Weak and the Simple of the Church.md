@@ -1,7 +1,5 @@
 # The Weak and the Simple of the Church
 
-Gordon B. Hinckley
-
 By President Boyd K. Packer - *Acting President of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2007 General Conference*
@@ -109,4 +107,3 @@ I bear witness that the gospel is true and that the worth of souls is great in t
 
 
 
-#Individual_Worth #Leadership #Service

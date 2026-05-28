@@ -1,7 +1,5 @@
 # The Simple Things
 
-Gordon B. Hinckley
-
 By Elder Rex D. Pinegar - *Of the Presidency of the Seventy*
 
 *Given in the October session of the 1994 General Conference*
@@ -93,4 +91,3 @@ I pray that we will heed the counsel of our prophet and have the faith to follow
 
 
 
-#Book_Of_Mormon #Children #Duty #Family #Family_Home_Evening #Home_Teaching #Obedience #Prayer

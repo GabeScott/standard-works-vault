@@ -1,7 +1,5 @@
 # Love and Forgive One Another
 
-Harold B. Lee
-
 By Elder O. Leslie Stone - *Assistant to the Council of the Twelve*
 
 *Given in the October session of the 1973 General Conference*
@@ -97,4 +95,3 @@ I leave my testimony with you today that I know the true gospel of Jesus Christ 
 
 
 
-#Love #Obedience

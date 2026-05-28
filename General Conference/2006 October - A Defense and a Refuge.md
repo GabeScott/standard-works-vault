@@ -1,7 +1,5 @@
 # A Defense and a Refuge
 
-Gordon B. Hinckley
-
 By President Boyd K. Packer - *Acting President of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2006 General Conference*
@@ -111,7 +109,3 @@ This Church will prosper. It will prevail. Of this I am absolutely certain. I be
 
 [^2]: “The Family: A Proclamation to the World,” *Liahona,* Oct. 2004, 49; *Ensign,* Nov. 1995, 102.
 
-
-
-
-#Adversity #Family #Standards

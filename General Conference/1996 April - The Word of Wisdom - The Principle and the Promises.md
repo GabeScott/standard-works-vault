@@ -1,7 +1,5 @@
 # The Word of Wisdom: The Principle and the Promises
 
-James E. Faust
-
 By President Boyd K. Packer - *Acting President of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1996 General Conference*
@@ -99,7 +97,3 @@ I bear witness that this revelation is a powerful protection to all members of t
 
 [^1]: The context for verse 18 is verse 19: “For, behold, the beasts of the field and the fowls of the air \[are\] ordained for the use of man for food.” Section 49 was specifically directed to members of the United Society of Believers in Christ’s Second Appearing (the Shakers) to correct some of their erroneous doctrines. One of their beliefs was not to eat flesh-meat or fish.
 
-
-
-
-#Evil #Holy_Ghost #Jesus_Christ #Obedience #Repentance #Sacrament #Word_Of_Wisdom #Youth

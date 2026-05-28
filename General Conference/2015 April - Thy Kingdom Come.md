@@ -1,7 +1,5 @@
 # Thy Kingdom Come
 
-Cheryl A. Esplin
-
 By Elder Neil L. Andersen - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2015 General Conference*
@@ -181,7 +179,3 @@ Today is Easter. We rejoice with Christians all over the world in His glorious R
 
 [^38]: [[Matthew 6.10|Matthew 6:10]].
 
-
-
-
-#Adversity #Church_Growth #Jesus_Christ #Perspective #Second_Coming

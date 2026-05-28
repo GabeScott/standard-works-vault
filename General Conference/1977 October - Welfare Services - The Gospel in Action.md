@@ -1,7 +1,5 @@
 # Welfare Services: The Gospel in Action
 
-Spencer W. Kimball
-
 By President Spencer W. Kimball - *President of the Church*
 
 *Given in the October session of the 1977 General Conference*
@@ -149,4 +147,3 @@ It is wonderful to be associated with this work and to be given the inspiration 
 
 
 
-#Welfare

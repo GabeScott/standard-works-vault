@@ -1,7 +1,5 @@
 # A Call to the Rising Generation
 
-Thomas S. Monson
-
 By Elder Brent H. Nielson - *Of the Seventy*
 
 *Given in the October session of the 2009 General Conference*
@@ -57,4 +55,3 @@ I pray that you of this rising generation will stand up for truth and righteousn
 
 
 
-#Missionary_Work #Prophecy #Worthiness #Youth

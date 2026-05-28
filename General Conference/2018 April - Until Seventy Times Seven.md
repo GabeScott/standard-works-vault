@@ -1,7 +1,5 @@
 # Until Seventy Times Seven
 
-Henry B. Eyring
-
 By Elder Lynn G. Robbins - *Of the Presidency of the Seventy*
 
 *Given in the April session of the 2018 General Conference*
@@ -117,7 +115,3 @@ I am eternally grateful for the loving-kindness, patience, and long-suffering of
 
 [^22]: [[2 Nephi 31.20|2 Nephi 31:20]].
 
-
-
-
-#Forgiveness #Grace #Jesus_Christ #Repentance #Sacrament #Success

@@ -1,7 +1,5 @@
 # There Is Need for Repentance
 
-Harold B. Lee
-
 By Elder ElRay L. Christiansen - *Assistant to the Council of the Twelve*
 
 *Given in the October session of the 1973 General Conference*
@@ -81,4 +79,3 @@ May we all repent and place our lives and our homes in order and in perfect harm
 
 
 
-#Repentance #Temptation

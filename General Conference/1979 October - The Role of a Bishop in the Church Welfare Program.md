@@ -1,7 +1,5 @@
 # The Role of a Bishop in the Church Welfare Program
 
-Spencer W. Kimball
-
 By President Marion G. Romney - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 1979 General Conference*
@@ -101,4 +99,3 @@ That we may move forward to this consummation, I humbly pray in the name of Jesu
 
 
 
-#Bishops #Welfare

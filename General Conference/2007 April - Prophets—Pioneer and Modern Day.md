@@ -1,7 +1,5 @@
 # Prophets—Pioneer and Modern Day
 
-Thomas S. Monson
-
 By Elder Earl C. Tingey - *Of the Presidency of the Seventy*
 
 *Given in the April session of the 2007 General Conference*
@@ -97,7 +95,3 @@ I bear my humble witness that both President Brigham Young and President Gordon 
 
 [^10]: *Teachings of Gordon B. Hinckley* (1997), 509.
 
-
-
-
-#Brigham_Young #Church_History #Gordon_B._Hinckley #Prophets #Temple_Square

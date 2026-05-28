@@ -1,7 +1,5 @@
 # The Storehouse Resource System
 
-Spencer W. Kimball
-
 By Bishop J. Richard Clarke - *Second Counselor in the Presiding Bishopric*
 
 *Given in the April session of the 1978 General Conference*
@@ -97,4 +95,3 @@ The Storehouse Resource System enables us to apply the principles of preparation
 
 
 
-#Welfare

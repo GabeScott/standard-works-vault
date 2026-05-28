@@ -1,7 +1,5 @@
 # The Resurrection
 
-Thomas S. Monson
-
 By Elder F. Melvin Hammond - *Of the Seventy*
 
 *Given in the April session of the 1990 General Conference*
@@ -49,4 +47,3 @@ Such is my humble testimony of the glorious resurrection of the Lord Jesus Chris
 
 
 
-#Jesus_Christ #Resurrection

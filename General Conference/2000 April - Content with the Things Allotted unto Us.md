@@ -1,7 +1,5 @@
 # Content with the Things Allotted unto Us
 
-Gordon B. Hinckley
-
 By Elder Neal A. Maxwell - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2000 General Conference*
@@ -93,4 +91,3 @@ How blessed we are that Alma’s words have been preserved for all of us. May we
 
 
 
-#Adversity #Atonement #Attitude #Conversion #Disabilities #Holy_Ghost #Poverty #Repentance #Sin

@@ -1,7 +1,5 @@
 # Guided by the Holy Spirit
 
-Thomas S. Monson
-
 By President Boyd K. Packer - *President of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2011 General Conference*
@@ -159,7 +157,3 @@ If you are carrying some burden, forget it, let it alone. Do a lot of forgiving 
 
 [^23]: [[Alma 42.8|Alma 42:8]].
 
-
-
-
-#Church_Organization #Holy_Ghost #Priesthood #Scriptures #Standards

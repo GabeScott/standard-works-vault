@@ -1,7 +1,5 @@
 # General Conference: Strengthening Faith and Testimony
 
-Thomas S. Monson
-
 By Elder Robert D. Hales - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2013 General Conference*
@@ -97,7 +95,3 @@ My brothers and sisters, I bear my special witness that the Lord Jesus Christ li
 
 [^15]: Thomas S. Monson, “God Be with You Till We Meet Again,” *Ensign* or *Liahona,* Nov. 2012, 110.
 
-
-
-
-#General_Conference

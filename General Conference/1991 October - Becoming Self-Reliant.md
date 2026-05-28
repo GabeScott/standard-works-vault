@@ -1,7 +1,5 @@
 # Becoming Self-Reliant
 
-Gordon B. Hinckley
-
 By Elder L. Tom Perry - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1991 General Conference*
@@ -69,4 +67,3 @@ The principle of self-reliance is spiritual as well as temporal. It is not a doo
 
 
 
-#Obedience #Preparation #Scriptures #Self-Reliance #Welfare #Work

@@ -1,7 +1,5 @@
 # A Time to Prepare
 
-Spencer W. Kimball
-
 By Elder William H. Bennett - *Assistant to the Council of the Twelve*
 
 *Given in the April session of the 1975 General Conference*
@@ -73,4 +71,3 @@ I testify to you that the things we have heard in this conference, including the
 
 
 
-#Plan_Of_Salvation #Preparation #Scouting

@@ -1,7 +1,5 @@
 # The Sustaining of Church Officers
 
-Ezra Taft Benson
-
 By President Ezra Taft Benson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1983 General Conference*

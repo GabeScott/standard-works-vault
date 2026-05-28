@@ -1,7 +1,5 @@
 # As We Gather Once Again
 
-Thomas S. Monson
-
 By President Thomas S. Monson - *President of the Church*
 
 *Given in the April session of the 2012 General Conference*
@@ -33,7 +31,3 @@ Our Heavenly Father is mindful of each of us and our needs. May we be filled wit
 
 [^1]: *Teachings of Presidents of the Church: Joseph Smith* (2007), 444.
 
-
-
-
-#Adversity #Church_Growth #General_Conference #Gratitude

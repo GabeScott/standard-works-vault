@@ -1,7 +1,5 @@
 # Learning to Recognize Answers to Prayer
 
-Ezra Taft Benson
-
 By Elder Richard G. Scott - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1989 General Conference*
@@ -99,4 +97,3 @@ In the name of Jesus Christ, amen.
 
 
 
-#Faith #Gratitude #Prayer #Spirituality

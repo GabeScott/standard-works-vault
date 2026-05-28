@@ -1,7 +1,5 @@
 # The Value of Preparation
 
-Ezra Taft Benson
-
 By Elder Ben B. Banks - *Of the Second Quorum of the Seventy*
 
 *Given in the October session of the 1989 General Conference*
@@ -69,4 +67,3 @@ Stay on the Lord’s side and you will find eternal joy and fulfillment. I bear 
 
 
 
-#Missionary_Work #Obedience #Preparation

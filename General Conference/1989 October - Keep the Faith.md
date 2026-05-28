@@ -1,7 +1,5 @@
 # Keep the Faith
 
-Ezra Taft Benson
-
 By Elder F. Arthur Kay - *Released member of the Second Quorum of the Seventy*
 
 *Given in the October session of the 1989 General Conference*
@@ -35,4 +33,3 @@ I bear you my witness that Jesus is the Christ, the Son of the living God. Josep
 
 
 
-#Blessings #Faith #Testimony

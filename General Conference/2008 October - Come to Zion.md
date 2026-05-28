@@ -1,7 +1,5 @@
 # Come to Zion
 
-Thomas S. Monson
-
 By Elder D. Todd Christofferson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2008 General Conference*
@@ -102,4 +100,3 @@ I bear witness of Jesus Christ, the King of Zion, in the name of Jesus Christ, a
 
 
 
-#Charity #Unity #Worthiness #Zion

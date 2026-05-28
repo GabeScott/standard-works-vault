@@ -1,7 +1,5 @@
 # Guidelines to Carry Forth the Work of God in Cleanliness
 
-Spencer W. Kimball
-
 By President Spencer W. Kimball - *President of the Church*
 
 *Given in the April session of the 1974 General Conference*
@@ -205,4 +203,3 @@ I know this is true and right. I love our Heavenly Father and I love his Son, an
 
 
 
-#Abortion #Loyalty #Marriage #Morality

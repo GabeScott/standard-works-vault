@@ -1,7 +1,5 @@
 # We Are The Church of Jesus Christ of Latter-day Saints
 
-Russell M. Nelson
-
 By Reyna I. Aburto - *Second Counselor in the Relief Society General Presidency*
 
 *Given in the April session of the 2022 General Conference*
@@ -119,7 +117,3 @@ May we respond to this divine invitation and joyfully assemble, organize, prepar
 
 [^24]: [[D&C 88.73|Doctrine and Covenants 88:73–74]][[D&C 88.74|]].
 
-
-
-
-#Church_Membership #Discipleship #Healing #Jesus_Christ #Relief_Society

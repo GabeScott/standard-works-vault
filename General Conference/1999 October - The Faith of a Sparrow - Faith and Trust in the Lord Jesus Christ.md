@@ -1,7 +1,5 @@
 # The Faith of a Sparrow: Faith and Trust in the Lord Jesus Christ
 
-Gordon B. Hinckley
-
 By Elder H. Bruce Stucki - *Of the Seventy*
 
 *Given in the October session of the 1999 General Conference*
@@ -71,4 +69,3 @@ I pray that we will indeed all do it together, in the name of Jesus Christ, amen
 
 
 
-#Activation #Character #Faith #Jesus_Christ #Missionary_Work #Priesthood #Repentance #Trust

@@ -1,7 +1,5 @@
 # “The Spirit Beareth Record”
 
-Joseph Fielding Smith
-
 By Elder Boyd K. Packer - *Of the Council of the Twelve*
 
 *Given in the April session of the 1971 General Conference*
@@ -83,7 +81,3 @@ I declare to you that I know that Jesus is the Christ. I know that he lives. He 
 
 [^1]: Alma P. Burton, *Karl G. Maeser, Mormon Educator* (Deseret Book Co., 1953), p. 22.
 
-
-
-
-#Testimony

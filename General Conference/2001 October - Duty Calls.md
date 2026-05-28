@@ -1,7 +1,5 @@
 # Duty Calls
 
-Gordon B. Hinckley
-
 By President Thomas S. Monson - *First Counselor in the First Presidency*
 
 *Given in the October session of the 2001 General Conference*
@@ -93,7 +91,3 @@ Brethren, may each of us be obedient to the easily remembered couplet: “Do you
 
 [^6]: [[1 Peter 3.15|1 Pet. 3:15]].
 
-
-
-
-#Commandments #Duty #Joy

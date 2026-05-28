@@ -1,7 +1,5 @@
 # Your Jericho Road
 
-Spencer W. Kimball
-
 By Elder Thomas S. Monson - *Of the Council of the Twelve*
 
 *Given in the April session of the 1977 General Conference*
@@ -128,4 +126,3 @@ May each of us follow Him along that Jericho Road, I pray in the name of Jesus C
 
 
 
-#Compassion #Service

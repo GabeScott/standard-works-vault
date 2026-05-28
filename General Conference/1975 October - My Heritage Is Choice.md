@@ -1,7 +1,5 @@
 # My Heritage Is Choice
 
-Spencer W. Kimball
-
 By Elder George P. Lee - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1975 General Conference*
@@ -47,4 +45,3 @@ God lives. Jesus Christ lives, brothers and sisters. In the name of Jesus Christ
 
 
 
-#Jesus_Christ #Native_Americans

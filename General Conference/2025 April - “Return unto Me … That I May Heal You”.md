@@ -1,7 +1,5 @@
 # “Return unto Me … That I May Heal You”
 
-Dallin H. Oaks
-
 By Elder S. Mark Palmer - *Of the Presidency of the Seventy*
 
 *Given in the April session of the 2025 General Conference*
@@ -103,7 +101,3 @@ I witness that there is rejoicing in heaven over those who return.[^14] You are 
 
 [^17]: See Russell M. Nelson, “[[2024 October - The Lord Jesus Christ Will Come Again.md|The Lord Jesus Christ Will Come Again]],” *Liahona*, Nov. 2024, 122: “It is neither too early nor too late for you to become a devout disciple of Jesus Christ. Then you will experience fully the blessings of His Atonement.”
 
-
-
-
-#Activation #Faith #Jesus_Christ #Repentance

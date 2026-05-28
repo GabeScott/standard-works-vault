@@ -1,7 +1,5 @@
 # “The Heavens Declare the Glory of God”
 
-Gordon B. Hinckley
-
 By Don Lind - *Astronaut*
 
 *Given in the October session of the 1985 General Conference*
@@ -49,4 +47,3 @@ Brethren, it’s an honor to be with you this evening. I bear you my testimony t
 
 
 
-#Preparation

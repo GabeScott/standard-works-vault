@@ -1,7 +1,5 @@
 # In the Strength of the Lord
 
-Gordon B. Hinckley
-
 By Elder Henry B. Eyring - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2004 General Conference*
@@ -99,7 +97,3 @@ I know that God the Father lives. I testify that He hears and answers our every 
 
 [^8]: [[Matthew 25.21|Matthew 25:21]].
 
-
-
-
-#Adversity #Endurance #Prayer #Scripture_Study #Service

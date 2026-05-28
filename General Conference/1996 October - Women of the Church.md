@@ -1,7 +1,5 @@
 # Women of the Church
 
-Gordon B. Hinckley
-
 By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the October session of the 1996 General Conference*
@@ -103,4 +101,3 @@ And so, my beloved sisters, please know how much we appreciate you. You bring a 
 
 
 
-#Abuse #Home_Teaching #Leadership #Loneliness #Motherhood #Plan_Of_Salvation #Single_Members #Women #Work

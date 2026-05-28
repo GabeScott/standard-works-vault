@@ -1,7 +1,5 @@
 # The Developing Welfare Services Department
 
-Spencer W. Kimball
-
 By Bishop Vaughn J. Featherstone - *Second Counselor in the Presiding Bishopric*
 
 *Given in the October session of the 1975 General Conference*
@@ -85,7 +83,3 @@ In closing I would like to read a quote from President Marion G. Romney. This is
 
 [^*]: (*excerpts only*)
 
-
-
-
-#Welfare

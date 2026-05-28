@@ -1,7 +1,5 @@
 # “The Light Shineth”
 
-Joseph Fielding Smith
-
 By Elder Marion G. Romney - *Of the Council of the Twelve*
 
 *Given in the October session of the 1971 General Conference*
@@ -111,4 +109,3 @@ To this I bear solemn witness as a special witness of Christ, in the name of Jes
 
 
 
-#Jesus_Christ #Prophets

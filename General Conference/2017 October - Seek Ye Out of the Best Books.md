@@ -1,7 +1,5 @@
 # Seek Ye Out of the Best Books
 
-Sharon Eubank
-
 By Elder Ian S. Ardern - *Of the Seventy*
 
 *Given in the October session of the 2017 General Conference*
@@ -53,4 +51,3 @@ Let each of us live so that the menacing jaws of camouflaged caterpillars find n
 
 
 
-#Book_Of_Mormon #Conversion #Faith #Patience #Sabbath #Scripture_Study

@@ -1,7 +1,5 @@
 # The Imperfect Harvest
 
-Gary E. Stevenson
-
 By Elder Vern P. Stanfill - *Of the Seventy*
 
 *Given in the April session of the 2023 General Conference*
@@ -115,7 +113,3 @@ Brothers and sisters, I testify of Christ, who has the power to perfect even our
 
 [^12]: [[Moroni 10.32|Moroni 10:32]].
 
-
-
-
-#Grace #Individual_Worth #Jesus_Christ

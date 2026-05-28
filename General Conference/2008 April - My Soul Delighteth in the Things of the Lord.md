@@ -1,7 +1,5 @@
 # My Soul Delighteth in the Things of the Lord
 
-Dieter F. Uchtdorf
-
 By Susan W. Tanner - *Recently Released Young Women General President*
 
 *Given in the April session of the 2008 General Conference*
@@ -47,4 +45,3 @@ Finally, I delight in, more than I can express, the eternal love and constant he
 
 
 
-#Family #Joy #Morality

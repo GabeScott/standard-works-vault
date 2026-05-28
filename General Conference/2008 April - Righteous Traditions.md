@@ -1,7 +1,5 @@
 # Righteous Traditions
 
-Dieter F. Uchtdorf
-
 By Cheryl C. Lant - *Primary General President*
 
 *Given in the April session of the 2008 General Conference*
@@ -41,4 +39,3 @@ I pray that we will feel this deep in our hearts and in our lives, in the name o
 
 
 
-#Conversion #Family #Home

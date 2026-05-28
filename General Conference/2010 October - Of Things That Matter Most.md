@@ -1,7 +1,5 @@
 # Of Things That Matter Most
 
-Thomas S. Monson
-
 By President Dieter F. Uchtdorf - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 2010 General Conference*
@@ -113,7 +111,3 @@ Let us simplify our lives a little. Let us make the changes necessary to refocus
 
 [^12]: David O. McKay quoting J. E. McCulloch, *Home: The Savior of Civilization* (1924), 42; in Conference Report, Apr. 1935, 116.
 
-
-
-
-#Family #Stress

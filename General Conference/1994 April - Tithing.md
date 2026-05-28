@@ -1,7 +1,5 @@
 # Tithing
 
-James E. Faust
-
 By Elder Dallin H. Oaks - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1994 General Conference*
@@ -103,4 +101,3 @@ I pray that each member of this church will qualify for the blessings promised a
 
 
 
-#Jesus_Christ #Tithing

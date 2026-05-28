@@ -1,7 +1,5 @@
 # The Priesthood Quorum
 
-Gordon B. Hinckley
-
 By Elder D. Todd Christofferson - *Of the Presidency of the Seventy*
 
 *Given in the October session of the 1998 General Conference*
@@ -111,7 +109,3 @@ We must not delay or wait longer for this great day of fulfillment. Each of you 
 
 [^17]: “Welfare Responsibilities of the Priesthood Quorums,” *Ensign,* Nov. 1977, 86.
 
-
-
-
-#Curriculum #Example #Fellowshipping #Jesus_Christ #Priesthood #Service #Testimony

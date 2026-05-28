@@ -1,7 +1,5 @@
 # An Eternal Vision
 
-Gordon B. Hinckley
-
 By Elder Carlos H. Amado - *Of the Seventy*
 
 *Given in the October session of the 1993 General Conference*
@@ -49,4 +47,3 @@ My beloved youth, I promise you that as you serve with faith as did Elder Coy, a
 
 
 
-#Faith #Missionary_Work #Spirituality #Testimony

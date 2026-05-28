@@ -1,7 +1,5 @@
 # The Path to Peace and Joy
 
-Gordon B. Hinckley
-
 By Elder Richard G. Scott - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2000 General Conference*
@@ -107,7 +105,3 @@ Have you wandered from the path of joy and now find yourself where you do not wa
 
 [^18]: [[Alma 26.20|Alma 26:20]].
 
-
-
-
-#Atonement #Commitment #Faith #Forgiveness #Jesus_Christ #Joy #Morality #Obedience #Peace #Repentance #Satan #Sin #Spirituality

@@ -1,7 +1,5 @@
 # The Other Prodigal
 
-Gordon B. Hinckley
-
 By Elder Jeffrey R. Holland - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2002 General Conference*
@@ -91,7 +89,3 @@ Brothers and sisters, I testify that no one of us is less treasured or cherished
 
 [^15]: [[Revelation 7.14|Rev. 7:14]].
 
-
-
-
-#Covetousness #Generosity #Love #Service

@@ -1,7 +1,5 @@
 # Our Testimony to the World
 
-Gordon B. Hinckley
-
 By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the April session of the 1997 General Conference*
@@ -39,4 +37,3 @@ Our love reaches out to you. We love you very much. We leave our blessing with y
 
 
 
-#Atonement #Church_Organization #Criticism #Fellowshipping #General_Conference #Government #Jesus_Christ #Neighbors

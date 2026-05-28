@@ -1,7 +1,5 @@
 # “We Thank Thee, O God, for a Prophet”
 
-N. Eldon Tanner
-
 By President Spencer W. Kimball - *President of the Council of the Twelve*
 
 *Given in the October session of the 1972 General Conference*
@@ -101,4 +99,3 @@ May the Lord bless our new President and his counselors and fully sustain them. 
 
 
 
-#Church_Leaders #Prophets

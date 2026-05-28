@@ -1,7 +1,5 @@
 # The Enduring Legacy of Relief Society
 
-Thomas S. Monson
-
 By President Henry B. Eyring - *First Counselor in the First Presidency*
 
 *Given in the October session of the 2009 General Conference*
@@ -115,7 +113,3 @@ You have a glorious heritage. I pray to God that He will inspire you to preserve
 
 [^6]: Lucy Mack Smith, in Relief Society, Minute Book Mar. 1842–Mar. 1844, entry for Mar. 24, 1842, 18–19.
 
-
-
-
-#Relief_Society #Service #Visiting_Teaching

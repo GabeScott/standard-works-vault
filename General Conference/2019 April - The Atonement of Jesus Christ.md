@@ -1,7 +1,5 @@
 # The Atonement of Jesus Christ
 
-Ulisses Soares
-
 By Tad R. Callister - *Recently Released Sunday School General President*
 
 *Given in the April session of the 2019 General Conference*
@@ -127,7 +125,3 @@ I bear my witness that the Savior’s Atonement is not only infinite in scope bu
 
 [^20]: [[John 16.33|John 16:33]].
 
-
-
-
-#Atonement #Jesus_Christ

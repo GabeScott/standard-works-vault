@@ -1,7 +1,5 @@
 # For Time and All Eternity
 
-Gordon B. Hinckley
-
 By Elder Boyd K. Packer - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1993 General Conference*
@@ -207,7 +205,3 @@ I bear witness of our Father’s plan for happiness, and bear testimony in the n
 
 [^40]: “Discourse by President Lorenzo Snow,” *Millennial Star,* 31 Aug. 1899, p. 547.
 
-
-
-
-#Marriage #Motherhood #Priesthood

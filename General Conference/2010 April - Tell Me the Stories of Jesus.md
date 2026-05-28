@@ -1,7 +1,5 @@
 # Tell Me the Stories of Jesus
 
-Thomas S. Monson
-
 By Elder Neil L. Andersen - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2010 General Conference*
@@ -153,7 +151,7 @@ I testify that Jesus is the Christ, the Savior of all mankind. His life, His Ato
 
 [^30]: See [[John 20.11|John 20:11–23]][[John 20.12|]][[John 20.13|]][[John 20.14|]][[John 20.15|]][[John 20.16|]][[John 20.17|]][[John 20.18|]][[John 20.19|]][[John 20.20|]][[John 20.21|]][[John 20.22|]][[John 20.23|]].
 
-[^31]: See [[3 Nephi 11.1|3 Nephi 11–26]].
+[^31]: See [[3 Nephi 11.1|3 Nephi 11–26]][[3 Nephi 11.2|]][[3 Nephi 11.3|]][[3 Nephi 11.4|]][[3 Nephi 11.5|]][[3 Nephi 11.6|]][[3 Nephi 11.7|]][[3 Nephi 11.8|]][[3 Nephi 11.9|]][[3 Nephi 11.10|]][[3 Nephi 11.11|]][[3 Nephi 11.12|]][[3 Nephi 11.13|]][[3 Nephi 11.14|]][[3 Nephi 11.15|]][[3 Nephi 11.16|]][[3 Nephi 11.17|]][[3 Nephi 11.18|]][[3 Nephi 11.19|]][[3 Nephi 11.20|]][[3 Nephi 11.21|]][[3 Nephi 11.22|]][[3 Nephi 11.23|]][[3 Nephi 11.24|]][[3 Nephi 11.25|]][[3 Nephi 11.26|]][[3 Nephi 11.27|]][[3 Nephi 11.28|]][[3 Nephi 11.29|]][[3 Nephi 11.30|]][[3 Nephi 11.31|]][[3 Nephi 11.32|]][[3 Nephi 11.33|]][[3 Nephi 11.34|]][[3 Nephi 11.35|]][[3 Nephi 11.36|]][[3 Nephi 11.37|]][[3 Nephi 11.38|]][[3 Nephi 11.39|]][[3 Nephi 11.40|]][[3 Nephi 11.41|]].
 
 [^32]: See [[Joseph Smith History 1.17|Joseph Smith—History 1:17]].
 
@@ -181,7 +179,3 @@ I testify that Jesus is the Christ, the Savior of all mankind. His life, His Ato
 
 [^44]: See [[Alma 26.12|Alma 26:12]].
 
-
-
-
-#Children #Jesus_Christ #Teaching #Youth

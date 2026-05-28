@@ -1,7 +1,5 @@
 # Warnings from Outer Space
 
-N. Eldon Tanner
-
 By President N. Eldon Tanner - *First Counselor in the First Presidency*
 
 *Given in the October session of the 1972 General Conference*
@@ -149,4 +147,3 @@ May we give heed to the Prophet and follow him, I humbly pray in the name of Jes
 
 
 
-#Joseph_Smith #Prophets #Restoration #Spirituality

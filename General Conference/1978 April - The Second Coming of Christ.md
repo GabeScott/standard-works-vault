@@ -1,7 +1,5 @@
 # The Second Coming of Christ
 
-Spencer W. Kimball
-
 By Elder LeGrand Richards - *Of the Council of the Twelve*
 
 *Given in the April session of the 1978 General Conference*
@@ -63,4 +61,3 @@ As I stand here as an apostle of the Lord Jesus Christ, I bear you my witness th
 
 
 
-#Last_Days #Prophets

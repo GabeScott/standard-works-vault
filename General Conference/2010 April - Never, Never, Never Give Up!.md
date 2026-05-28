@@ -1,7 +1,5 @@
 # Never, Never, Never Give Up!
 
-Thomas S. Monson
-
 By Mary N. Cook - *First Counselor in the Young Women General Presidency*
 
 *Given in the April session of the 2010 General Conference*
@@ -63,4 +61,3 @@ My dear young women, I have met many of you who, just like Julie, have not given
 
 
 
-#Courage #Dedication #Goals #Holy_Ghost #Scriptures #Testimony

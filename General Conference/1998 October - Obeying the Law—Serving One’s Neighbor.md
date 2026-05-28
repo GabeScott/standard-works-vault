@@ -1,7 +1,5 @@
 # Obeying the Law—Serving One’s Neighbor
 
-Gordon B. Hinckley
-
 By Elder Athos M. Amorím - *Of the Seventy*
 
 *Given in the October session of the 1998 General Conference*
@@ -29,4 +27,3 @@ I know that Jesus Christ lives and that He is the head of this Church. I know He
 
 
 
-#Blessings #Example #Jesus_Christ #Obedience #Service

@@ -1,7 +1,5 @@
 # Pioneer Shoes through the Ages
 
-Gordon B. Hinckley
-
 By Mary Ellen Smoot - *Relief Society General President*
 
 *Given in the October session of the 1997 General Conference*
@@ -87,7 +85,3 @@ I thank my Father in Heaven for all the pioneers of the past and present who hav
 
 [^7]: In Conference Report, Apr. 1982, [[1982 April - “A Brother Offended”.md|56]]; or *Ensign,* May 1982, 37.
 
-
-
-
-#Faith #Fellowshipping #Pioneers #Spirituality #Visiting_Teaching

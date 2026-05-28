@@ -1,7 +1,5 @@
 # Latter-day Saints Keep on Trying
 
-Cheryl A. Esplin
-
 By Elder Dale G. Renlund - *Of the Seventy*
 
 *Given in the April session of the 2015 General Conference*
@@ -75,7 +73,3 @@ I am deeply grateful for the Savior, for His infinite Atonement, and for latter-
 
 [^12]: The number of times this message appears in the sermons of the First Presidency and Quorum of the Twelve Apostles is striking. President Dieter F. Uchtdorf made this point as he said, “Of all the principles taught by prophets over the centuries, one that has been emphasized over and over again is the hopeful and heartwarming message that mankind can repent, change course, and get back on the true path of discipleship” (“You Can Do It Now!” *Ensign* or *Liahona,* Nov. 2013, 56).
 
-
-
-
-#Atonement #Conversion #Repentance

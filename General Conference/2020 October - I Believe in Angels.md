@@ -1,7 +1,5 @@
 # I Believe in Angels
 
-Russell M. Nelson
-
 By Elder Carlos A. Godoy - *Of the Presidency of the Seventy*
 
 *Given in the October session of the 2020 General Conference*
@@ -71,4 +69,3 @@ This is a gospel of love, a gospel of ministering. Of this I testify in the name
 
 
 
-#Angels #Friendship #Kindness #Service

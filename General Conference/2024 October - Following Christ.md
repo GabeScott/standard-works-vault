@@ -1,7 +1,5 @@
 # Following Christ
 
-Henry B. Eyring
-
 By President Dallin H. Oaks - *First Counselor in the First Presidency*
 
 *Given in the October session of the 2024 General Conference*
@@ -125,7 +123,3 @@ As followers of Christ, we teach and testify of Jesus Christ, our Perfect Role M
 
 [^20]: Russell M. Nelson, “[[2020 October - Let God Prevail.md|Let God Prevail]],” *Ensign* or *Liahona*, Nov. 2020, 94.
 
-
-
-
-#Commandments #Contention #Covenants #Discipleship #Jesus_Christ #Peacemaking

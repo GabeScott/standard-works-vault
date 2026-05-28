@@ -1,7 +1,5 @@
 # Share the Unsearchable Riches of Christ
 
-Harold B. Lee
-
 By President Rex D. Pinegar - *Of the First Council of the Seventy*
 
 *Given in the April session of the 1973 General Conference*
@@ -87,4 +85,3 @@ I solemnly declare my witness to you that Jesus is the Christ, that this is his 
 
 
 
-#Missionary_Work

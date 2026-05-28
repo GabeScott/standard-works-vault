@@ -1,7 +1,5 @@
 # “For This Cause Came I into the World”
 
-Gordon B. Hinckley
-
 By Elder Alexander B. Morrison - *Of the Seventy*
 
 *Given in the October session of the 1999 General Conference*
@@ -47,4 +45,3 @@ I finish where I began, with Christ’s majestic words to Pilate: “For this ca
 
 
 
-#Children #Death #Divine_Nature #Generosity #Jesus_Christ #Languages #Plan_Of_Salvation #Resurrection #Sacrifice #Service #Standards

@@ -1,7 +1,5 @@
 # What Manner of Men? “As I Am”
 
-Harold B. Lee
-
 By Elder Marion D. Hanks - *Assistant to the Council of the Twelve*
 
 *Given in the April session of the 1973 General Conference*
@@ -89,4 +87,3 @@ God bless us to look up and to look around and to kneel down, and to be worthy, 
 
 
 
-#Charity #Compassion #Love

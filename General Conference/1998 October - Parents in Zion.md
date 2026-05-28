@@ -1,7 +1,5 @@
 # Parents in Zion
 
-Gordon B. Hinckley
-
 By President Boyd K. Packer - *Acting President of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1998 General Conference*
@@ -135,7 +133,3 @@ But most of what I know about how our Father in Heaven really feels about us, Hi
 
 [^11]: [[D&C 68.25|D&C 68:25]].
 
-
-
-
-#Church_Organization #Councils #Family #Morality #Parenthood #Plan_Of_Salvation #Prayer #Temples

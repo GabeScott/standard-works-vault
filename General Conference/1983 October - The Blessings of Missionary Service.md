@@ -1,7 +1,5 @@
 # The Blessings of Missionary Service
 
-Gordon B. Hinckley
-
 By James M. Dunn - *Valley View Eleventh Ward, Holladay North Stake*
 
 *Given in the October session of the 1983 General Conference*
@@ -59,4 +57,3 @@ Above all the benefits and blessings of missionary service that come into the li
 
 
 
-#Missionary_Work

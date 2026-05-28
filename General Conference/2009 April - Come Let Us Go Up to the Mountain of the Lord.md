@@ -1,7 +1,5 @@
 # Come Let Us Go Up to the Mountain of the Lord
 
-Thomas S. Monson
-
 By Elaine S. Dalton - *Young Women General President*
 
 *Given in the April session of the 2009 General Conference*
@@ -55,4 +53,3 @@ May this be your goal and heart’s desire. May you be blessed as you strive to 
 
 
 
-#Morality #Preparation #Virtue

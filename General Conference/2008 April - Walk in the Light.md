@@ -1,7 +1,5 @@
 # Walk in the Light
 
-Dieter F. Uchtdorf
-
 By President Henry B. Eyring - *First Counselor in the First Presidency*
 
 *Given in the April session of the 2008 General Conference*
@@ -79,7 +77,3 @@ This is the true Church of Jesus Christ. There is a living prophet, Thomas S. Mo
 
 [^3]: [[Moroni 7.18|Moroni 7:18–20]][[Moroni 7.19|]][[Moroni 7.20|]].
 
-
-
-
-#Accountability #Holy_Ghost #Jesus_Christ

@@ -1,7 +1,5 @@
 # Why Me, O Lord?
 
-Spencer W. Kimball
-
 By Elder Yoshihiko Kikuchi - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1977 General Conference*
@@ -21,4 +19,3 @@ My dear brothers and sisters, I love—I love our Heavenly Father. I know—I kn
 
 
 
-#Testimony

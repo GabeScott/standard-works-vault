@@ -1,7 +1,5 @@
 # Love All
 
-Spencer W. Kimball
-
 By Elder David B. Haight - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1982 General Conference*
@@ -135,4 +133,3 @@ May each of us adequately play our role in the final accomplishment of God’s d
 
 
 
-#Love

@@ -1,7 +1,5 @@
 # We Are Daughters of Our Heavenly Father
 
-Thomas S. Monson
-
 By Elaine S. Dalton - *Recently Released Young Women General President*
 
 *Given in the April session of the 2013 General Conference*
@@ -75,7 +73,3 @@ Today as a daughter of God, I stand as a witness that He lives. Jesus is the Chr
 
 [^8]: See *Young Women Personal Progress,* 70.
 
-
-
-
-#Divine_Nature #Morality #Women

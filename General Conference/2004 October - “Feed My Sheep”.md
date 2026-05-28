@@ -1,7 +1,5 @@
 # “Feed My Sheep”
 
-Gordon B. Hinckley
-
 By Elder Ned B. Roueché - *Of the Seventy*
 
 *Given in the October session of the 2004 General Conference*
@@ -47,4 +45,3 @@ May we be anxiously engaged in gathering in His sheep who have gone astray, so t
 
 
 
-#Activation #Fellowshipping #Forgiveness #Jesus_Christ

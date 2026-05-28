@@ -1,7 +1,5 @@
 # Securing Our Testimonies
 
-Gordon B. Hinckley
-
 By Elder Donald L. Staheli - *Of the Seventy*
 
 *Given in the October session of the 2004 General Conference*
@@ -89,4 +87,3 @@ May we have the courage and the conviction to follow the prophet’s counsel. As
 
 
 
-#Holy_Ghost #Prayer #Scripture_Study #Testimony

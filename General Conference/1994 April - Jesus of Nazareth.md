@@ -1,7 +1,5 @@
 # Jesus of Nazareth
 
-James E. Faust
-
 By Elder David B. Haight - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1994 General Conference*
@@ -147,4 +145,3 @@ The prophet Alma taught that the plan of mercy required an atonement to be made 
 
 
 
-#Jesus_Christ #Love #Resurrection #Sacrament

@@ -1,7 +1,5 @@
 # Focus on Jesus Christ and His Gospel
 
-Henry B. Eyring
-
 By Elder I. Raymond Egbo - *Of the Seventy*
 
 *Given in the October session of the 2024 General Conference*
@@ -97,7 +95,3 @@ He lovingly invites, “Come unto me, all ye that labour and are heavy laden, an
 
 [^18]: [[Matthew 11.28|Matthew 11:28]]; see also [[Matthew 11.29|verses 29–30]][[Matthew 11.30|]].
 
-
-
-
-#Adversity #Gospel #Jesus_Christ #Joy

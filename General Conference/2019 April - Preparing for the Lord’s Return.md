@@ -1,7 +1,5 @@
 # Preparing for the Lord’s Return
 
-Ulisses Soares
-
 By Elder D. Todd Christofferson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2019 General Conference*
@@ -151,7 +149,3 @@ This great and last dispensation is building steadily to its climax—Zion on ea
 
 [^38]: See [[1 Nephi 16.29|1 Nephi 16:29]].
 
-
-
-
-#Gathering #Jesus_Christ #Second_Coming #Zion

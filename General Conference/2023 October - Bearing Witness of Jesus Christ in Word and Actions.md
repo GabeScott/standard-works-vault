@@ -1,7 +1,5 @@
 # Bearing Witness of Jesus Christ in Word and Actions
 
-David A. Bednar
-
 By Elder Adilson de Paula Parrella - *Of the Seventy*
 
 *Given in the October session of the 2023 General Conference*
@@ -69,7 +67,3 @@ This Sabbath morning, I gladly testify that President Nelson is God’s living p
 
 [^7]: See [[Matthew 1.23|Matthew 1:23]]; [[Luke 2.11|Luke 2:11]]; [[D&C 18.11|Doctrine and Covenants 18:11]]; [[D&C 20.21|20:21]]; [[D&C 76.22|76:22–24]][[D&C 76.23|]][[D&C 76.24|]]; [[D&C 93.21|93:21]].
 
-
-
-
-#Example #Jesus_Christ #Missionary_Work #Name_Of_Church #Testimony

@@ -1,7 +1,5 @@
 # Life after Life
 
-Ezra Taft Benson
-
 By Elder Russell M. Nelson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1987 General Conference*
@@ -123,4 +121,3 @@ Gratefully and positively, I affirm that there is life after life, first in the 
 
 
 
-#Jesus_Christ #Plan_Of_Salvation #Resurrection

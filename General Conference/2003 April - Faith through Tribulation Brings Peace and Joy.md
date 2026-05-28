@@ -1,7 +1,5 @@
 # Faith through Tribulation Brings Peace and Joy
 
-Gordon B. Hinckley
-
 By Elder Robert D. Hales - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2003 General Conference*
@@ -141,7 +139,3 @@ I so testify, in the name of Jesus Christ, amen.
 
 [^27]: [[Mark 4.39|Mark 4:39]].
 
-
-
-
-#Adversity #Faith #Jesus_Christ #Peace

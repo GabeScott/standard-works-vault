@@ -1,7 +1,5 @@
 # Faith: A Bond of Trust and Loyalty
 
-Dallin H. Oaks
-
 By Elder Sandino Roman - *Of the Seventy*
 
 *Given in the April session of the 2025 General Conference*
@@ -155,7 +153,3 @@ I testify to you of the joy that comes from singing “the song of redeeming lov
 
 [^38]: [[2 Nephi 1.15|2 Nephi 1:15]].
 
-
-
-
-#Adversity #Faith #Hope #Jesus_Christ #Loyalty #Prayer #Trust

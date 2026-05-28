@@ -1,7 +1,5 @@
 # And Who Is My Neighbor?
 
-Dieter F. Uchtdorf
-
 By Bishop H. David Burton - *Presiding Bishop*
 
 *Given in the April session of the 2008 General Conference*
@@ -57,7 +55,3 @@ Thank you for your compassion, your goodness, and your generosity. May we press 
 
 [^5]: Mohammed Johan, Calang, Indonesia.
 
-
-
-
-#Generosity #Service #Welfare

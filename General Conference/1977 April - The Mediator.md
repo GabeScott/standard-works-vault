@@ -1,7 +1,5 @@
 # The Mediator
 
-Spencer W. Kimball
-
 By Elder Boyd K. Packer - *Of the Council of the Twelve*
 
 *Given in the April session of the 1977 General Conference*
@@ -175,4 +173,3 @@ In the name of Jesus Christ, amen.
 
 
 
-#Atonement #Jesus_Christ #Justice #Mercy

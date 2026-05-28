@@ -1,7 +1,5 @@
 # The Articles of Faith
 
-Gordon B. Hinckley
-
 By Elder L. Tom Perry - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1998 General Conference*
@@ -53,4 +51,3 @@ I add my testimony to the truthfulness of these special revealed truths, in the 
 
 
 
-#Agency #Articles_Of_Faith #Atonement #Book_Of_Mormon #Covenants #Faith #Godhead #Government #Obedience #Ordinances #Priesthood #Repentance #Sin #Spirituality #Zion

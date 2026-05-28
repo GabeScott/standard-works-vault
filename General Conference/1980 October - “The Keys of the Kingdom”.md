@@ -1,7 +1,5 @@
 # “The Keys of the Kingdom”
 
-Spencer W. Kimball
-
 By Elder David B. Haight - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1980 General Conference*
@@ -99,4 +97,3 @@ God, our Eternal Father, lives, as does his Only Begotten Son, the Savior of us 
 
 
 
-#Authority #Restoration

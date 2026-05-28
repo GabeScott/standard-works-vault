@@ -1,7 +1,5 @@
 # “Go, and Do Thou Likewise”
 
-Harold B. Lee
-
 By Elder Robert L. Simpson - *Assistant to the Council of the Twelve*
 
 *Given in the April session of the 1973 General Conference*
@@ -77,4 +75,3 @@ Brothers and sisters, may we go and do likewise, is my fervent prayer in the nam
 
 
 
-#Brotherhood #Love

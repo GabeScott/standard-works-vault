@@ -1,7 +1,5 @@
 # The Aaronic Priesthood and the Sacrament
 
-Gordon B. Hinckley
-
 By Elder Dallin H. Oaks - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1998 General Conference*
@@ -83,4 +81,3 @@ The Aaronic Priesthood holds the keys of “the gospel of repentance and of bapt
 
 
 
-#Angels #Atonement #Covenants #Holy_Ghost #Jesus_Christ #Music #Ordinances #Priesthood #Repentance #Sacrament #Service

@@ -1,7 +1,5 @@
 # The Lord Is My Light
 
-Cheryl A. Esplin
-
 By Elder Quentin L. Cook - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2015 General Conference*
@@ -129,7 +127,7 @@ On this Easter weekend, as one of the Savior’s Apostles, I bear solemn witness
 
 [^17]: Culture is much discussed in today’s world. For the year 2014 the word *culture* was even named word of the year by Merriam-Webster.com.
 
-[^18]: See [[Alma 9.1|Alma 9]]; [[Helaman 5.1|Helaman 5]].
+[^18]: See [[Alma 9.1|Alma 9]][[Alma 9.2|]][[Alma 9.3|]][[Alma 9.4|]][[Alma 9.5|]][[Alma 9.6|]][[Alma 9.7|]][[Alma 9.8|]][[Alma 9.9|]][[Alma 9.10|]][[Alma 9.11|]][[Alma 9.12|]][[Alma 9.13|]][[Alma 9.14|]][[Alma 9.15|]][[Alma 9.16|]][[Alma 9.17|]][[Alma 9.18|]][[Alma 9.19|]][[Alma 9.20|]][[Alma 9.21|]][[Alma 9.22|]][[Alma 9.23|]][[Alma 9.24|]][[Alma 9.25|]][[Alma 9.26|]][[Alma 9.27|]][[Alma 9.28|]][[Alma 9.29|]][[Alma 9.30|]][[Alma 9.31|]][[Alma 9.32|]][[Alma 9.33|]][[Alma 9.34|]]; [[Helaman 5.1|Helaman 5]][[Helaman 5.2|]][[Helaman 5.3|]][[Helaman 5.4|]][[Helaman 5.5|]][[Helaman 5.6|]][[Helaman 5.7|]][[Helaman 5.8|]][[Helaman 5.9|]][[Helaman 5.10|]][[Helaman 5.11|]][[Helaman 5.12|]][[Helaman 5.13|]][[Helaman 5.14|]][[Helaman 5.15|]][[Helaman 5.16|]][[Helaman 5.17|]][[Helaman 5.18|]][[Helaman 5.19|]][[Helaman 5.20|]][[Helaman 5.21|]][[Helaman 5.22|]][[Helaman 5.23|]][[Helaman 5.24|]][[Helaman 5.25|]][[Helaman 5.26|]][[Helaman 5.27|]][[Helaman 5.28|]][[Helaman 5.29|]][[Helaman 5.30|]][[Helaman 5.31|]][[Helaman 5.32|]][[Helaman 5.33|]][[Helaman 5.34|]][[Helaman 5.35|]][[Helaman 5.36|]][[Helaman 5.37|]][[Helaman 5.38|]][[Helaman 5.39|]][[Helaman 5.40|]][[Helaman 5.41|]][[Helaman 5.42|]][[Helaman 5.43|]][[Helaman 5.44|]][[Helaman 5.45|]][[Helaman 5.46|]][[Helaman 5.47|]][[Helaman 5.48|]][[Helaman 5.49|]][[Helaman 5.50|]][[Helaman 5.51|]][[Helaman 5.52|]].
 
 [^19]: [[4 Nephi 1.15|4 Nephi 1:15]].
 
@@ -147,7 +145,3 @@ On this Easter weekend, as one of the Savior’s Apostles, I bear solemn witness
 
 [^26]: [[Psalms 27.1|Psalm 27:1]]; see also “The Lord Is My Light,” *Hymns,* no. 89.
 
-
-
-
-#Church_Growth #Faith #Family #Home #Jesus_Christ #Unity

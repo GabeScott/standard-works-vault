@@ -1,7 +1,5 @@
 # The Power of Deliverance
 
-Thomas S. Monson
-
 By Elder L. Tom Perry - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2012 General Conference*
@@ -50,13 +48,13 @@ I wish to speak about how the Book of Mormon, which is a tender mercy of the Lor
 
 Many of the stories of the Book of Mormon are stories of deliverance. Lehi’s departure into the wilderness with his family was about deliverance from the destruction of Jerusalem. The story of the Jaredites is a story of deliverance, as is the story of the Mulekites. Alma the Younger was delivered from sin. Helaman’s stripling warriors were delivered in battle. Nephi and Lehi were delivered from prison. The theme of deliverance is evident throughout the entire Book of Mormon.
 
-There are two stories in the Book of Mormon which are very similar and teach an important lesson. The first is from the book of Mosiah, starting with the 19th chapter. Here we learn of King Limhi living in the land of Nephi. The Lamanites had waged war against the people of Limhi. The result of the war was that the Lamanites would allow King Limhi to rule over his own people, but they would be in bondage to them. It was a very uneasy peace. (See [[Mosiah 19.1|Mosiah 19–20]].)
+There are two stories in the Book of Mormon which are very similar and teach an important lesson. The first is from the book of Mosiah, starting with the 19th chapter. Here we learn of King Limhi living in the land of Nephi. The Lamanites had waged war against the people of Limhi. The result of the war was that the Lamanites would allow King Limhi to rule over his own people, but they would be in bondage to them. It was a very uneasy peace. (See [[Mosiah 19.1|Mosiah 19–20]][[Mosiah 19.2|]][[Mosiah 19.3|]][[Mosiah 19.4|]][[Mosiah 19.5|]][[Mosiah 19.6|]][[Mosiah 19.7|]][[Mosiah 19.8|]][[Mosiah 19.9|]][[Mosiah 19.10|]][[Mosiah 19.11|]][[Mosiah 19.12|]][[Mosiah 19.13|]][[Mosiah 19.14|]][[Mosiah 19.15|]][[Mosiah 19.16|]][[Mosiah 19.17|]][[Mosiah 19.18|]][[Mosiah 19.19|]][[Mosiah 19.20|]][[Mosiah 19.21|]][[Mosiah 19.22|]][[Mosiah 19.23|]][[Mosiah 19.24|]][[Mosiah 19.25|]][[Mosiah 19.26|]][[Mosiah 19.27|]][[Mosiah 19.28|]][[Mosiah 19.29|]].)
 
 When Limhi’s people had their fill of Lamanite abuses, they convinced their king to go against the Lamanites in battle. Three times Limhi’s people were defeated. Heavy burdens were laid upon them. Finally they humbled themselves and cried mightily unto the Lord that He would deliver them. (See [[Mosiah 21.1|Mosiah 21:1–14]][[Mosiah 21.2|]][[Mosiah 21.3|]][[Mosiah 21.4|]][[Mosiah 21.5|]][[Mosiah 21.6|]][[Mosiah 21.7|]][[Mosiah 21.8|]][[Mosiah 21.9|]][[Mosiah 21.10|]][[Mosiah 21.11|]][[Mosiah 21.12|]][[Mosiah 21.13|]][[Mosiah 21.14|]].) [[Mosiah 21.15|Verse 15]] of chapter 21 tells us of the Lord’s response: “And now the Lord was slow to hear their cry because of their iniquities; nevertheless the Lord did hear their cries, and began to soften the hearts of the Lamanites that they began to ease their burdens; yet the Lord did not see fit to deliver them out of bondage.”
 
 Soon after, Ammon and a small band of men from Zarahemla arrived, and with Gideon—one of the leaders of Limhi’s people—they worked out a plan which was successful, and they escaped from the Lamanite abuses. The Lord was slow to hear their cries. Why? Because of their iniquities.
 
-The second story is similar in many respects but also different. The account is recorded in [[Mosiah 24.1|Mosiah 24]].
+The second story is similar in many respects but also different. The account is recorded in [[Mosiah 24.1|Mosiah 24]][[Mosiah 24.2|]][[Mosiah 24.3|]][[Mosiah 24.4|]][[Mosiah 24.5|]][[Mosiah 24.6|]][[Mosiah 24.7|]][[Mosiah 24.8|]][[Mosiah 24.9|]][[Mosiah 24.10|]][[Mosiah 24.11|]][[Mosiah 24.12|]][[Mosiah 24.13|]][[Mosiah 24.14|]][[Mosiah 24.15|]][[Mosiah 24.16|]][[Mosiah 24.17|]][[Mosiah 24.18|]][[Mosiah 24.19|]][[Mosiah 24.20|]][[Mosiah 24.21|]][[Mosiah 24.22|]][[Mosiah 24.23|]][[Mosiah 24.24|]][[Mosiah 24.25|]].
 
 Alma and his people had settled in the land of Helam, when an army of the Lamanites came into the borders of the land. They met and worked out a peaceful solution. (See [[Mosiah 23.25|Mosiah 23:25–29]][[Mosiah 23.26|]][[Mosiah 23.27|]][[Mosiah 23.28|]][[Mosiah 23.29|]].) Soon the leaders of the Lamanites began to impose their will on the people of Alma and placed heavy burdens on them to bear (see [[Mosiah 24.8|Mosiah 24:8]]). In [[Mosiah 24.13|verse 13]] we read, “And it came to pass that the voice of the Lord came to them in their afflictions, saying: Lift up your heads and be of good comfort, for I know of the covenant which ye have made unto me; and I will covenant with my people and deliver them out of bondage.”
 
@@ -91,4 +89,3 @@ Again, let’s remember my friend Scott’s description of the Book of Mormon: �
 
 
 
-#Adversity #Book_Of_Mormon #Scriptures

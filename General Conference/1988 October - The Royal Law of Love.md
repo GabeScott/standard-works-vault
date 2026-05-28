@@ -1,7 +1,5 @@
 # The Royal Law of Love
 
-Ezra Taft Benson
-
 By Elder Marion D. Hanks - *Of the Presidency of the First Quorum of the Seventy*
 
 *Given in the October session of the 1988 General Conference*
@@ -79,4 +77,3 @@ That we may do so, I humbly pray, in the name of Jesus Christ, amen.
 
 
 
-#Compassion #Love #Service

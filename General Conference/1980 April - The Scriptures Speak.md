@@ -1,7 +1,5 @@
 # The Scriptures Speak
 
-Spencer W. Kimball
-
 By Elder LeGrand Richards - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1980 General Conference*
@@ -65,4 +63,3 @@ I pray God to bless you all, and bear you my witness of the divinity of this wor
 
 
 
-#Jesus_Christ #Restoration

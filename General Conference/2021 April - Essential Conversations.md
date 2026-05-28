@@ -1,7 +1,5 @@
 # Essential Conversations
 
-Russell M. Nelson
-
 By Joy D. Jones - *Recently Released Primary General President*
 
 *Given in the April session of the 2021 General Conference*
@@ -137,7 +135,3 @@ I testify that He is always the answer. In the sacred name of Jesus Christ, amen
 
 [^20]: [[2 Nephi 31.20|2 Nephi 31:20]].
 
-
-
-
-#Children #Faith #Gospel #Teaching

@@ -1,7 +1,5 @@
 # Teachings of a Loving Father
 
-Thomas S. Monson
-
 By Elder Horacio A. Tenorio - *Of the Seventy*
 
 *Given in the April session of the 1990 General Conference*
@@ -63,4 +61,3 @@ A few days after David left us, my daughter learned that she was pregnant again.
 
 
 
-#Adversity #Faith #Jesus_Christ #Plan_Of_Salvation #Prayer

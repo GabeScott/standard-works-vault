@@ -1,7 +1,5 @@
 # The House of the Lord
 
-Spencer W. Kimball
-
 By Elder Robert L. Simpson - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1980 General Conference*
@@ -74,4 +72,3 @@ There is no foundation more secure than the temple. The work accomplished there 
 
 
 
-#Temples

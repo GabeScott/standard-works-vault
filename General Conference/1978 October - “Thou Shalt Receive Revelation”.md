@@ -1,7 +1,5 @@
 # “Thou Shalt Receive Revelation”
 
-Spencer W. Kimball
-
 By Elder Bruce R. McConkie - *Of the Council of the Twelve*
 
 *Given in the October session of the 1978 General Conference*
@@ -87,4 +85,3 @@ Now may I bear a solemn witness, one borne of the Spirit, that these doctrines a
 
 
 
-#Spirituality

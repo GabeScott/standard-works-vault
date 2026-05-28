@@ -1,7 +1,5 @@
 # Stand Strong against the Wiles of the World
 
-Gordon B. Hinckley
-
 By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the October session of the 1995 General Conference*
@@ -87,4 +85,3 @@ May the Lord bless you, my beloved sisters. You are the guardians of the hearth.
 
 
 
-#Children #Commitment #Family #Homosexuality #Jesus_Christ #Morality #Motherhood #Prophets #Responsibility #Single_Members #Women

@@ -1,7 +1,5 @@
 # A Prophet Chosen of the Lord
 
-Ezra Taft Benson
-
 By Elder David B. Haight - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1986 General Conference*
@@ -85,4 +83,3 @@ May God bless each of us with listening ears, to heed the counsel of our new Fir
 
 
 
-#Prophets #Spirituality

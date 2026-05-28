@@ -1,7 +1,5 @@
 # The Power of Light and Truth
 
-Dieter F. Uchtdorf
-
 By Elder Robert R. Steuer - *Of the Seventy*
 
 *Given in the April session of the 2008 General Conference*
@@ -79,7 +77,3 @@ To be at peace in these wonderful yet challenging times, we must learn true doct
 
 [^19]: [[Joshua 24.15|Joshua 24:15]].
 
-
-
-
-#Holy_Ghost #Jesus_Christ #Testimony #Truth

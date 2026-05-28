@@ -1,7 +1,5 @@
 # Hope, an Anchor of the Soul
 
-Gordon B. Hinckley
-
 By President James E. Faust - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 1999 General Conference*
@@ -111,7 +109,3 @@ There has come with my apostolic calling a sure witness of the life and ministry
 
 [^18]: [[Job 16.19|Job 16:19]].
 
-
-
-
-#Accountability #Adversity #Holy_Ghost #Hope #Jesus_Christ #Peace

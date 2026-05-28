@@ -1,7 +1,5 @@
 # “The Spirit Giveth Life”
 
-Gordon B. Hinckley
-
 By Elder Thomas S. Monson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1985 General Conference*
@@ -82,4 +80,3 @@ As we pursue the journey of life, let us learn the language of the Spirit. May w
 
 
 
-#Holy_Ghost

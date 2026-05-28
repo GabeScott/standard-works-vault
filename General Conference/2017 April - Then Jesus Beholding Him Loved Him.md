@@ -1,7 +1,5 @@
 # Then Jesus Beholding Him Loved Him
 
-Bonnie H. Cordon
-
 By Elder S. Mark Palmer - *Of the Seventy*
 
 *Given in the April session of the 2017 General Conference*
@@ -71,7 +69,3 @@ I testify of our Savior, Jesus Christ, and look forward to the day when He will 
 
 [^5]: [[Hebrews 12.5|Hebrews 12:5–6]][[Hebrews 12.6|]].
 
-
-
-
-#Jesus_Christ #Love #Obedience

@@ -1,7 +1,5 @@
 # Our Witness to the World
 
-Wilford G. Edling
-
 By President Hartman Rector, Jr. - *Of the First Council of the Seventy*
 
 *Given in the April session of the 1972 General Conference*
@@ -65,4 +63,3 @@ And we bear this witness to you in all soberness, leaving you our love and our b
 
 
 
-#Christianity #Restoration #Testimony

@@ -1,7 +1,5 @@
 # Be Valiant in the Fight of Faith
 
-Spencer W. Kimball
-
 By Elder Bruce R. McConkie - *Of the Council of the Twelve*
 
 *Given in the October session of the 1974 General Conference*
@@ -111,4 +109,3 @@ God grant us the wisdom and vision and determination, the valiance and courage, 
 
 
 
-#Commitment #Testimony

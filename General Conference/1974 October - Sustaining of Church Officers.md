@@ -1,7 +1,5 @@
 # Sustaining of Church Officers
 
-Spencer W. Kimball
-
 By 
 
 *Given in the October session of the 1974 General Conference*

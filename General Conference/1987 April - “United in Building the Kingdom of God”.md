@@ -1,7 +1,5 @@
 # “United in Building the Kingdom of God”
 
-Ezra Taft Benson
-
 By Elder L. Tom Perry - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1987 General Conference*
@@ -65,4 +63,3 @@ May each of us accept the challenge to seek the kingdom of God first, before and
 
 
 
-#Book_Of_Mormon #Faith #Testimony

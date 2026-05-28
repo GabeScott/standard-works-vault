@@ -1,7 +1,5 @@
 # That Thy Confidence Wax Strong
 
-Gordon B. Hinckley
-
 By Bishop Richard C. Edgley - *Second Counselor in the Presiding Bishopric*
 
 *Given in the October session of the 1994 General Conference*
@@ -47,4 +45,3 @@ Brethren of the priesthood, let us hit our foul shots, *let us do our duty*—ev
 
 
 
-#Duty #Faith #Joseph_Smith #Priesthood #Repentance #Satan #Sin

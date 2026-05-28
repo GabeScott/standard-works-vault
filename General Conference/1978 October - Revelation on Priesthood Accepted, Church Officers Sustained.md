@@ -1,7 +1,5 @@
 # Revelation on Priesthood Accepted, Church Officers Sustained
 
-Spencer W. Kimball
-
 By President N. Eldon Tanner - *First Counselor in the First Presidency*
 
 *Given in the October session of the 1978 General Conference*

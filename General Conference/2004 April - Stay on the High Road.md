@@ -1,7 +1,5 @@
 # Stay on the High Road
 
-Gordon B. Hinckley
-
 By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the April session of the 2004 General Conference*
@@ -93,4 +91,3 @@ For this I pray in the sacred name of Him who gave His life to make it possible 
 
 
 
-#Education #Faith #Forgiveness #Friendship #God_The_Father #Morality #Prayer #Repentance #Temptation

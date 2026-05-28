@@ -1,7 +1,5 @@
 # Revelation: The Word of the Lord to His Prophets
 
-Spencer W. Kimball
-
 By President Spencer W. Kimball - *President of the Church*
 
 *Given in the April session of the 1977 General Conference*
@@ -163,4 +161,3 @@ We ask this all, with our affection for you, in the name of Jesus Christ. Amen.
 
 
 
-#Prophets #Spirituality

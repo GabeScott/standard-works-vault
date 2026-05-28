@@ -1,7 +1,5 @@
 # Lengthening Your Stride as a Missionary
 
-Spencer W. Kimball
-
 By Elder Franklin D. Richards - *Of the Presidency of the First Quorum of the Seventy*
 
 *Given in the April session of the 1977 General Conference*
@@ -67,4 +65,3 @@ Let us increase our effectiveness in missionary work in order that the kingdom o
 
 
 
-#Missionary_Work

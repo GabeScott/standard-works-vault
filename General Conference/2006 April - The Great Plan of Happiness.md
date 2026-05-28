@@ -1,7 +1,5 @@
 # The Great Plan of Happiness
 
-Robert D. Hales
-
 By Elder Earl C. Tingey - *Of the Presidency of the Seventy*
 
 *Given in the April session of the 2006 General Conference*
@@ -131,7 +129,3 @@ I bear testimony of that truth and of the love that our Lord and Savior Jesus Ch
 
 [^18]: In Conference Report, Apr. 1994, [[1994 April - The Father and the Family.md|26]]; or *Ensign,* May 1994, 20.
 
-
-
-
-#Atonement #Plan_Of_Salvation #Resurrection

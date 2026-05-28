@@ -1,7 +1,5 @@
 # The Voice of the Lord
 
-Sharon Eubank
-
 By Elder Neil L. Andersen - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2017 General Conference*
@@ -183,7 +181,3 @@ In the name of Jesus Christ, amen.
 
 [^23]: Thomas S. Monson, “[[2010 April - A Word at Closing.md|A Word at Closing]],” *Ensign* or *Liahona,* May 2010, 113.
 
-
-
-
-#General_Conference #Prophets

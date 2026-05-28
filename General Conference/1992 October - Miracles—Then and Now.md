@@ -1,7 +1,5 @@
 # Miracles—Then and Now
 
-Gordon B. Hinckley
-
 By President Thomas S. Monson - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 1992 General Conference*
@@ -143,4 +141,3 @@ To any who from anguish of heart and sadness of soul have silently asked, “Hea
 
 
 
-#Adversity #Courage #Endurance #Love

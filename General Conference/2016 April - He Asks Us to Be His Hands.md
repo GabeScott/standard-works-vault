@@ -1,7 +1,5 @@
 # He Asks Us to Be His Hands
 
-Cheryl A. Esplin
-
 By Cheryl A. Esplin - *First Counselor in the Primary General Presidency*
 
 *Given in the April session of the 2016 General Conference*
@@ -111,7 +109,3 @@ I testify to the reality of President Henry B. Eyring’s promise “that if \[w
 
 [^14]: Henry B. Eyring, *To Draw Closer to God* (1997), 88.
 
-
-
-
-#Jesus_Christ #Love #Service

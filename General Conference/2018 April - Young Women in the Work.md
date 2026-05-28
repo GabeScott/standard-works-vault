@@ -1,7 +1,5 @@
 # Young Women in the Work
 
-Henry B. Eyring
-
 By Bonnie L. Oscarson - *Recently Released Young Women General President*
 
 *Given in the April session of the 2018 General Conference*
@@ -53,7 +51,3 @@ I testify that the work of our Heavenly Father is to bring about the immortality
 
 [^6]: See [[Moses 1.39|Moses 1:39]].
 
-
-
-
-#Covenants #Discipleship #Kingdom_Of_God #Responsibility #Service #Young_Women

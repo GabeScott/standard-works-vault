@@ -1,7 +1,5 @@
 # Statistical Report 1980
 
-Marion G. Romney
-
 By Presented by Francis M. Gibbons - *Secretary to the First Presidency*
 
 *Given in the April session of the 1981 General Conference*

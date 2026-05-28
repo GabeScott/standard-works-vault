@@ -1,7 +1,5 @@
 # The Priesthood of God
 
-Ezra Taft Benson
-
 By Elder Joseph B. Wirthlin - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1988 General Conference*
@@ -71,4 +69,3 @@ I bear my witness that Jesus is the Christ, the Son of God. This is his church; 
 
 
 
-#Mission_Of_The_Church #Priesthood #Responsibility

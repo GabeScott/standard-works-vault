@@ -1,7 +1,5 @@
 # The Global Church Blessed by the Voice of the Prophets
 
-Gordon B. Hinckley
-
 By Elder Dieter F. Uchtdorf - *Of the Presidency of the Seventy*
 
 *Given in the October session of the 2002 General Conference*
@@ -57,4 +55,3 @@ Let us in humility and faith refresh our dedication and our commitment to follow
 
 
 
-#Atonement #Church_Growth #Peace #Pioneers #Prophets

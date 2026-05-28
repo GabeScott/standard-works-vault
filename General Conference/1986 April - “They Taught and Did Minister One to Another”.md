@@ -1,7 +1,5 @@
 # “They Taught and Did Minister One to Another”
 
-Ezra Taft Benson
-
 By Elder James M. Paramore - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1986 General Conference*
@@ -26,7 +24,7 @@ I heard him later stand before the members and testify of the love of God and of
 
 President Spencer W. Kimball gave these insights about the ministry of the Savior: “Never did the Savior give in expectation. I know of no case in his life in which there was an exchange. He was always the giver, seldom the recipient. Never did he give shoes, hose, or a vehicle; never did he give perfume, a shirt, or a fur wrap. His gifts were of such a nature that the recipient could hardly exchange or return the value. His gifts were rare ones: eyes to the blind, ears to the deaf, and legs to the lame; cleanliness to the unclean, wholeness to the infirm, and breath to the lifeless. His gifts were opportunity to the downtrodden, freedom to the oppressed, light in the darkness, forgiveness to the repentant, hope to the despairing. His friends gave him shelter, food, and love. He gave them of himself, his love, his service, his life. The wise men brought him gold and frankincense. He gave them and all their fellow mortals resurrection, salvation, and eternal life. We should strive to give as he gave. To give of oneself is a holy gift.” (*The Wondrous Gift,* Salt Lake City: Deseret Book Co., 1978, p. 2.)
 
-One of the great stories on ministering to others comes from Alma in the Book of Mormon. (See [[Alma 17.1|Alma 17–19]].) Ammon, one of the sons of Mosiah, truly gave himself to teaching and ministering unto the people for over fourteen years. He had waxed strong in the knowledge of truth by searching the scriptures diligently, by much prayer and fasting, and he received the spirit of prophecy and revelation and taught with power and authority from God. He prayed that he might be an instrument in the hands of God to bring the knowledge of the truth unto the Lamanites, a wild and hardened and ferocious people. As he came to the land of Ishmael, the Lamanites bound him and carried him before the king, Lamoni, to slay him or to make a slave of him. *And now the ministry and teaching began.*
+One of the great stories on ministering to others comes from Alma in the Book of Mormon. (See [[Alma 17.1|Alma 17–19]][[Alma 17.2|]][[Alma 17.3|]][[Alma 17.4|]][[Alma 17.5|]][[Alma 17.6|]][[Alma 17.7|]][[Alma 17.8|]][[Alma 17.9|]][[Alma 17.10|]][[Alma 17.11|]][[Alma 17.12|]][[Alma 17.13|]][[Alma 17.14|]][[Alma 17.15|]][[Alma 17.16|]][[Alma 17.17|]][[Alma 17.18|]][[Alma 17.19|]][[Alma 17.20|]][[Alma 17.21|]][[Alma 17.22|]][[Alma 17.23|]][[Alma 17.24|]][[Alma 17.25|]][[Alma 17.26|]][[Alma 17.27|]][[Alma 17.28|]][[Alma 17.29|]][[Alma 17.30|]][[Alma 17.31|]][[Alma 17.32|]][[Alma 17.33|]][[Alma 17.34|]][[Alma 17.35|]][[Alma 17.36|]][[Alma 17.37|]][[Alma 17.38|]][[Alma 17.39|]].) Ammon, one of the sons of Mosiah, truly gave himself to teaching and ministering unto the people for over fourteen years. He had waxed strong in the knowledge of truth by searching the scriptures diligently, by much prayer and fasting, and he received the spirit of prophecy and revelation and taught with power and authority from God. He prayed that he might be an instrument in the hands of God to bring the knowledge of the truth unto the Lamanites, a wild and hardened and ferocious people. As he came to the land of Ishmael, the Lamanites bound him and carried him before the king, Lamoni, to slay him or to make a slave of him. *And now the ministry and teaching began.*
 
 The king asked him if he desired to stay among the Lamanites.
 
@@ -67,4 +65,3 @@ May we truly minister and teach *all* of our people, but especially reach out to
 
 
 
-#Home_Teaching #Service

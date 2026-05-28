@@ -1,7 +1,5 @@
 # To Serve the Master
 
-N. Eldon Tanner
-
 By Elder O. Leslie Stone - *Assistant to the Council of the Twelve*
 
 *Given in the October session of the 1972 General Conference*
@@ -39,4 +37,3 @@ Amen.
 
 
 
-#Joy #Service

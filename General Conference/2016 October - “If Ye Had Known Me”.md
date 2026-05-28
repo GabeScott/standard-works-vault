@@ -1,7 +1,5 @@
 # “If Ye Had Known Me”
 
-Jean B. Bingham
-
 By Elder David A. Bednar - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2016 General Conference*
@@ -205,7 +203,3 @@ On a future day, “every knee shall bow, and every tongue confess”[^39] that 
 
 [^39]: [[Mosiah 27.31|Mosiah 27:31]].
 
-
-
-
-#Discipleship #Faith #Jesus_Christ #Service

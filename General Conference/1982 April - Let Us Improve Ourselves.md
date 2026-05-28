@@ -1,7 +1,5 @@
 # Let Us Improve Ourselves
 
-Spencer W. Kimball
-
 By President N. Eldon Tanner - *First Counselor in the First Presidency*
 
 *Given in the April session of the 1982 General Conference*
@@ -27,4 +25,3 @@ I’m very happy to have been here this afternoon. I’m glad to see how the con
 
 
 
-#Self-Control

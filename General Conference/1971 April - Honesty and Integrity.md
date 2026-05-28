@@ -1,7 +1,5 @@
 # Honesty and Integrity
 
-Joseph Fielding Smith
-
 By Elder Delbert L. Stapley - *Of the Council of the Twelve*
 
 *Given in the April session of the 1971 General Conference*
@@ -67,4 +65,3 @@ I bear witness to you of these things. I know that we must be Christlike in all 
 
 
 
-#Honesty

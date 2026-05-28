@@ -1,7 +1,5 @@
 # A Doorway Called Love
 
-Ezra Taft Benson
-
 By President Thomas S. Monson - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 1987 General Conference*
@@ -160,4 +158,3 @@ The wondrous gift was given, the heavenly blessing was received, the dear Christ
 
 
 
-#Jesus_Christ #Love

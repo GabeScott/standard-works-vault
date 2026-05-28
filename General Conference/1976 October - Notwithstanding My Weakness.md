@@ -1,7 +1,5 @@
 # Notwithstanding My Weakness
 
-Spencer W. Kimball
-
 By Elder Neal A. Maxwell - *Of the First Council of the Seventy*
 
 *Given in the October session of the 1976 General Conference*
@@ -32,7 +30,7 @@ We see our near-perfect parents, Adam and Eve, coping with challenges in the fir
 
 We see a legalistic Paul, but later read his matchless sermon on charity. (See [[1 Corinthians 13.1|1 Cor. 13]][[1 Corinthians 13.2|]][[1 Corinthians 13.3|]][[1 Corinthians 13.4|]][[1 Corinthians 13.5|]][[1 Corinthians 13.6|]][[1 Corinthians 13.7|]][[1 Corinthians 13.8|]][[1 Corinthians 13.9|]][[1 Corinthians 13.10|]][[1 Corinthians 13.11|]][[1 Corinthians 13.12|]][[1 Corinthians 13.13|]].) We see a jailed John the Baptist—and there had been “no greater prophet” ([[Matthew 11.11|Matt. 11:11]])—needing reassurance (see [[Matthew 11.2|Matt. 11:2–4]][[Matthew 11.3|]][[Matthew 11.4|]]). We see Peter walking briefly on water but requiring rescue from Jesus’ outstretched hand (see [[Matthew 14.25|Matt. 14:25–31]][[Matthew 14.26|]][[Matthew 14.27|]][[Matthew 14.28|]][[Matthew 14.29|]][[Matthew 14.30|]][[Matthew 14.31|]]); later we see Peter stretching his strong hand to Tabitha after helping to restore her to life (see [[Acts 9.36|Acts 9:36–43]][[Acts 9.37|]][[Acts 9.38|]][[Acts 9.39|]][[Acts 9.40|]][[Acts 9.41|]][[Acts 9.42|]][[Acts 9.43|]]).
 
-Moroni was not the first underinformed leader to conclude that another leader was not doing enough. (See [[Alma 60.1|Alma 60]].) Nor was Pahoran’s sweet, generous response to his “beloved brother” Moroni the last such that will be needed. ([[Alma 61.1|Alma 61]].)
+Moroni was not the first underinformed leader to conclude that another leader was not doing enough. (See [[Alma 60.1|Alma 60]][[Alma 60.2|]][[Alma 60.3|]][[Alma 60.4|]][[Alma 60.5|]][[Alma 60.6|]][[Alma 60.7|]][[Alma 60.8|]][[Alma 60.9|]][[Alma 60.10|]][[Alma 60.11|]][[Alma 60.12|]][[Alma 60.13|]][[Alma 60.14|]][[Alma 60.15|]][[Alma 60.16|]][[Alma 60.17|]][[Alma 60.18|]][[Alma 60.19|]][[Alma 60.20|]][[Alma 60.21|]][[Alma 60.22|]][[Alma 60.23|]][[Alma 60.24|]][[Alma 60.25|]][[Alma 60.26|]][[Alma 60.27|]][[Alma 60.28|]][[Alma 60.29|]][[Alma 60.30|]][[Alma 60.31|]][[Alma 60.32|]][[Alma 60.33|]][[Alma 60.34|]][[Alma 60.35|]][[Alma 60.36|]].) Nor was Pahoran’s sweet, generous response to his “beloved brother” Moroni the last such that will be needed. ([[Alma 61.1|Alma 61]][[Alma 61.2|]][[Alma 61.3|]][[Alma 61.4|]][[Alma 61.5|]][[Alma 61.6|]][[Alma 61.7|]][[Alma 61.8|]][[Alma 61.9|]][[Alma 61.10|]][[Alma 61.11|]][[Alma 61.12|]][[Alma 61.13|]][[Alma 61.14|]][[Alma 61.15|]][[Alma 61.16|]][[Alma 61.17|]][[Alma 61.18|]][[Alma 61.19|]][[Alma 61.20|]][[Alma 61.21|]].)
 
 What can we do to manage these vexing feelings of inadequacy? Here are but a few suggestions:
 
@@ -73,4 +71,3 @@ If we so live, we too can say in personal prospectus, “And I soon go to the pl
 
 
 
-#Patience #Self-Esteem

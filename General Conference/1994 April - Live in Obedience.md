@@ -1,7 +1,5 @@
 # Live in Obedience
 
-James E. Faust
-
 By Elder Joseph B. Wirthlin - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1994 General Conference*
@@ -117,7 +115,3 @@ May the Lord bless each of you special young men with strength and courage to ob
 
 [^21]: [[Alma 41.10|Alma 41:10]].
 
-
-
-
-#Commandments #Healing #Missionary_Work #Morality #Obedience #Priesthood #Service #Sin #Temptation #Youth

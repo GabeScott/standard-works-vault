@@ -1,7 +1,5 @@
 # Revelation in a Changing World
 
-Ezra Taft Benson
-
 By Elder Boyd K. Packer - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1989 General Conference*
@@ -119,4 +117,3 @@ Revelation continues with us today. The promptings of the Spirit, the dreams, an
 
 
 
-#Holy_Ghost #Leadership #Spirituality #Word_Of_Wisdom

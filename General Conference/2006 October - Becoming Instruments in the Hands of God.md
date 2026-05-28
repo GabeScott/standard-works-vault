@@ -1,7 +1,5 @@
 # Becoming Instruments in the Hands of God
 
-Gordon B. Hinckley
-
 By Elder Don R. Clarke - *Of the Seventy*
 
 *Given in the October session of the 2006 General Conference*
@@ -47,4 +45,3 @@ In the name of Jesus Christ, amen.
 
 
 
-#Charity #Holy_Ghost #Obedience

@@ -1,7 +1,5 @@
 # The Gift of the Holy Ghost
 
-Spencer W. Kimball
-
 By Elder LeGrand Richards - *Of the Council of the Twelve*
 
 *Given in the October session of the 1979 General Conference*
@@ -77,4 +75,3 @@ God bless you all. I thank him with all my heart and soul for the restoration of
 
 
 
-#Holy_Ghost #Missionary_Work

@@ -1,7 +1,5 @@
 # He Knows You by Name
 
-Gordon B. Hinckley
-
 By Elaine S. Dalton - *Second Counselor in the Young Women General Presidency*
 
 *Given in the April session of the 2005 General Conference*
@@ -85,7 +83,3 @@ Each of you has a part to play in this great and marvelous work. The Savior will
 
 [^20]: See [[D&C 112.10|D&C 112:10]]; [[Abraham 1.18|Abraham 1:18]].
 
-
-
-
-#Divine_Nature #Faith #Joseph_Smith #Prayer #Restoration #Testimony

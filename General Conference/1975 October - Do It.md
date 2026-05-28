@@ -1,7 +1,5 @@
 # Do It
 
-Spencer W. Kimball
-
 By Elder Robert L. Simpson - *Assistant to the Council of the Twelve*
 
 *Given in the October session of the 1975 General Conference*
@@ -71,4 +69,3 @@ May we be blessed with the ability to touch hearts and lift up as we follow the 
 
 
 
-#Obedience #Spirituality #Work

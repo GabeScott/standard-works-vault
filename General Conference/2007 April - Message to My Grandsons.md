@@ -1,7 +1,5 @@
 # Message to My Grandsons
 
-Thomas S. Monson
-
 By President James E. Faust - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 2007 General Conference*
@@ -85,7 +83,3 @@ Now, my dear grandsons and all special young men within the sound of my voice, g
 
 [^14]: *The Teachings of Howard W. Hunter,* ed. Clyde J. Williams (1997), 117.
 
-
-
-
-#Education #Family #Obedience #Priesthood #Responsibility #Testimony

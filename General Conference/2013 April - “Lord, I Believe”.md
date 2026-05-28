@@ -1,7 +1,5 @@
 # “Lord, I Believe”
 
-Thomas S. Monson
-
 By Elder Jeffrey R. Holland - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2013 General Conference*
@@ -79,7 +77,3 @@ These things I declare to you with the conviction Peter called the “more sure 
 
 [^16]: [[2 Peter 1.19|2 Peter 1:19]].
 
-
-
-
-#Faith #Testimony

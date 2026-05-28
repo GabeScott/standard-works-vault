@@ -1,7 +1,5 @@
 # Do We All Believe in the Same God?
 
-Spencer W. Kimball
-
 By Elder F. Enzio Busche - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1980 General Conference*
@@ -34,7 +32,7 @@ We will be led to live our lives his way and not the world’s way.
 
 The men of the world feel secure with the question “Don’t we all believe in the same God?” The answer to the question is “No.” The deceiver has initiated all kinds of philosophies and religions to lead people astray, to make them feel happy and safe in their man-made rationalizing and wickedness. He wants them to forget that someday we all have to stand in the judgment of Christ and report our deeds and words. The Savior said in [[Matthew 12.36|Matthew 12:36]], “But I say unto you, That every idle word that men shall speak, they shall give account thereof in the day of judgment.”
 
-We are living in the glorious days of fulfillment eagerly awaited by the prophets of old—Enoch, Isaiah, Daniel, Paul, and many others. In our day the works of the deceiver of all the ages are being revealed by Christ through a living prophet. The disciples of Christ—the Saints of the latter days under the leadership of a living prophet, even Spencer W. Kimball—are taking the offensive to show the world the fruits of righteous living in the gospel of Jesus Christ. We testify with the angels that these are the days of warning for the people of the nations of the world, and that the time is near when it will be too late. We testify with the words of Amulek, a Book of Mormon prophet, recorded in [[Alma 34.32|Alma 34:32–33]][[Alma 34.33|]] and [[Alma 35.1|35]]:
+We are living in the glorious days of fulfillment eagerly awaited by the prophets of old—Enoch, Isaiah, Daniel, Paul, and many others. In our day the works of the deceiver of all the ages are being revealed by Christ through a living prophet. The disciples of Christ—the Saints of the latter days under the leadership of a living prophet, even Spencer W. Kimball—are taking the offensive to show the world the fruits of righteous living in the gospel of Jesus Christ. We testify with the angels that these are the days of warning for the people of the nations of the world, and that the time is near when it will be too late. We testify with the words of Amulek, a Book of Mormon prophet, recorded in [[Alma 34.32|Alma 34:32–33]][[Alma 34.33|]] and [[Alma 35.1|35]][[Alma 35.2|]][[Alma 35.3|]][[Alma 35.4|]][[Alma 35.5|]][[Alma 35.6|]][[Alma 35.7|]][[Alma 35.8|]][[Alma 35.9|]][[Alma 35.10|]][[Alma 35.11|]][[Alma 35.12|]][[Alma 35.13|]][[Alma 35.14|]][[Alma 35.15|]][[Alma 35.16|]]:
 
 “For behold, this life is the time for men … to perform their labors.
 
@@ -57,4 +55,3 @@ My dear brothers and sisters, I bear you my testimony that this is the day of th
 
 
 
-#Godhead #Plan_Of_Salvation

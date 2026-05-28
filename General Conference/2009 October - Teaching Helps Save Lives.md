@@ -1,7 +1,5 @@
 # Teaching Helps Save Lives
 
-Thomas S. Monson
-
 By Russell T. Osguthorpe - *Sunday School General President*
 
 *Given in the October session of the 2009 General Conference*
@@ -73,4 +71,3 @@ I know that God lives. I testify that Jesus is the Christ. I bear witness that t
 
 
 
-#Education #Spirituality #Teaching

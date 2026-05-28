@@ -1,7 +1,5 @@
 # Conversion and Commitment
 
-James E. Faust
-
 By Elder W. Mack Lawrence - *Of the Seventy*
 
 *Given in the April session of the 1996 General Conference*
@@ -59,4 +57,3 @@ I believe in Jesus Christ with all my soul. May we understand and follow His tea
 
 
 
-#Commitment #Conversion #Covenants #Discipleship #General_Conference

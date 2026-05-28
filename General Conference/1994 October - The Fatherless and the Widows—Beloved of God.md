@@ -1,7 +1,5 @@
 # The Fatherless and the Widows—Beloved of God
 
-Gordon B. Hinckley
-
 By President Thomas S. Monson - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 1994 General Conference*
@@ -140,7 +138,3 @@ May the peace promised by the Savior be the gift of one and all this Sabbath day
 
 [^14]: [[James 1.27|James 1:27]].
 
-
-
-
-#Atonement #Charity #Compassion #Death #Elderly

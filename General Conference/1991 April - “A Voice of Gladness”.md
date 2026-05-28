@@ -1,7 +1,5 @@
 # “A Voice of Gladness”
 
-Thomas S. Monson
-
 By Elder Marvin J. Ashton - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1991 General Conference*
@@ -113,4 +111,3 @@ May I share my witness and testimony that I know God is pleased when we declare 
 
 
 
-#Adversity #Attitude #Faith #Gratitude #Hope

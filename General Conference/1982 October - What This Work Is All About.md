@@ -1,7 +1,5 @@
 # What This Work Is All About
 
-Spencer W. Kimball
-
 By President Gordon B. Hinckley - *Counselor in the First Presidency*
 
 *Given in the October session of the 1982 General Conference*
@@ -95,4 +93,3 @@ This work of ours is a great work of redemption. All of us must do more because 
 
 
 
-#Activation #Leadership #Miracles #Obedience #Service

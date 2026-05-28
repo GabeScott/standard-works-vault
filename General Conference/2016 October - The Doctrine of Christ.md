@@ -1,7 +1,5 @@
 # The Doctrine of Christ
 
-Jean B. Bingham
-
 By Brian K. Ashton - *Second Counselor in the Sunday School General Presidency*
 
 *Given in the October session of the 2016 General Conference*
@@ -71,7 +69,7 @@ I testify that Jesus Christ is the Savior of the world and that His is the only 
 
 [^4]: See [[3 Nephi 11.21|3 Nephi 11:21–39]][[3 Nephi 11.22|]][[3 Nephi 11.23|]][[3 Nephi 11.24|]][[3 Nephi 11.25|]][[3 Nephi 11.26|]][[3 Nephi 11.27|]][[3 Nephi 11.28|]][[3 Nephi 11.29|]][[3 Nephi 11.30|]][[3 Nephi 11.31|]][[3 Nephi 11.32|]][[3 Nephi 11.33|]][[3 Nephi 11.34|]][[3 Nephi 11.35|]][[3 Nephi 11.36|]][[3 Nephi 11.37|]][[3 Nephi 11.38|]][[3 Nephi 11.39|]].
 
-[^5]: See [[2 Nephi 31.1|2 Nephi 31]]; [[3 Nephi 27.16|3 Nephi 27:16–20]][[3 Nephi 27.17|]][[3 Nephi 27.18|]][[3 Nephi 27.19|]][[3 Nephi 27.20|]]. The doctrine of Christ is found throughout the scriptures but is most prevalent in the Book of Mormon.
+[^5]: See [[2 Nephi 31.1|2 Nephi 31]][[2 Nephi 31.2|]][[2 Nephi 31.3|]][[2 Nephi 31.4|]][[2 Nephi 31.5|]][[2 Nephi 31.6|]][[2 Nephi 31.7|]][[2 Nephi 31.8|]][[2 Nephi 31.9|]][[2 Nephi 31.10|]][[2 Nephi 31.11|]][[2 Nephi 31.12|]][[2 Nephi 31.13|]][[2 Nephi 31.14|]][[2 Nephi 31.15|]][[2 Nephi 31.16|]][[2 Nephi 31.17|]][[2 Nephi 31.18|]][[2 Nephi 31.19|]][[2 Nephi 31.20|]][[2 Nephi 31.21|]]; [[3 Nephi 27.16|3 Nephi 27:16–20]][[3 Nephi 27.17|]][[3 Nephi 27.18|]][[3 Nephi 27.19|]][[3 Nephi 27.20|]]. The doctrine of Christ is found throughout the scriptures but is most prevalent in the Book of Mormon.
 
 [^6]: [[2 Nephi 2.8|2 Nephi 2:8]].
 
@@ -193,7 +191,3 @@ I testify that Jesus Christ is the Savior of the world and that His is the only 
 
 [^65]: [[Moroni 7.25|Moroni 7:25]].
 
-
-
-
-#Atonement #Baptism #Endurance #Faith #Holy_Ghost #Jesus_Christ #Repentance #Sacrament

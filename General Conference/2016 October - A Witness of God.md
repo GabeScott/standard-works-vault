@@ -1,7 +1,5 @@
 # A Witness of God
 
-Jean B. Bingham
-
 By Elder Neil L. Andersen - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2016 General Conference*
@@ -131,7 +129,3 @@ I close with words from the Doctrine and Covenants: “Call upon the Lord, that 
 
 [^16]: [[D&C 65.5|Doctrine and Covenants 65:5]].
 
-
-
-
-#Conversion #House_Of_Israel #Missionary_Work

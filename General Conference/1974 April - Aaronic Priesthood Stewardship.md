@@ -1,7 +1,5 @@
 # Aaronic Priesthood Stewardship
 
-Spencer W. Kimball
-
 By Bishop Victor L. Brown - *Presiding Bishop*
 
 *Given in the April session of the 1974 General Conference*
@@ -57,4 +55,3 @@ The bishops’ responsibilities are heavy. However, with proper delegation and c
 
 
 
-#Leadership #Priesthood

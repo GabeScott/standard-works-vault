@@ -1,7 +1,5 @@
 # A Testimony of Christ
 
-Spencer W. Kimball
-
 By Elder Joseph Anderson - *Assistant to the Council of the Twelve*
 
 *Given in the October session of the 1974 General Conference*
@@ -91,4 +89,3 @@ I testify to the truth of these things. I know that our Redeemer lives, and I be
 
 
 
-#Jesus_Christ #Testimony

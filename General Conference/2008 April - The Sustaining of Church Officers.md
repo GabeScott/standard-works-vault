@@ -1,7 +1,5 @@
 # The Sustaining of Church Officers
 
-Dieter F. Uchtdorf
-
 By President Dieter F. Uchtdorf - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 2008 General Conference*

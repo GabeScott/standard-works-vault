@@ -1,7 +1,5 @@
 # Spiritual Revival
 
-Gordon B. Hinckley
-
 By Elder Glenn L. Pace - *Second Counselor in the Presiding Bishopric*
 
 *Given in the October session of the 1992 General Conference*
@@ -59,4 +57,3 @@ While the world is in commotion, the kingdom is intact. We are living in the gre
 
 
 
-#Adversity #Commitment #Obedience #Testimony

@@ -1,7 +1,5 @@
 # “Finishers Wanted”
 
-Wilford G. Edling
-
 By Elder Thomas S. Monson - *Of the Council of the Twelve*
 
 *Given in the April session of the 1972 General Conference*
@@ -123,7 +121,3 @@ I pray humbly that each one of us may be a finisher in the race of life and thus
 
 [^1]: Joe Darion, “The Impossible Dream,” Sam Fox, Publisher, New York, 1965.
 
-
-
-
-#Dedication #Example #Goals

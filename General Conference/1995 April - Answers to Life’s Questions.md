@@ -1,7 +1,5 @@
 # Answers to Life’s Questions
 
-Thomas S. Monson
-
 By Elder M. Russell Ballard - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1995 General Conference*
@@ -69,4 +67,3 @@ I leave you my testimony that the Lord’s promise of peace comes from knowing a
 
 
 
-#Adversity #Agency #Atonement #Faith #Hope #Obedience #Plan_Of_Salvation

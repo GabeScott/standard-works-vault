@@ -1,7 +1,5 @@
 # Christ Can Change Human Behavior
 
-Gordon B. Hinckley
-
 By Elder Richard E. Cook - *Of the Seventy*
 
 *Given in the April session of the 1998 General Conference*
@@ -49,4 +47,3 @@ I pray we’ll make missionary work our business and not let other less importan
 
 
 
-#Agency #Blessings #Conversion #Jesus_Christ #Missionary_Work #Obedience

@@ -1,7 +1,5 @@
 # The Primary Enriches the Lives of Children
 
-Spencer W. Kimball
-
 By Elder David B. Haight - *Of the Council of the Twelve*
 
 *Given in the April session of the 1978 General Conference*
@@ -113,4 +111,3 @@ May we as parents and spiritual leaders be blessed to understand what the Master
 
 
 
-#Primary

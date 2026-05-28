@@ -1,7 +1,5 @@
 # How to Obtain Revelation and Inspiration for Your Personal Life
 
-Thomas S. Monson
-
 By Elder Richard G. Scott - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2012 General Conference*
@@ -85,7 +83,3 @@ May the Lord inspire you to understand and use the principles that lead to perso
 
 [^4]: [[D&C 6.14|Doctrine and Covenants 6:14–15]][[D&C 6.15|]].
 
-
-
-
-#Holy_Ghost #Humility #Prayer #Spirituality

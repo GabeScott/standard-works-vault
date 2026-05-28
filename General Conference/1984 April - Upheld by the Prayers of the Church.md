@@ -1,7 +1,5 @@
 # Upheld by the Prayers of the Church
 
-Gordon B. Hinckley
-
 By Elder John K. Carmack - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1984 General Conference*
@@ -46,4 +44,3 @@ On behalf of these brethren who have joined me, we pledge our energy, our love, 
 
 
 
-#Church_History #Prayer

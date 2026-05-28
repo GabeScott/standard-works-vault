@@ -1,7 +1,5 @@
 # A New Aristocracy
 
-Spencer W. Kimball
-
 By Elder James E. Faust - *Assistant to the Council of the Twelve*
 
 *Given in the October session of the 1974 General Conference*
@@ -67,4 +65,3 @@ I know that God lives. I know that this is his work. I know that he inspires his
 
 
 
-#Example #Morality #Youth

@@ -1,7 +1,5 @@
 # “Out of Obscurity”
 
-Gordon B. Hinckley
-
 By Elder Neal A. Maxwell - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1984 General Conference*
@@ -145,4 +143,3 @@ This is the Lord’s work! It will roll on until all His purposes are fulfilled 
 
 
 
-#Church_Growth #Joseph_Smith #Opposition

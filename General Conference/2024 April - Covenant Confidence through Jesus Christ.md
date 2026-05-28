@@ -1,7 +1,5 @@
 # Covenant Confidence through Jesus Christ
 
-Dallin H. Oaks
-
 By Elder Ulisses Soares - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2024 General Conference*
@@ -75,7 +73,3 @@ The ongoing and accelerating building of temples will continue to excite, inspir
 
 [^12]: Russell M. Nelson, “[[2021 October - The Temple and Your Spiritual Foundation.md|The Temple and Your Spiritual Foundation]],” *Liahona*, Nov. 2021, 93–94.
 
-
-
-
-#Adversity #Confidence #Covenants #Jesus_Christ #Temples

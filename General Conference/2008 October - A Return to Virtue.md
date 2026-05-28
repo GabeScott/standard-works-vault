@@ -1,7 +1,5 @@
 # A Return to Virtue
 
-Thomas S. Monson
-
 By Elaine S. Dalton - *Young Women General President*
 
 *Given in the October session of the 2008 General Conference*
@@ -62,7 +60,7 @@ I testify that a return to virtue is possible because of the Savior’s example 
 
 [^10]: See Alexander Pope, *An Essay on Man,* epistle 2, lines 217–20.
 
-[^11]: [[Alma 53.20|Alma 53:20]]; see also [[Alma 56.1|Alma 56]].
+[^11]: [[Alma 53.20|Alma 53:20]]; see also [[Alma 56.1|Alma 56]][[Alma 56.2|]][[Alma 56.3|]][[Alma 56.4|]][[Alma 56.5|]][[Alma 56.6|]][[Alma 56.7|]][[Alma 56.8|]][[Alma 56.9|]][[Alma 56.10|]][[Alma 56.11|]][[Alma 56.12|]][[Alma 56.13|]][[Alma 56.14|]][[Alma 56.15|]][[Alma 56.16|]][[Alma 56.17|]][[Alma 56.18|]][[Alma 56.19|]][[Alma 56.20|]][[Alma 56.21|]][[Alma 56.22|]][[Alma 56.23|]][[Alma 56.24|]][[Alma 56.25|]][[Alma 56.26|]][[Alma 56.27|]][[Alma 56.28|]][[Alma 56.29|]][[Alma 56.30|]][[Alma 56.31|]][[Alma 56.32|]][[Alma 56.33|]][[Alma 56.34|]][[Alma 56.35|]][[Alma 56.36|]][[Alma 56.37|]][[Alma 56.38|]][[Alma 56.39|]][[Alma 56.40|]][[Alma 56.41|]][[Alma 56.42|]][[Alma 56.43|]][[Alma 56.44|]][[Alma 56.45|]][[Alma 56.46|]][[Alma 56.47|]][[Alma 56.48|]][[Alma 56.49|]][[Alma 56.50|]][[Alma 56.51|]][[Alma 56.52|]][[Alma 56.53|]][[Alma 56.54|]][[Alma 56.55|]][[Alma 56.56|]][[Alma 56.57|]].
 
 [^12]: Juma Ikangaa, quoted in Michael Sandrock, *Running with the Legends: Training and Racing Insights from 21 Great Runners* (1996), 415.
 
@@ -88,7 +86,3 @@ I testify that a return to virtue is possible because of the Savior’s example 
 
 [^23]: [[Moroni 7.48|Moroni 7:48]]; emphasis added.
 
-
-
-
-#Morality #Safety #Temples

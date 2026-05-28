@@ -1,7 +1,5 @@
 # Three Choices
 
-Gordon B. Hinckley
-
 By Elder Joseph B. Wirthlin - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2003 General Conference*
@@ -135,7 +133,3 @@ Brothers and sisters, I know that our Heavenly Father and His Beloved Son live. 
 
 [^4]: [[Moroni 7.16|Moroni 7:16]].
 
-
-
-
-#Agency #Goals #Priorities #Repentance #Scripture_Study #Service

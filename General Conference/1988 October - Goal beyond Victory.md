@@ -1,7 +1,5 @@
 # Goal beyond Victory
 
-Ezra Taft Benson
-
 By President Thomas S. Monson - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 1988 General Conference*
@@ -129,4 +127,3 @@ May this be our blessing is my prayer, in the name of Jesus Christ, amen.
 
 
 
-#Athletics #Bishops #Self-Reliance #Welfare

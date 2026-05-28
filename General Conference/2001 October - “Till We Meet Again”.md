@@ -1,7 +1,5 @@
 # “Till We Meet Again”
 
-Gordon B. Hinckley
-
 By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the October session of the 2001 General Conference*
@@ -71,4 +69,3 @@ O Father, look with mercy upon this, our own nation, and its friends in this tim
 
 
 
-#Faith #Fatherhood #God_The_Father #Gratitude #Home #Kindness #Motherhood #Prayer #Respect #Safety #Spirituality #Women

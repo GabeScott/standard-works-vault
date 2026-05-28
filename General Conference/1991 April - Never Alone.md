@@ -1,7 +1,5 @@
 # Never Alone
 
-Thomas S. Monson
-
 By President Thomas S. Monson - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 1991 General Conference*
@@ -152,4 +150,3 @@ To these words I add my witness: God lives, and His Son, Jesus Christ, is our Sa
 
 
 
-#Forgiveness #Gratitude #Jesus_Christ #Love #Peace #Service

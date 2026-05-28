@@ -1,7 +1,5 @@
 # Healing the Tragic Scars of Abuse
 
-Thomas S. Monson
-
 By Elder Richard G. Scott - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1992 General Conference*
@@ -81,4 +79,3 @@ In the name of Jesus Christ, amen.
 
 
 
-#Abuse #Forgiveness #Healing

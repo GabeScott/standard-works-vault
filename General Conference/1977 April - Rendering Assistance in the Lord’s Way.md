@@ -1,7 +1,5 @@
 # Rendering Assistance in the Lord’s Way
 
-Spencer W. Kimball
-
 By Bishop Victor L. Brown - *Presiding Bishop*
 
 *Given in the April session of the 1977 General Conference*
@@ -69,4 +67,3 @@ May we be blessed as the psalmist said: “Blessed is he that considereth the po
 
 
 
-#Social_Services #Welfare

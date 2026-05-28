@@ -1,7 +1,5 @@
 # Success—A Journey or a Destination?
 
-Harold B. Lee
-
 By President Hartman Rector, Jr. - *Of the First Council of the Seventy*
 
 *Given in the April session of the 1973 General Conference*
@@ -78,4 +76,3 @@ May we follow him, and may we keep his commandments, and may we be successful, I
 
 
 
-#Children #Joy

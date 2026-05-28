@@ -1,7 +1,5 @@
 # Power of Evil
 
-Harold B. Lee
-
 By Elder David B. Haight - *Assistant to the Council of the Twelve*
 
 *Given in the April session of the 1973 General Conference*
@@ -96,4 +94,3 @@ May this be your lot with you and your families, I humbly pray in the name of Je
 
 
 
-#Commandments #Home #Satan

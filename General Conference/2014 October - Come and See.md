@@ -1,7 +1,5 @@
 # Come and See
 
-Thomas S. Monson
-
 By Elder David A. Bednar - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2014 General Conference*
@@ -99,4 +97,3 @@ As one of the Lord’s Apostles, and with all of the energy of my soul, I bear w
 
 
 
-#Atonement #Children #Missionary_Work #Truth

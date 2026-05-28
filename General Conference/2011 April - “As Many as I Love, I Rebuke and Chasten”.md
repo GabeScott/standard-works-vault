@@ -1,7 +1,5 @@
 # “As Many as I Love, I Rebuke and Chasten”
 
-Thomas S. Monson
-
 By Elder D. Todd Christofferson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2011 General Conference*
@@ -75,7 +73,3 @@ May God sustain you in your striving to meet His high expectations and grant you
 
 [^5]: Hugh B. Brown, “The Currant Bush,” *New Era,* Jan. 1973, 14–15; see *Liahona,* Mar. 2002, 22, 24.
 
-
-
-
-#Obedience #Repentance

@@ -1,7 +1,5 @@
 # Constant Truths for Changing Times
 
-Gordon B. Hinckley
-
 By President Thomas S. Monson - *First Counselor in the First Presidency*
 
 *Given in the April session of the 2005 General Conference*
@@ -127,7 +125,3 @@ Now is the time. This is the place. May we follow Him, I pray, in the name of Je
 
 [^10]: [[Acts 10.38|Acts 10:38]].
 
-
-
-
-#Children #Family_History #Family_Home_Evening #Financial_Management #Truth

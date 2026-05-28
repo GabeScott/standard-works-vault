@@ -1,7 +1,5 @@
 # Trust in the Lord and Lean Not
 
-Bonnie H. Cordon
-
 By Bonnie H. Cordon - *Second Counselor in the Primary General Presidency*
 
 *Given in the April session of the 2017 General Conference*
@@ -95,7 +93,3 @@ I add my testimony to that of our beloved prophet. If we trust in our Heavenly F
 
 [^8]: Thomas S. Monson, “[[2009 April - Be of Good Cheer.md|Be of Good Cheer]],” *Ensign* or *Liahona,* May 2009, 92.
 
-
-
-
-#Jesus_Christ #Prayer #Premortal_Existence #Scripture_Study #Service #Trust

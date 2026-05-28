@@ -1,7 +1,5 @@
 # “Evidence of Things Not Seen”
 
-Spencer W. Kimball
-
 By Elder Mark E. Petersen - *Of the Council of the Twelve*
 
 *Given in the April session of the 1978 General Conference*
@@ -135,4 +133,3 @@ This we solemnly affirm with all the power of our being, in the name of Jesus Ch
 
 
 
-#Book_Of_Mormon #Prophets #Restoration

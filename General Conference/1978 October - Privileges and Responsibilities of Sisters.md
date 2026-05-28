@@ -1,7 +1,5 @@
 # Privileges and Responsibilities of Sisters
 
-Spencer W. Kimball
-
 By President Spencer W. Kimball - *President of the Church*
 
 *Given in the October session of the 1978 General Conference*
@@ -167,4 +165,3 @@ May the Lord bless you and your loved ones this day and always, I humbly pray, i
 
 
 
-#Agency #Family #Marriage #Scriptures #Women

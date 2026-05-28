@@ -1,7 +1,5 @@
 # The Virtue of Kindness
 
-Gordon B. Hinckley
-
 By Elder Joseph B. Wirthlin - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2005 General Conference*
@@ -111,7 +109,3 @@ May we be models of kindness. May we ever live up to the words of the Savior: â€
 
 [^7]: [[John 13.35|John 13:35]].
 
-
-
-
-#Atonement #Jesus_Christ #Kindness

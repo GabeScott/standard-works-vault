@@ -1,7 +1,5 @@
 # One among the Crowd
 
-Dieter F. Uchtdorf
-
 By Elder Dennis B. Neuenschwander - *Of the Seventy*
 
 *Given in the April session of the 2008 General Conference*
@@ -67,7 +65,3 @@ My dear brothers and sisters, I pray that each one of us can pass safely through
 
 [^13]: [[Matthew 21.42|Matthew 21:42]].
 
-
-
-
-#Courage #Faith #Individual_Worth #Jesus_Christ

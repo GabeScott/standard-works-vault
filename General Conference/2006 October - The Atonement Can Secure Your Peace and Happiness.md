@@ -1,7 +1,5 @@
 # The Atonement Can Secure Your Peace and Happiness
 
-Gordon B. Hinckley
-
 By Elder Richard G. Scott - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2006 General Conference*
@@ -57,7 +55,3 @@ I testify that with unimaginable suffering and agony at an incalculable price, t
 
 [^4]: [[2 Nephi 25.23|2 Nephi 25:23]].
 
-
-
-
-#Atonement #Joy #Obedience #Peace #Repentance

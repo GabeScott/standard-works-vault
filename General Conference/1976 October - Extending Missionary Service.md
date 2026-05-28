@@ -1,7 +1,5 @@
 # Extending Missionary Service
 
-Spencer W. Kimball
-
 By Elder A. Theodore Tuttle - *Of the First Council of the Seventy*
 
 *Given in the October session of the 1976 General Conference*
@@ -55,4 +53,3 @@ My brethren, we have been too casual about these matters in the past. There is w
 
 
 
-#Missionary_Work

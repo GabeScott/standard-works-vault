@@ -1,7 +1,5 @@
 # That Our Light May Be a Standard for the Nations
 
-Bonnie H. Cordon
-
 By Elder Benjamín De Hoyos - *Of the Seventy*
 
 *Given in the April session of the 2017 General Conference*
@@ -67,4 +65,3 @@ I testify that Jesus Christ is the light that we must reflect, in the name of Je
 
 
 
-#Family_History #General_Conference #Jesus_Christ #Sabbath #Teaching #Temple_Work

@@ -1,7 +1,5 @@
 # “Come unto Christ, and Be Perfected in Him”
 
-Ezra Taft Benson
-
 By President Ezra Taft Benson - *President of the Church*
 
 *Given in the April session of the 1988 General Conference*
@@ -87,4 +85,3 @@ Let us all come unto Christ and be perfected in Him, I humbly pray in the name o
 
 
 
-#Jesus_Christ #Missionary_Work #Scripture_Study #Temple_Work

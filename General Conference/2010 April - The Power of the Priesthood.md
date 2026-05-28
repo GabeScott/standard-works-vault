@@ -1,7 +1,5 @@
 # The Power of the Priesthood
 
-Thomas S. Monson
-
 By President Boyd K. Packer - *President of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2010 General Conference*
@@ -197,7 +195,3 @@ I bear witness of the power of the priesthood given to the Church to protect us 
 
 [^30]: [[Moses 1.39|Moses 1:39]].
 
-
-
-
-#Family #Fatherhood #Priesthood

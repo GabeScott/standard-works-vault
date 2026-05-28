@@ -1,7 +1,5 @@
 # Become a Star Thrower
 
-Gordon B. Hinckley
-
 By Elder David B. Haight - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1983 General Conference*
@@ -99,4 +97,3 @@ God bless us all in his divine work of the recovering of souls, that our resolve
 
 
 
-#Activation

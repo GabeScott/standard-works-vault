@@ -1,7 +1,5 @@
 # Beware of Murmuring
 
-Gordon B. Hinckley
-
 By Elder H. Ross Workman - *Of the Seventy*
 
 *Given in the October session of the 2001 General Conference*
@@ -77,4 +75,3 @@ So also must our Father in Heaven feel joy when we follow the living prophets wi
 
 
 
-#Attitude #Contention #Obedience #Prophets #Satan

@@ -1,7 +1,5 @@
 # Aaronic Priesthood: Arise and Use the Power of God
 
-Thomas S. Monson
-
 By Adrián Ochoa - *Second Counselor in the Young Men General Presidency*
 
 *Given in the April session of the 2012 General Conference*
@@ -51,4 +49,3 @@ I testify to you that the power of the priesthood is real. I gained my witness e
 
 
 
-#Aaronic_Priesthood #Example #Worthiness

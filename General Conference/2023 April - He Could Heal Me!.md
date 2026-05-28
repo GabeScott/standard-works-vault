@@ -1,7 +1,5 @@
 # He Could Heal Me!
 
-Gary E. Stevenson
-
 By Elder Peter F. Meurs - *Of the Seventy*
 
 *Given in the April session of the 2023 General Conference*
@@ -18,11 +16,11 @@ My father passed away in April 2013. As I prepared to speak at his funeral, I re
 
 My father particularly loved the account of the Savior’s visit to the people of Nephi.[^3] This sacred account is of the resurrected and exalted Lord Jesus Christ. He had drunk of the bitter cup and suffered all things so that we would not suffer if we would repent.[^4] He had visited the spirit world and organized the preaching of the gospel there.[^5] He had risen from the dead, and He had been with and received commandments from the Father to share scriptures with the Nephites that would bless future generations.[^6] He was exalted and had all of His eternal power and capacity. We can learn from every detail of His teachings.
 
-In [[3 Nephi 11.1|3 Nephi 11]], we read how the Savior descended out of heaven to teach the Nephites that He was Jesus Christ, whom the prophets testified would come into the world. He declared that He was the Light of the World and that He glorified the Father in taking on the sins of the world. He invited the people to come forth to put their hands into His side and to feel the prints of the nails in His hands and in His feet. He wanted them to know that He was the God of Israel, who was slain for the sins of the world. The people joyfully responded, going forth one by one until they had all seen and felt that it was truly He of whom it was written by the prophets that should come.[^7]
+In [[3 Nephi 11.1|3 Nephi 11]][[3 Nephi 11.2|]][[3 Nephi 11.3|]][[3 Nephi 11.4|]][[3 Nephi 11.5|]][[3 Nephi 11.6|]][[3 Nephi 11.7|]][[3 Nephi 11.8|]][[3 Nephi 11.9|]][[3 Nephi 11.10|]][[3 Nephi 11.11|]][[3 Nephi 11.12|]][[3 Nephi 11.13|]][[3 Nephi 11.14|]][[3 Nephi 11.15|]][[3 Nephi 11.16|]][[3 Nephi 11.17|]][[3 Nephi 11.18|]][[3 Nephi 11.19|]][[3 Nephi 11.20|]][[3 Nephi 11.21|]][[3 Nephi 11.22|]][[3 Nephi 11.23|]][[3 Nephi 11.24|]][[3 Nephi 11.25|]][[3 Nephi 11.26|]][[3 Nephi 11.27|]][[3 Nephi 11.28|]][[3 Nephi 11.29|]][[3 Nephi 11.30|]][[3 Nephi 11.31|]][[3 Nephi 11.32|]][[3 Nephi 11.33|]][[3 Nephi 11.34|]][[3 Nephi 11.35|]][[3 Nephi 11.36|]][[3 Nephi 11.37|]][[3 Nephi 11.38|]][[3 Nephi 11.39|]][[3 Nephi 11.40|]][[3 Nephi 11.41|]], we read how the Savior descended out of heaven to teach the Nephites that He was Jesus Christ, whom the prophets testified would come into the world. He declared that He was the Light of the World and that He glorified the Father in taking on the sins of the world. He invited the people to come forth to put their hands into His side and to feel the prints of the nails in His hands and in His feet. He wanted them to know that He was the God of Israel, who was slain for the sins of the world. The people joyfully responded, going forth one by one until they had all seen and felt that it was truly He of whom it was written by the prophets that should come.[^7]
 
 Jesus taught the Nephites about the importance of repentance, about becoming as a little child, and about the need to be baptized by one having His authority. He then taught much of the doctrine that we are studying this year in the New Testament.
 
-In [[3 Nephi 17.1|3 Nephi 17]], we read that Jesus told the people it was time for Him to go unto the Father and also to show Himself unto the lost tribes of Israel.[^8] As He cast His eyes on the multitude, He noticed that they were in tears, looking steadfastly upon Him as if they would ask Him to tarry a little longer.[^9]
+In [[3 Nephi 17.1|3 Nephi 17]][[3 Nephi 17.2|]][[3 Nephi 17.3|]][[3 Nephi 17.4|]][[3 Nephi 17.5|]][[3 Nephi 17.6|]][[3 Nephi 17.7|]][[3 Nephi 17.8|]][[3 Nephi 17.9|]][[3 Nephi 17.10|]][[3 Nephi 17.11|]][[3 Nephi 17.12|]][[3 Nephi 17.13|]][[3 Nephi 17.14|]][[3 Nephi 17.15|]][[3 Nephi 17.16|]][[3 Nephi 17.17|]][[3 Nephi 17.18|]][[3 Nephi 17.19|]][[3 Nephi 17.20|]][[3 Nephi 17.21|]][[3 Nephi 17.22|]][[3 Nephi 17.23|]][[3 Nephi 17.24|]][[3 Nephi 17.25|]], we read that Jesus told the people it was time for Him to go unto the Father and also to show Himself unto the lost tribes of Israel.[^8] As He cast His eyes on the multitude, He noticed that they were in tears, looking steadfastly upon Him as if they would ask Him to tarry a little longer.[^9]
 
 The Savior’s response to the Nephites was both touching and instructive. He said, “Behold, my bowels are filled with compassion towards you.”[^10]
 
@@ -57,7 +55,7 @@ I testify that He lives. He is our Savior and Redeemer. He loves us. He has comp
 
 [^2]: [[Moroni 10.3|Moroni 10:3]].
 
-[^3]: See [[3 Nephi 11.1|3 Nephi 11–26]].
+[^3]: See [[3 Nephi 11.1|3 Nephi 11–26]][[3 Nephi 11.2|]][[3 Nephi 11.3|]][[3 Nephi 11.4|]][[3 Nephi 11.5|]][[3 Nephi 11.6|]][[3 Nephi 11.7|]][[3 Nephi 11.8|]][[3 Nephi 11.9|]][[3 Nephi 11.10|]][[3 Nephi 11.11|]][[3 Nephi 11.12|]][[3 Nephi 11.13|]][[3 Nephi 11.14|]][[3 Nephi 11.15|]][[3 Nephi 11.16|]][[3 Nephi 11.17|]][[3 Nephi 11.18|]][[3 Nephi 11.19|]][[3 Nephi 11.20|]][[3 Nephi 11.21|]][[3 Nephi 11.22|]][[3 Nephi 11.23|]][[3 Nephi 11.24|]][[3 Nephi 11.25|]][[3 Nephi 11.26|]][[3 Nephi 11.27|]][[3 Nephi 11.28|]][[3 Nephi 11.29|]][[3 Nephi 11.30|]][[3 Nephi 11.31|]][[3 Nephi 11.32|]][[3 Nephi 11.33|]][[3 Nephi 11.34|]][[3 Nephi 11.35|]][[3 Nephi 11.36|]][[3 Nephi 11.37|]][[3 Nephi 11.38|]][[3 Nephi 11.39|]][[3 Nephi 11.40|]][[3 Nephi 11.41|]].
 
 [^4]: See [[D&C 19.16|Doctrine and Covenants 19:16–19]][[D&C 19.17|]][[D&C 19.18|]][[D&C 19.19|]].
 
@@ -81,7 +79,3 @@ I testify that He lives. He is our Savior and Redeemer. He loves us. He has comp
 
 [^14]: Russell M. Nelson, “[[2022 April - The Power of Spiritual Momentum.md|The Power of Spiritual Momentum]],” *Liahona*, May 2022, 100.
 
-
-
-
-#Book_Of_Mormon #Forgiveness #Healing #Jesus_Christ #Redemption

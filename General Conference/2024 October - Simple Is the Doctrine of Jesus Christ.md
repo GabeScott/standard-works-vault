@@ -1,7 +1,5 @@
 # Simple Is the Doctrine of Jesus Christ
 
-Henry B. Eyring
-
 By President Henry B. Eyring - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 2024 General Conference*
@@ -101,7 +99,3 @@ I bear witness of the sacred work of teaching Heavenly Father’s children the s
 
 [^10]: [[Isaiah 40.31|Isaiah 40:31]].
 
-
-
-
-#Church_Doctrine #Family #Jesus_Christ #Teaching

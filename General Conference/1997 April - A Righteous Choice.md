@@ -1,7 +1,5 @@
 # A Righteous Choice
 
-Gordon B. Hinckley
-
 By Fono Lavatai - *Center Third Ward, Salt Lake Riverside Stake*
 
 *Given in the April session of the 1997 General Conference*
@@ -27,4 +25,3 @@ I know this gospel is true. It has helped me a lot throughout my life. I know ou
 
 
 
-#Agency #Seminary

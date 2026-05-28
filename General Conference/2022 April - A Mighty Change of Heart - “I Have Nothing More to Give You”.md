@@ -1,6 +1,6 @@
 # A Mighty Change of Heart: “I Have Nothing More to Give You”
 
-Russell M. Nelson
+“I Have Nothing More to Give You”
 
 By Elder Eduardo Gavarret - *Of the Seventy*
 
@@ -181,7 +181,3 @@ Just as the ring was recovered from that shipwreck, when we give our hearts to G
 
 [^23]: [[Mosiah 5.7|Mosiah 5:7]].
 
-
-
-
-#Conversion #Covenants #Sabbath

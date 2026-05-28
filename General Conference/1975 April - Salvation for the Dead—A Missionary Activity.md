@@ -1,7 +1,5 @@
 # Salvation for the Dead—A Missionary Activity
 
-Spencer W. Kimball
-
 By Elder Theodore M. Burton - *Assistant to the Council of the Twelve*
 
 *Given in the April session of the 1975 General Conference*
@@ -81,4 +79,3 @@ So, my brethren of the priesthood, the time has come for all of us to become mor
 
 
 
-#Family #Family_History #Priesthood #Temple_Work

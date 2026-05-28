@@ -1,7 +1,5 @@
 # Be Not Deceived
 
-Gordon B. Hinckley
-
 By Elder Dallin H. Oaks - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2004 General Conference*
@@ -79,4 +77,3 @@ I testify that these things are true, and I pray that we will do all that is nec
 
 
 
-#Holy_Ghost #Repentance #Temptation

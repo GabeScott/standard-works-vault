@@ -1,7 +1,5 @@
 # The Sabbath Day
 
-Spencer W. Kimball
-
 By Elder Mark E. Petersen - *Of the Council of the Twelve*
 
 *Given in the April session of the 1975 General Conference*
@@ -113,4 +111,3 @@ May we have the courage and the good sense to keep it, I humbly pray in the sacr
 
 
 
-#Obedience #Sabbath

@@ -1,7 +1,5 @@
 # Trust in the Lord
 
-Jeffrey R. Holland
-
 By President Dallin H. Oaks - *First Counselor in the First Presidency*
 
 *Given in the October session of the 2019 General Conference*
@@ -81,7 +79,3 @@ I testify of the truth of what I have said here and of the truths taught and to 
 
 [^9]: See *[Teachings: Joseph Smith](https://www.churchofjesuschrist.org/study/manual/teachings-joseph-smith/chapter-19?lang=eng),* 231–33.
 
-
-
-
-#Plan_Of_Salvation #Spirit_World #Trust

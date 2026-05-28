@@ -1,7 +1,5 @@
 # Live Up to Your Inheritance
 
-Gordon B. Hinckley
-
 By President Gordon B. Hinckley - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 1983 General Conference*
@@ -93,4 +91,3 @@ God be thanked for the wonderful women of this Church. May he plant in your hear
 
 
 
-#Marriage #Women

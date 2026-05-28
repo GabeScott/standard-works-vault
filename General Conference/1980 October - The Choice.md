@@ -1,7 +1,5 @@
 # The Choice
 
-Spencer W. Kimball
-
 By Elder Boyd K. Packer - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1980 General Conference*
@@ -161,4 +159,3 @@ I know that God lives, that Jesus is the Christ, and that in the gospel is true 
 
 
 
-#Joy #Success

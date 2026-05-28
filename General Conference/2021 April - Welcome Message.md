@@ -1,7 +1,5 @@
 # Welcome Message
 
-Russell M. Nelson
-
 By President Russell M. Nelson - *President of The Church of Jesus Christ of Latter-day Saints*
 
 *Given in the April session of the 2021 General Conference*
@@ -43,7 +41,3 @@ I love you, my dear brothers and sisters, and testify that our Heavenly Father a
 
 [^3]: See [[D&C 13.1|Doctrine and Covenants 13:1]].
 
-
-
-
-#General_Conference #Gospel #Repentance #Worthiness

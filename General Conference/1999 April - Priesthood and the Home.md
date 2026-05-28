@@ -1,7 +1,5 @@
 # Priesthood and the Home
 
-Gordon B. Hinckley
-
 By Elder D. Lee Tobler - *Of the Seventy*
 
 *Given in the April session of the 1999 General Conference*
@@ -31,4 +29,3 @@ There is a way for each ward through councils to reach out to all these men and 
 
 
 
-#Councils #Family #Home #Morality #Priesthood

@@ -1,7 +1,5 @@
 # Blessed and Happy Are Those Who Keep the Commandments of God
 
-Rosemary M. Wixom
-
 By Elder Von G. Keetch - *Of the Seventy*
 
 *Given in the October session of the 2015 General Conference*
@@ -65,7 +63,3 @@ I testify that we are children of a loving God. I witness that He wants us to be
 
 [^8]: See [[Matthew 28.6|Matthew 28:6]]; [[Mark 16.6|Mark 16:6]].
 
-
-
-
-#Commandments #Conversion #Jesus_Christ #Obedience #Safety

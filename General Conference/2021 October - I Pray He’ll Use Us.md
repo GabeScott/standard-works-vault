@@ -1,7 +1,5 @@
 # I Pray He’ll Use Us
 
-Russell M. Nelson
-
 By Sharon Eubank - *First Counselor in the Relief Society General Presidency*
 
 *Given in the October session of the 2021 General Conference*
@@ -123,7 +121,3 @@ Let me conclude by repeating the question Jesus asked His Apostle Simon Peter: �
 
 [^12]: [[John 21.15|John 21:15–17]][[John 21.16|]][[John 21.17|]].
 
-
-
-
-#Adversity #Humanitarian_Aid #Love #Service

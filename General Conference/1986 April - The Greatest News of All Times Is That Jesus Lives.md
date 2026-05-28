@@ -1,7 +1,5 @@
 # The Greatest News of All Times Is That Jesus Lives
 
-Ezra Taft Benson
-
 By Elder Jacob de Jager - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1986 General Conference*
@@ -65,4 +63,3 @@ For these great blessings I humbly pray, in the name of Jesus Christ, amen.
 
 
 
-#Missionary_Work #Obedience

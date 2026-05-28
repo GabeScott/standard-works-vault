@@ -1,7 +1,5 @@
 # The Hearts of the Children Shall Turn
 
-Richard G. Scott
-
 By Elder David A. Bednar - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2011 General Conference*
@@ -91,4 +89,3 @@ I testify Elijah returned to the earth and restored the sacred sealing authority
 
 
 
-#Family_History #Priesthood #Technology #Temple_Work #Youth

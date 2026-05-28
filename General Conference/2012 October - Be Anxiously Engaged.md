@@ -1,7 +1,5 @@
 # Be Anxiously Engaged
 
-Thomas S. Monson
-
 By Elder M. Russell Ballard - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2012 General Conference*
@@ -85,4 +83,3 @@ This is God’s work. May we be about it as faithfully as the dedicated little h
 
 
 
-#Discipleship #Service #Work

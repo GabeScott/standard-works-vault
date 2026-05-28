@@ -1,7 +1,5 @@
 # Elijah the Prophet
 
-Joseph Fielding Smith
-
 By Elder Howard W. Hunter - *Of the Council of the Twelve*
 
 *Given in the October session of the 1971 General Conference*
@@ -85,4 +83,3 @@ May the spirit of Elijah burn deep into our hearts and turn us toward the temple
 
 
 
-#Family_History #Temple_Work

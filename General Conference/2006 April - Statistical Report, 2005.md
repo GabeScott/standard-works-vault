@@ -1,7 +1,5 @@
 # Statistical Report, 2005
 
-Robert D. Hales
-
 By Presented by F. Michael Watson - *Secretary to the First Presidency*
 
 *Given in the April session of the 2006 General Conference*

@@ -1,7 +1,5 @@
 # “I Will Look unto the Lord”
 
-Ezra Taft Benson
-
 By Elder Marion D. Hanks - *Of the Presidency of the First Quorum of the Seventy*
 
 *Given in the October session of the 1986 General Conference*
@@ -52,7 +50,7 @@ When he returned to the ship, overleave overseas in wartime, out of control, and
 
 The charges against him, indelibly imprinted on his previously perfect service record, were heartbreaking. I won’t forget his tearful anguish as he said over and over, “What will I tell my mom? What will I tell my girl?”
 
-He had time now—and the disposition to listen and to think. We read together the sweet counsel of the Lord concerning Christ’s atoning sacrifice and his mission of redemption and of forgiveness and mercy (see [[Alma 42.1|Alma 42]]).
+He had time now—and the disposition to listen and to think. We read together the sweet counsel of the Lord concerning Christ’s atoning sacrifice and his mission of redemption and of forgiveness and mercy (see [[Alma 42.1|Alma 42]][[Alma 42.2|]][[Alma 42.3|]][[Alma 42.4|]][[Alma 42.5|]][[Alma 42.6|]][[Alma 42.7|]][[Alma 42.8|]][[Alma 42.9|]][[Alma 42.10|]][[Alma 42.11|]][[Alma 42.12|]][[Alma 42.13|]][[Alma 42.14|]][[Alma 42.15|]][[Alma 42.16|]][[Alma 42.17|]][[Alma 42.18|]][[Alma 42.19|]][[Alma 42.20|]][[Alma 42.21|]][[Alma 42.22|]][[Alma 42.23|]][[Alma 42.24|]][[Alma 42.25|]][[Alma 42.26|]][[Alma 42.27|]][[Alma 42.28|]][[Alma 42.29|]][[Alma 42.30|]][[Alma 42.31|]]).
 
 About two thousand years ago, the Apostle Peter wrote in remarkable detail of our times and what is transpiring in them as individuals, young and old, are sometimes led into tragedy by others who have no wholesome interest in their happiness or their future. These “others,” and the results of their evil influence, are clearly described. I pray that some who sorely need it, or some who can help those who sorely need it, will hear these remarkable words. They come from the book of Second Peter, chapter 2:
 
@@ -87,4 +85,3 @@ In the name of Jesus Christ, amen.
 
 
 
-#Adversity #Agency #Morality #Repentance

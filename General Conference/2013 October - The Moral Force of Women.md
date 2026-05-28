@@ -1,7 +1,5 @@
 # The Moral Force of Women
 
-Thomas S. Monson
-
 By Elder D. Todd Christofferson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2013 General Conference*
@@ -85,7 +83,3 @@ Dear sisters, we rely on the moral force you bring to the world, to marriage, to
 
 [^15]: [[D&C 68.28|Doctrine and Covenants 68:28]].
 
-
-
-
-#Family #Morality #Motherhood #Women

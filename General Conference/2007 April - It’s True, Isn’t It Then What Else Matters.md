@@ -1,7 +1,5 @@
 # It’s True, Isn’t It? Then What Else Matters?
 
-Thomas S. Monson
-
 By Elder Neil L. Andersen - *Of the Presidency of the Seventy*
 
 *Given in the April session of the 2007 General Conference*
@@ -81,7 +79,3 @@ I testify that it’s true and that it does matter. In the name of Jesus Christ,
 
 [^6]: [[Matthew 6.33|Matthew 6:33]].
 
-
-
-
-#Faith #Priorities

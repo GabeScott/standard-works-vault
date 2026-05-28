@@ -1,7 +1,5 @@
 # The Coming Forth of the Book of Mormon
 
-Russell M. Nelson
-
 By Elder Ulisses Soares - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2020 General Conference*
@@ -57,7 +55,7 @@ I bear my witness that the Book of Mormon is indeed the word of God. I testify t
 
 [^1]: Joseph Smith, in “[Minute Book 1](https://www.josephsmithpapers.org/paper-summary/minute-book-1/48),” 44, josephsmithpapers.org; also at Church History Library, Salt Lake City; capitalization standardized.
 
-[^2]: See [[3 Nephi 11.1|3 Nephi 11–26]].
+[^2]: See [[3 Nephi 11.1|3 Nephi 11–26]][[3 Nephi 11.2|]][[3 Nephi 11.3|]][[3 Nephi 11.4|]][[3 Nephi 11.5|]][[3 Nephi 11.6|]][[3 Nephi 11.7|]][[3 Nephi 11.8|]][[3 Nephi 11.9|]][[3 Nephi 11.10|]][[3 Nephi 11.11|]][[3 Nephi 11.12|]][[3 Nephi 11.13|]][[3 Nephi 11.14|]][[3 Nephi 11.15|]][[3 Nephi 11.16|]][[3 Nephi 11.17|]][[3 Nephi 11.18|]][[3 Nephi 11.19|]][[3 Nephi 11.20|]][[3 Nephi 11.21|]][[3 Nephi 11.22|]][[3 Nephi 11.23|]][[3 Nephi 11.24|]][[3 Nephi 11.25|]][[3 Nephi 11.26|]][[3 Nephi 11.27|]][[3 Nephi 11.28|]][[3 Nephi 11.29|]][[3 Nephi 11.30|]][[3 Nephi 11.31|]][[3 Nephi 11.32|]][[3 Nephi 11.33|]][[3 Nephi 11.34|]][[3 Nephi 11.35|]][[3 Nephi 11.36|]][[3 Nephi 11.37|]][[3 Nephi 11.38|]][[3 Nephi 11.39|]][[3 Nephi 11.40|]][[3 Nephi 11.41|]].
 
 [^3]: See [[Ezekiel 37.21|Ezekiel 37:21–28]][[Ezekiel 37.22|]][[Ezekiel 37.23|]][[Ezekiel 37.24|]][[Ezekiel 37.25|]][[Ezekiel 37.26|]][[Ezekiel 37.27|]][[Ezekiel 37.28|]]; [[1 Nephi 13.34|1 Nephi 13:34–41]][[1 Nephi 13.35|]][[1 Nephi 13.36|]][[1 Nephi 13.37|]][[1 Nephi 13.38|]][[1 Nephi 13.39|]][[1 Nephi 13.40|]][[1 Nephi 13.41|]]; [[3 Nephi 20.46|3 Nephi 20:46]]; [[3 Nephi 21.1|21:1–11]][[3 Nephi 21.2|]][[3 Nephi 21.3|]][[3 Nephi 21.4|]][[3 Nephi 21.5|]][[3 Nephi 21.6|]][[3 Nephi 21.7|]][[3 Nephi 21.8|]][[3 Nephi 21.9|]][[3 Nephi 21.10|]][[3 Nephi 21.11|]]; [title page of the Book of Mormon](https://www.churchofjesuschrist.org/study/scriptures/bofm/bofm-title?lang=eng).
 
@@ -107,7 +105,3 @@ I bear my witness that the Book of Mormon is indeed the word of God. I testify t
 
 [^26]: [Introduction to the Book of Mormon](https://www.churchofjesuschrist.org/study/scriptures/bofm/introduction?lang=eng).
 
-
-
-
-#Book_Of_Mormon

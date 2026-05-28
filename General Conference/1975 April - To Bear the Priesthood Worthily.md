@@ -1,7 +1,5 @@
 # To Bear the Priesthood Worthily
 
-Spencer W. Kimball
-
 By President Spencer W. Kimball - *President of the Church*
 
 *Given in the April session of the 1975 General Conference*
@@ -161,4 +159,3 @@ This is the work of the Lord. I want you boys and you men to know. This is the w
 
 
 
-#Judging #Repentance #Youth

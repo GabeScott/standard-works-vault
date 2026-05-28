@@ -1,7 +1,5 @@
 # An Easiness and Willingness to Believe
 
-Thomas S. Monson
-
 By Elder Michael T. Ringwood - *Of the Seventy*
 
 *Given in the October session of the 2009 General Conference*
@@ -53,4 +51,3 @@ May we always find it easy to believe His word. May you with easiness declare, a
 
 
 
-#Conversion #Faith #Humility #Obedience

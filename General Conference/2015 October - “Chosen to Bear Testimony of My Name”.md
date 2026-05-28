@@ -1,7 +1,5 @@
 # “Chosen to Bear Testimony of My Name”
 
-Rosemary M. Wixom
-
 By Elder David A. Bednar - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2015 General Conference*
@@ -125,4 +123,3 @@ With all the energy of my soul, I witness the resurrected and living Christ dire
 
 
 
-#Church_Leaders #Church_Organization #Prophets

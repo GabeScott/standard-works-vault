@@ -1,7 +1,5 @@
 # The Still Small Voice
 
-Spencer W. Kimball
-
 By Elder S. Dilworth Young - *Of the First Council of the Seventy*
 
 *Given in the April session of the 1976 General Conference*
@@ -79,4 +77,3 @@ By this means the Prophet Joseph Smith received revelation, as have those who su
 
 
 
-#Commandments #Holy_Ghost #Spirituality

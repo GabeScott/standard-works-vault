@@ -1,7 +1,5 @@
 # Your Personal Influence
 
-Gordon B. Hinckley
-
 By President Thomas S. Monson - *First Counselor in the First Presidency*
 
 *Given in the April session of the 2004 General Conference*
@@ -141,7 +139,3 @@ As His witness, I testify to you that He lives! In His holy name—even Jesus Ch
 
 [^7]: [[D&C 110.4|D&C 110:4]].
 
-
-
-
-#Activation #Home #Jesus_Christ #Leadership #Responsibility

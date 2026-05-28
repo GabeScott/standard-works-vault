@@ -1,7 +1,5 @@
 # The Power of Scripture
 
-Richard G. Scott
-
 By Elder Richard G. Scott - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2011 General Conference*
@@ -119,7 +117,3 @@ May each of us avail ourselves of the wealth of blessings that result from scrip
 
 [^1]: See Gordon B. Hinckley, “A Testimony Vibrant and True,” *Liahona* and *Ensign,* Aug. 2005, 6.
 
-
-
-
-#Book_Of_Mormon #Holy_Ghost #Prophets #Scripture_Study #Scriptures

@@ -1,7 +1,5 @@
 # Eternal Togetherness
 
-Spencer W. Kimball
-
 By Elder Mark E. Petersen - *Of the Council of the Twelve*
 
 *Given in the October session of the 1974 General Conference*
@@ -143,4 +141,3 @@ And that this may be our happy privilege, I earnestly pray in the sacred name of
 
 
 
-#Marriage #Plan_Of_Salvation

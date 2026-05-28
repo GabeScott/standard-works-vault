@@ -1,7 +1,5 @@
 # It Was a Miracle!
 
-Spencer W. Kimball
-
 By Elder Mark E. Petersen - *Of the Council of the Twelve*
 
 *Given in the October session of the 1977 General Conference*
@@ -103,4 +101,3 @@ To this I bear my humble but solemn testimony in the sacred name of the Lord Jes
 
 
 
-#Book_Of_Mormon

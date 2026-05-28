@@ -1,7 +1,5 @@
 # Charity and Learning
 
-Gordon B. Hinckley
-
 By Aileen H. Clyde - *Second Counselor in the Relief Society General Presidency*
 
 *Given in the October session of the 1994 General Conference*
@@ -59,4 +57,3 @@ I testify to you that God lives and is good and his spiritual gifts are availabl
 
 
 
-#Book_Of_Mormon #Charity #Education #Literacy #Media #Success

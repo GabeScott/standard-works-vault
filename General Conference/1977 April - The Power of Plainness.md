@@ -1,7 +1,5 @@
 # The Power of Plainness
 
-Spencer W. Kimball
-
 By Elder Marvin J. Ashton - *Of the Council of the Twelve*
 
 *Given in the April session of the 1977 General Conference*
@@ -73,4 +71,3 @@ We invite mankind everywhere to prayerfully study the truths revealed following 
 
 
 
-#Communication #Testimony #Truth

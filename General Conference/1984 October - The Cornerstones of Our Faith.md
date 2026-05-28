@@ -1,7 +1,5 @@
 # The Cornerstones of Our Faith
 
-Gordon B. Hinckley
-
 By President Gordon B. Hinckley - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 1984 General Conference*
@@ -83,4 +81,3 @@ Of such was the faith of our fathers. Of such is our faith. “Faith of our fath
 
 
 
-#Book_Of_Mormon #Faith #Jesus_Christ #Joseph_Smith #Priesthood

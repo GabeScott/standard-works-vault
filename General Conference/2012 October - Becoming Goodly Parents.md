@@ -1,7 +1,5 @@
 # Becoming Goodly Parents
 
-Thomas S. Monson
-
 By Elder L. Tom Perry - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2012 General Conference*
@@ -87,7 +85,3 @@ God bless you goodly mothers and fathers in Zion. He has entrusted to your care 
 
 [^3]: “The Family: A Proclamation to the World,” *Liahona* and *Ensign,* Nov. 2010, 129.
 
-
-
-
-#Family #Marriage #Parenthood

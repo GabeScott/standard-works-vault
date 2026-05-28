@@ -1,7 +1,5 @@
 # A Message to the Rising Generation
 
-Spencer W. Kimball
-
 By President Ezra Taft Benson - *Of the Council of the Twelve*
 
 *Given in the October session of the 1977 General Conference*
@@ -114,4 +112,3 @@ I pray that you—the young and rising generation—will keep your bodies and mi
 
 
 
-#Character #Morality #Parents #Prayer #Standards #Youth

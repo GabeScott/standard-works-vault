@@ -1,7 +1,5 @@
 # A Mighty Force for Righteousness
 
-Thomas S. Monson
-
 By Ardeth G. Kapp - *Recently Released as Young Women General President*
 
 *Given in the April session of the 1992 General Conference*
@@ -53,4 +51,3 @@ It is through the ordinances and covenants available in the temple that our Fath
 
 
 
-#Covenants #Faith #Temple_Work

@@ -1,7 +1,5 @@
 # Truth Restored
 
-Gordon B. Hinckley
-
 By Elder Richard G. Scott - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2005 General Conference*
@@ -65,7 +63,3 @@ As an Apostle of the Lord Jesus Christ, I solemnly testify that God our Father a
 
 [^5]: See First Presidency letter, July 25, 2005.
 
-
-
-
-#Agency #Apostasy #Atonement #Divine_Nature #Holy_Ghost #Jesus_Christ #Morality #Obedience #Plan_Of_Salvation

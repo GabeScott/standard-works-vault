@@ -1,7 +1,5 @@
 # Christ Is the Light to All Mankind
 
-Gordon B. Hinckley
-
 By President Gordon B. Hinckley - *First Counselor in the First Presidency*
 
 *Given in the October session of the 1991 General Conference*
@@ -23,4 +21,3 @@ Thank you, our prophet dear, and please be assured of our prayers. May our Heave
 
 
 
-#Jesus_Christ #Prophets #Testimony

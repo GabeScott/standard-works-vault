@@ -1,7 +1,5 @@
 # Success Is Gauged by Self-Mastery
 
-Spencer W. Kimball
-
 By President N. Eldon Tanner - *First Counselor in the First Presidency*
 
 *Given in the April session of the 1975 General Conference*
@@ -119,4 +117,3 @@ May we apply the principles of self-mastery and discipline, so as to prove worth
 
 
 
-#Self-Control

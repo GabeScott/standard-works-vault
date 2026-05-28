@@ -1,7 +1,5 @@
 # Watch Over and Strengthen
 
-Gordon B. Hinckley
-
 By Elder Henry B. Eyring - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2000 General Conference*
@@ -75,4 +73,3 @@ I know that God the Father lives. He hears and answers our prayers. I testify th
 
 
 
-#Church_Callings #Faith #Holy_Ghost #Miracles #Morality #Prayer #Responsibility #Service #Sin #Spirituality #Trust

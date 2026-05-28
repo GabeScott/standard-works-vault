@@ -1,7 +1,5 @@
 # The Path to Eternal Glory
 
-Harold B. Lee
-
 By Elder Delbert L. Stapley - *Of the Council of the Twelve*
 
 *Given in the April session of the 1973 General Conference*
@@ -103,4 +101,3 @@ May God bless and guide us aright; may we be blessed with the spiritual strength
 
 
 
-#Obedience #Spirituality

@@ -1,7 +1,5 @@
 # We Are His Children
 
-David A. Bednar
-
 By Elder Christophe G. Giraud-Carrier - *Of the Seventy*
 
 *Given in the October session of the 2023 General Conference*
@@ -97,7 +95,3 @@ I testify that He whom we address as our Father in Heaven is indeed our Father, 
 
 [^14]: “[I’ll Walk with You](https://www.churchofjesuschrist.org/study/manual/childrens-songbook/ill-walk-with-you?lang=eng),” *Children’s Songbook*, 140–41.
 
-
-
-
-#Belonging #Divine_Nature #Love #Ministering #Perspective #Prejudice

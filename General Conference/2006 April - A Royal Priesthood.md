@@ -1,7 +1,5 @@
 # A Royal Priesthood
 
-Robert D. Hales
-
 By President James E. Faust - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 2006 General Conference*
@@ -97,7 +95,3 @@ I testify of the refining, spiritual, comforting, strengthening, and restraining
 
 [^15]: [[Lamentations 4.12|Lamentations 4:12]].
 
-
-
-
-#Priesthood #Responsibility #Testimony

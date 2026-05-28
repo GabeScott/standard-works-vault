@@ -1,7 +1,5 @@
 # Trust in the Lord
 
-Spencer W. Kimball
-
 By Elder Marion D. Hanks - *Assistant to the Council of the Twelve*
 
 *Given in the April session of the 1975 General Conference*
@@ -87,4 +85,3 @@ Our religion is “not weight, it is wings.” It can carry us through the dark 
 
 
 
-#Adversity #Faith

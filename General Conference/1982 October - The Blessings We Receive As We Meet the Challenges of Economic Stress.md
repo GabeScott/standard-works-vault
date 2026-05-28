@@ -1,7 +1,5 @@
 # The Blessings We Receive As We Meet the Challenges of Economic Stress
 
-Spencer W. Kimball
-
 By Elder James E. Faust - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1982 General Conference*
@@ -94,4 +92,3 @@ From the refiner’s fire of economic difficulty may come eternal blessings whic
 
 
 
-#Adversity #Work

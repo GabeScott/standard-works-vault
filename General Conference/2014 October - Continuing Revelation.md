@@ -1,7 +1,5 @@
 # Continuing Revelation
 
-Thomas S. Monson
-
 By President Henry B. Eyring - *First Counselor in the First Presidency*
 
 *Given in the October session of the 2014 General Conference*
@@ -107,7 +105,3 @@ As you listen in this conference to the words of those God has called to speak f
 
 [^6]: Boyd K. Packer, *Ensign,* May 1974, 95.
 
-
-
-
-#Family #Prophets #Revelation

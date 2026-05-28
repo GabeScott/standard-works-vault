@@ -1,7 +1,5 @@
 # What’s the Difference?
 
-Gordon B. Hinckley
-
 By Elder Derek A. Cuthbert - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1985 General Conference*
@@ -73,4 +71,3 @@ Yes, my dear inquiring friend, we will add to the truth you have, for God speaks
 
 
 
-#Church_Organization #Missionary_Work #Restoration

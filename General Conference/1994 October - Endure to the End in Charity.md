@@ -1,7 +1,5 @@
 # Endure to the End in Charity
 
-Gordon B. Hinckley
-
 By Elder Hartman Rector, Jr. - *Emeritus Member of the First Quorum of the Seventy*
 
 *Given in the October session of the 1994 General Conference*
@@ -55,4 +53,3 @@ I am persuaded that only this charity, this pure love of Christ, this love plus 
 
 
 
-#Charity #Conversion #Endurance #Obedience #Repentance #Service

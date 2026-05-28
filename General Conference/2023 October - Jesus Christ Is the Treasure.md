@@ -1,7 +1,5 @@
 # Jesus Christ Is the Treasure
 
-David A. Bednar
-
 By Elder Dale G. Renlund - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2023 General Conference*
@@ -87,7 +85,3 @@ I bear my solemn and sure witness that God, the Eternal Father, is our Heavenly 
 
 [^18]: See “[I Know That My Redeemer Lives](https://www.churchofjesuschrist.org/study/manual/hymns/i-know-that-my-redeemer-lives?lang=eng),” *Hymns*, no. 136.
 
-
-
-
-#Atonement #Jesus_Christ #Repentance #Sacrament #Temples

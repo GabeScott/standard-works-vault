@@ -1,7 +1,5 @@
 # Do Justly, Love Mercy, and Walk Humbly with God
 
-Russell M. Nelson
-
 By Elder Dale G. Renlund - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2020 General Conference*
@@ -123,7 +121,3 @@ When you do these things, you will follow the covenant path and qualify to “dw
 
 [^31]: See [[D&C 11.13|Doctrine and Covenants 11:13]].
 
-
-
-
-#Humility #Mercy #Spirituality

@@ -1,7 +1,5 @@
 # The Divine Gift of Repentance
 
-Richard G. Scott
-
 By Elder D. Todd Christofferson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2011 General Conference*
@@ -87,7 +85,3 @@ I gratefully acknowledge and testify that the incomprehensible suffering, death,
 
 [^4]: Boyd K. Packer, in Conference Report, Oct. 1995, [[1995 October - The Brilliant Morning of Forgiveness.md|21]]; or *Ensign,* Nov. 1995, 18.
 
-
-
-
-#Atonement #Repentance

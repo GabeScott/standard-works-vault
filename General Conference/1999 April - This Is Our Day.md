@@ -1,7 +1,5 @@
 # This Is Our Day
 
-Gordon B. Hinckley
-
 By President James E. Faust - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 1999 General Conference*
@@ -103,7 +101,3 @@ President Gordon B. Hinckley is the prophet for our day and time. He is keenly a
 
 [^22]: [[Psalms 118.23|Ps. 118:23]].
 
-
-
-
-#Atonement #Church_Organization #Covenants #Faith #Honesty #Jesus_Christ #Leadership #Missionary_Work #Morality #Prayer #Preparation #Priesthood #Restoration #Scripture_Study #Spirituality

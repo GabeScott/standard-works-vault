@@ -1,7 +1,5 @@
 # The Sure Word of God
 
-N. Eldon Tanner
-
 By Bishop Vaughn J. Featherstone - *Of the Presiding Bishopric*
 
 *Given in the October session of the 1972 General Conference*
@@ -90,7 +88,7 @@ Now, contrast those two experiences of Alma: one, that he would be banished and 
 
 I believe that the scriptures have every dimension of life that we can cleave unto and find a pattern for living, if we will just go back to the scriptures and study them and learn of them.
 
-Let me tell you the greatest experience I believe I have had in all my readings of the scriptures—and I am sharing something that is very tender with me. I remember the night that I read [[3 Nephi 17.1|3 Nephi, the 17th chapter]]. That is when I discovered the Lord Jesus Christ, my Redeemer, the Lord of lords, the King of kings, my Savior, my personal Savior; and I believe that is where I finally found the description of the Savior as I thought him to be.
+Let me tell you the greatest experience I believe I have had in all my readings of the scriptures—and I am sharing something that is very tender with me. I remember the night that I read [[3 Nephi 17.1|3 Nephi, the 17th chapter]][[3 Nephi 17.2|]][[3 Nephi 17.3|]][[3 Nephi 17.4|]][[3 Nephi 17.5|]][[3 Nephi 17.6|]][[3 Nephi 17.7|]][[3 Nephi 17.8|]][[3 Nephi 17.9|]][[3 Nephi 17.10|]][[3 Nephi 17.11|]][[3 Nephi 17.12|]][[3 Nephi 17.13|]][[3 Nephi 17.14|]][[3 Nephi 17.15|]][[3 Nephi 17.16|]][[3 Nephi 17.17|]][[3 Nephi 17.18|]][[3 Nephi 17.19|]][[3 Nephi 17.20|]][[3 Nephi 17.21|]][[3 Nephi 17.22|]][[3 Nephi 17.23|]][[3 Nephi 17.24|]][[3 Nephi 17.25|]]. That is when I discovered the Lord Jesus Christ, my Redeemer, the Lord of lords, the King of kings, my Savior, my personal Savior; and I believe that is where I finally found the description of the Savior as I thought him to be.
 
 He had been with the Nephite people all the day long, you will recall, and finally said:
 
@@ -124,7 +122,7 @@ And then Jesus wept. He blessed the little children, one by one, and when he had
 
 “And as they looked to behold they cast their eyes towards heaven, and they saw the heavens open, and they saw angels descending out of heaven as it were in the midst of fire; and they came down and encircled those little ones about, … and the angels did minister unto them.
 
-“And the multitude did see and hear and bear record … and they were in number about two thousand and five hundred \[and ONE\] souls” who were in that beautiful experience with the Savior. (See [[3 Nephi 17.1|3 Ne. 17]].)
+“And the multitude did see and hear and bear record … and they were in number about two thousand and five hundred \[and ONE\] souls” who were in that beautiful experience with the Savior. (See [[3 Nephi 17.1|3 Ne. 17]][[3 Nephi 17.2|]][[3 Nephi 17.3|]][[3 Nephi 17.4|]][[3 Nephi 17.5|]][[3 Nephi 17.6|]][[3 Nephi 17.7|]][[3 Nephi 17.8|]][[3 Nephi 17.9|]][[3 Nephi 17.10|]][[3 Nephi 17.11|]][[3 Nephi 17.12|]][[3 Nephi 17.13|]][[3 Nephi 17.14|]][[3 Nephi 17.15|]][[3 Nephi 17.16|]][[3 Nephi 17.17|]][[3 Nephi 17.18|]][[3 Nephi 17.19|]][[3 Nephi 17.20|]][[3 Nephi 17.21|]][[3 Nephi 17.22|]][[3 Nephi 17.23|]][[3 Nephi 17.24|]][[3 Nephi 17.25|]].)
 
 I want you to know I was there. I wouldn’t know any more surely if I had been there than I would know having read this book. And I promise you that vicariously every single young man in the Church can read the scriptures and have that same experience with all of the prophets. And you can gain your own testimony, and it need not be pinned on someone else’s coat sleeve. You can actually know. You can know that we have a modern prophet. Read his words. Listen to him.
 
@@ -133,4 +131,3 @@ I want you to know that I have had burned into my soul like nothing else in my l
 
 
 
-#Faith #Scriptures #Testimony #Youth

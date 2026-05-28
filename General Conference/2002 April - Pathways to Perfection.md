@@ -1,7 +1,5 @@
 # Pathways to Perfection
 
-Gordon B. Hinckley
-
 By President Thomas S. Monson - *First Counselor in the First Presidency*
 
 *Given in the April session of the 2002 General Conference*
@@ -155,7 +153,3 @@ On this Easter eve, may our thoughts turn to Him who atoned for our sins, who sh
 
 [^15]: Samuel Medley, “I Know That My Redeemer Lives,” *Hymns,* no. 136.
 
-
-
-
-#Agency #Discipleship #Education #Gratitude #Joy #Obedience #Work

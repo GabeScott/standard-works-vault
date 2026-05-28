@@ -1,7 +1,5 @@
 # Remember Thy Suffering Saints, O Our God
 
-Russell M. Nelson
-
 By Elder Anthony D. Perkins - *Of the Seventy*
 
 *Given in the October session of the 2021 General Conference*
@@ -123,7 +121,3 @@ For all who suffer, I pray, “May God grant unto you that your burdens may be l
 
 [^27]: [[Alma 33.23|Alma 33:23]].
 
-
-
-
-#Adversity #Covenants #Hope #Jesus_Christ #Joy

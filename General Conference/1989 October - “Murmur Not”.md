@@ -1,7 +1,5 @@
 # “Murmur Not”
 
-Ezra Taft Benson
-
 By Elder Neal A. Maxwell - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1989 General Conference*
@@ -14,7 +12,7 @@ Murmuring is defined as a half-suppressed resentment or muttered complaint. We a
 
 However, just as “a yawn \[can be\] a silent shout,”[^1] so murmuring can be much more than muted muttering. The real “Addressee” of some of our murmuring is clearly the Lord, as when the people complained against Moses. (See [[Exodus 16.8|Ex. 16:8]]; [[1 Nephi 16.20|1 Ne. 16:20]].) At least Tevye honestly acknowledged whom he addressed.
 
-Murmuring seems to come so naturally to the natural man. It crosses the scriptural spectrum of recorded complaints. We need bread. We need water. (See [[Numbers 21.5|Num. 21:5]].) The needed military reinforcements did not arrive. (See [[Alma 60.1|Alma 60]].) “Why did we ever leave Egypt?” (See [[Numbers 11.20|Num. 11:20]].) “Why did we ever leave Jerusalem?” (See [[1 Nephi 2.11|1 Ne. 2:11]].) Some, perhaps understandably, murmured over persecution by unbelievers, and others even murmured over what the name of Christ’s church should be. (See [[Mosiah 27.1|Mosiah 27:1]]; [[3 Nephi 27.3|3 Ne. 27:3–4]][[3 Nephi 27.4|]].) Most ironically, the coming forth of more scripture from God was to cause murmuring. (See [[2 Nephi 29.8|2 Ne. 29:8]].)
+Murmuring seems to come so naturally to the natural man. It crosses the scriptural spectrum of recorded complaints. We need bread. We need water. (See [[Numbers 21.5|Num. 21:5]].) The needed military reinforcements did not arrive. (See [[Alma 60.1|Alma 60]][[Alma 60.2|]][[Alma 60.3|]][[Alma 60.4|]][[Alma 60.5|]][[Alma 60.6|]][[Alma 60.7|]][[Alma 60.8|]][[Alma 60.9|]][[Alma 60.10|]][[Alma 60.11|]][[Alma 60.12|]][[Alma 60.13|]][[Alma 60.14|]][[Alma 60.15|]][[Alma 60.16|]][[Alma 60.17|]][[Alma 60.18|]][[Alma 60.19|]][[Alma 60.20|]][[Alma 60.21|]][[Alma 60.22|]][[Alma 60.23|]][[Alma 60.24|]][[Alma 60.25|]][[Alma 60.26|]][[Alma 60.27|]][[Alma 60.28|]][[Alma 60.29|]][[Alma 60.30|]][[Alma 60.31|]][[Alma 60.32|]][[Alma 60.33|]][[Alma 60.34|]][[Alma 60.35|]][[Alma 60.36|]].) “Why did we ever leave Egypt?” (See [[Numbers 11.20|Num. 11:20]].) “Why did we ever leave Jerusalem?” (See [[1 Nephi 2.11|1 Ne. 2:11]].) Some, perhaps understandably, murmured over persecution by unbelievers, and others even murmured over what the name of Christ’s church should be. (See [[Mosiah 27.1|Mosiah 27:1]]; [[3 Nephi 27.3|3 Ne. 27:3–4]][[3 Nephi 27.4|]].) Most ironically, the coming forth of more scripture from God was to cause murmuring. (See [[2 Nephi 29.8|2 Ne. 29:8]].)
 
 An early scriptural instance of murmuring involved Cain’s offering to the Lord, illustrating how our intentions are at least as important as our deeds. (See [[Moses 5.20|Moses 5:20–21]][[Moses 5.21|]]). Cain was “wroth” that Abel’s offering was acceptable but not his. Sometimes, brothers and sisters, we, too, worry if someone else seems to be more favored than we. Worse still, we want to be accepted of the Lord—but on our terms, not His!
 
@@ -107,7 +105,3 @@ Elisha’s counsel can help Church members today to silence our murmuring. Regar
 
 [^2]: *Testimonies of the Divinity of The Church of Jesus Christ of Latter-day Saints by Its Leaders,* comp. Joseph E. Cardon and Samuel O. Bennion, Independence, Mo.: Zion’s Printing and Publishing Co., 1930, pp. 103, 105.
 
-
-
-
-#Adversity #Criticism #Obedience

@@ -1,7 +1,5 @@
 # A Vision of the Law of the Fast
 
-Spencer W. Kimball
-
 By Bishop Victor L. Brown - *Presiding Bishop*
 
 *Given in the October session of the 1977 General Conference*
@@ -89,4 +87,3 @@ May we, the Priesthood and Relief Society officers of the Church throughout the 
 
 
 
-#Fasting

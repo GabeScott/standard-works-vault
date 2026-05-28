@@ -1,7 +1,5 @@
 # By Union of Feeling We Obtain Power with God
 
-Russell M. Nelson
-
 By Sharon Eubank - *First Counselor in the Relief Society General Presidency*
 
 *Given in the October session of the 2020 General Conference*
@@ -54,7 +52,7 @@ Against towering obstacles, this team found perfect swing and won. The Olympic g
 
 ## Clear Away the Bad as Fast as the Good Can Grow
 
-In the exquisite allegory in [[Jacob 5.1|Jacob 5]], the Lord of the vineyard planted a good tree in good ground, but it became corrupted over time and brought forth wild fruit. The Lord of the vineyard says eight times: “It grieveth me \[to\] lose this tree.”
+In the exquisite allegory in [[Jacob 5.1|Jacob 5]][[Jacob 5.2|]][[Jacob 5.3|]][[Jacob 5.4|]][[Jacob 5.5|]][[Jacob 5.6|]][[Jacob 5.7|]][[Jacob 5.8|]][[Jacob 5.9|]][[Jacob 5.10|]][[Jacob 5.11|]][[Jacob 5.12|]][[Jacob 5.13|]][[Jacob 5.14|]][[Jacob 5.15|]][[Jacob 5.16|]][[Jacob 5.17|]][[Jacob 5.18|]][[Jacob 5.19|]][[Jacob 5.20|]][[Jacob 5.21|]][[Jacob 5.22|]][[Jacob 5.23|]][[Jacob 5.24|]][[Jacob 5.25|]][[Jacob 5.26|]][[Jacob 5.27|]][[Jacob 5.28|]][[Jacob 5.29|]][[Jacob 5.30|]][[Jacob 5.31|]][[Jacob 5.32|]][[Jacob 5.33|]][[Jacob 5.34|]][[Jacob 5.35|]][[Jacob 5.36|]][[Jacob 5.37|]][[Jacob 5.38|]][[Jacob 5.39|]][[Jacob 5.40|]][[Jacob 5.41|]][[Jacob 5.42|]][[Jacob 5.43|]][[Jacob 5.44|]][[Jacob 5.45|]][[Jacob 5.46|]][[Jacob 5.47|]][[Jacob 5.48|]][[Jacob 5.49|]][[Jacob 5.50|]][[Jacob 5.51|]][[Jacob 5.52|]][[Jacob 5.53|]][[Jacob 5.54|]][[Jacob 5.55|]][[Jacob 5.56|]][[Jacob 5.57|]][[Jacob 5.58|]][[Jacob 5.59|]][[Jacob 5.60|]][[Jacob 5.61|]][[Jacob 5.62|]][[Jacob 5.63|]][[Jacob 5.64|]][[Jacob 5.65|]][[Jacob 5.66|]][[Jacob 5.67|]][[Jacob 5.68|]][[Jacob 5.69|]][[Jacob 5.70|]][[Jacob 5.71|]][[Jacob 5.72|]][[Jacob 5.73|]][[Jacob 5.74|]][[Jacob 5.75|]][[Jacob 5.76|]][[Jacob 5.77|]], the Lord of the vineyard planted a good tree in good ground, but it became corrupted over time and brought forth wild fruit. The Lord of the vineyard says eight times: “It grieveth me \[to\] lose this tree.”
 
 The servant says to the Lord of the vineyard: “Spare \[the tree\] a little longer. And the Lord said: Yea, I will spare it a little longer.”[^5]
 
@@ -62,7 +60,7 @@ And then comes instruction that can be applied to all of us trying to dig about 
 
 Unity doesn’t magically happen; it takes work. It’s messy, sometimes uncomfortable, and happens gradually when we clear away the bad as fast as the good can grow.
 
-We are never alone in our efforts to create unity. [[Jacob 5.1|Jacob 5]] continues, “The servants did go and labor with their mights; and the Lord of the vineyard labored also with them.”[^7]
+We are never alone in our efforts to create unity. [[Jacob 5.1|Jacob 5]][[Jacob 5.2|]][[Jacob 5.3|]][[Jacob 5.4|]][[Jacob 5.5|]][[Jacob 5.6|]][[Jacob 5.7|]][[Jacob 5.8|]][[Jacob 5.9|]][[Jacob 5.10|]][[Jacob 5.11|]][[Jacob 5.12|]][[Jacob 5.13|]][[Jacob 5.14|]][[Jacob 5.15|]][[Jacob 5.16|]][[Jacob 5.17|]][[Jacob 5.18|]][[Jacob 5.19|]][[Jacob 5.20|]][[Jacob 5.21|]][[Jacob 5.22|]][[Jacob 5.23|]][[Jacob 5.24|]][[Jacob 5.25|]][[Jacob 5.26|]][[Jacob 5.27|]][[Jacob 5.28|]][[Jacob 5.29|]][[Jacob 5.30|]][[Jacob 5.31|]][[Jacob 5.32|]][[Jacob 5.33|]][[Jacob 5.34|]][[Jacob 5.35|]][[Jacob 5.36|]][[Jacob 5.37|]][[Jacob 5.38|]][[Jacob 5.39|]][[Jacob 5.40|]][[Jacob 5.41|]][[Jacob 5.42|]][[Jacob 5.43|]][[Jacob 5.44|]][[Jacob 5.45|]][[Jacob 5.46|]][[Jacob 5.47|]][[Jacob 5.48|]][[Jacob 5.49|]][[Jacob 5.50|]][[Jacob 5.51|]][[Jacob 5.52|]][[Jacob 5.53|]][[Jacob 5.54|]][[Jacob 5.55|]][[Jacob 5.56|]][[Jacob 5.57|]][[Jacob 5.58|]][[Jacob 5.59|]][[Jacob 5.60|]][[Jacob 5.61|]][[Jacob 5.62|]][[Jacob 5.63|]][[Jacob 5.64|]][[Jacob 5.65|]][[Jacob 5.66|]][[Jacob 5.67|]][[Jacob 5.68|]][[Jacob 5.69|]][[Jacob 5.70|]][[Jacob 5.71|]][[Jacob 5.72|]][[Jacob 5.73|]][[Jacob 5.74|]][[Jacob 5.75|]][[Jacob 5.76|]][[Jacob 5.77|]] continues, “The servants did go and labor with their mights; and the Lord of the vineyard labored also with them.”[^7]
 
 Each of us is going to have deeply wounding experiences, things that should never happen. Each of us will also, at various times, allow pride and loftiness to corrupt the fruit we bear. But Jesus Christ is our Savior in all things. His power reaches to the very bottom and is reliably there for us when we call on Him. We all beg for mercy for our sins and failures. He freely gives it. And He asks us if we can give that same mercy and understanding to each other.
 
@@ -105,7 +103,3 @@ May we draw on this prophetic blessing and use our individual and collective eff
 
 [^11]: [[John 17.21|John 17:21]].
 
-
-
-
-#Diversity #Mercy #Prejudice #Unity

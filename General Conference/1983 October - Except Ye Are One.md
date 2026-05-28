@@ -1,7 +1,5 @@
 # Except Ye Are One
 
-Gordon B. Hinckley
-
 By President Gordon B. Hinckley - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 1983 General Conference*
@@ -39,4 +37,3 @@ And so, as we open this great conference, from which there will be radiated acro
 
 
 
-#Love #Unity

@@ -1,7 +1,5 @@
 # Our Solemn Responsibilities
 
-Gordon B. Hinckley
-
 By President Gordon B. Hinckley - *First Counselor in the First Presidency*
 
 *Given in the October session of the 1991 General Conference*
@@ -101,4 +99,3 @@ It takes effort. It takes self-control. It takes unselfishness. It requires the 
 
 
 
-#Abuse #Church_Growth #Example #Love #Marriage #Repentance

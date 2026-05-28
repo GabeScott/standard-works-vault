@@ -1,7 +1,5 @@
 # Tithing: A Test of Faith with Eternal Blessings
 
-Gordon B. Hinckley
-
 By Elder Robert D. Hales - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2002 General Conference*
@@ -125,7 +123,3 @@ I testify that the Lord Jesus Christ sacrificed His life to bring this salvation
 
 [^21]: “A Poor Wayfaring Man of Grief,” *Hymns,* no. 29.
 
-
-
-
-#Blessings #Faith #Obedience #Tithing

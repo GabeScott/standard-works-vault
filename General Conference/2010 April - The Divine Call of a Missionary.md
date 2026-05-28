@@ -1,7 +1,5 @@
 # The Divine Call of a Missionary
 
-Thomas S. Monson
-
 By Elder Ronald A. Rasband - *Of the Presidency of the Seventy*
 
 *Given in the April session of the 2010 General Conference*
@@ -87,7 +85,3 @@ At this time in your life, a mission call from the Lord, my young friends, is th
 
 [^7]: [[D&C 128.22|Doctrine and Covenants 128:22]].
 
-
-
-
-#Missionary_Work #Preparation #Priesthood #Spirituality

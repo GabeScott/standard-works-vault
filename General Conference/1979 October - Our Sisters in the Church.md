@@ -1,7 +1,5 @@
 # Our Sisters in the Church
 
-Spencer W. Kimball
-
 By President Spencer W. Kimball - *President of the Church*
 
 *Given in the October session of the 1979 General Conference*
@@ -47,4 +45,3 @@ I know that God lives, my brethren (it is a great joy to say that many, many tim
 
 
 
-#Women

@@ -1,7 +1,5 @@
 # Inspiring Music—Worthy Thoughts
 
-Harold B. Lee
-
 By Elder Boyd K. Packer - *Of the Council of the Twelve*
 
 *Given in the October session of the 1973 General Conference*
@@ -161,4 +159,3 @@ I bear witness that God is our Father, that we are His children, that He loves u
 
 
 
-#Music #Spirituality #Temptation

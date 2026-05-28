@@ -1,7 +1,5 @@
 # An Eternal Hope in Christ
 
-Spencer W. Kimball
-
 By President Spencer W. Kimball - *President of the Church*
 
 *Given in the October session of the 1978 General Conference*
@@ -139,4 +137,3 @@ In the name of Jesus Christ, amen.
 
 
 
-#Atonement #Plan_Of_Salvation

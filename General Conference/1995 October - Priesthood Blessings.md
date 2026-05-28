@@ -1,7 +1,5 @@
 # Priesthood Blessings
 
-Gordon B. Hinckley
-
 By President James E. Faust - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 1995 General Conference*
@@ -99,7 +97,3 @@ In so doing, our understanding, our faith, and our testimony in the Lord Jesus C
 
 [^11]: [[D&C 88.33|D&C 88:33]].
 
-
-
-
-#Blessings #Family #God_The_Father #Jesus_Christ #Patriarchal_Blessings #Priesthood

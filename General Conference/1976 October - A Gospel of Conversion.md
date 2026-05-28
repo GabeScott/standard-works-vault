@@ -1,7 +1,5 @@
 # A Gospel of Conversion
 
-Spencer W. Kimball
-
 By Elder Hartman Rector, Jr. - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1976 General Conference*
@@ -73,4 +71,3 @@ Surely the gospel does make “good men better and women and children better tha
 
 
 
-#Conversion #Spirituality

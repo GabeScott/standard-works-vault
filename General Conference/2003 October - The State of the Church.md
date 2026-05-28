@@ -1,7 +1,5 @@
 # The State of the Church
 
-Gordon B. Hinckley
-
 By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the October session of the 2003 General Conference*
@@ -109,4 +107,3 @@ Now we have a special treat. I would like to ask Brother David B. Haight to come
 
 
 
-#Church_Growth #Missionary_Work #Service

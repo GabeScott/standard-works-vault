@@ -1,7 +1,5 @@
 # God Is at the Helm
 
-Rosemary M. Wixom
-
 By Elder M. Russell Ballard - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2015 General Conference*
@@ -97,7 +95,3 @@ Hold tight, brothers and sisters, and sail on within the glorious ship, The Chur
 
 [^7]: See [[Isaiah 58.13|Isaiah 58:13–14]][[Isaiah 58.14|]].
 
-
-
-
-#Atonement #Church_Leaders #Death #Divine_Nature #Family #Jesus_Christ #Plan_Of_Salvation #Prophets #Sabbath #Testimony #Truth

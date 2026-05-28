@@ -1,7 +1,5 @@
 # “The Great Imitator”
 
-Ezra Taft Benson
-
 By Elder James E. Faust - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1987 General Conference*
@@ -81,4 +79,3 @@ I pray that, through the spreading of righteousness, the evil hands of the destr
 
 
 
-#Satan #Temptation

@@ -1,7 +1,5 @@
 # Don’t Leave for Tomorrow What You Can Do Today
 
-Gordon B. Hinckley
-
 By Elder Claudio R. M. Costa - *Of the Presidency of the Seventy*
 
 *Given in the October session of the 2007 General Conference*
@@ -106,7 +104,3 @@ Let us express our love to our spouse and children and our brothers and sisters 
 
 [^10]: See www.heartwhispers.net; printed with permission.
 
-
-
-
-#Family #Love #Teaching

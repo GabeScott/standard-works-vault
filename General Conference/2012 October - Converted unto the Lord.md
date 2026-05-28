@@ -1,7 +1,5 @@
 # Converted unto the Lord
 
-Thomas S. Monson
-
 By Elder David A. Bednar - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2012 General Conference*
@@ -115,4 +113,3 @@ I promise that as we come to a knowledge of the truth and are converted unto the
 
 
 
-#Conversion #Testimony

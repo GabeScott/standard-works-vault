@@ -1,7 +1,5 @@
 # The Straight and Narrow Way
 
-Gordon B. Hinckley
-
 By Elder Joseph B. Wirthlin - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1990 General Conference*
@@ -107,4 +105,3 @@ I bear solemn testimony that Jesus is the Holy One of Israel, our Savior, and ou
 
 
 
-#Morality #Obedience #Prayer #Pride #Prophets #Scriptures #Service #Temptation #Worldliness

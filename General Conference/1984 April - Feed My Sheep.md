@@ -1,7 +1,5 @@
 # Feed My Sheep
 
-Gordon B. Hinckley
-
 By Elder Boyd K. Packer - *Of the Quorum of the Twelve*
 
 *Given in the April session of the 1984 General Conference*
@@ -103,4 +101,3 @@ We have the fullness of the everlasting gospel. We have the obligation to share 
 
 
 
-#Missionary_Work

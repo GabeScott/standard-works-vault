@@ -1,7 +1,5 @@
 # The Golden Years
 
-Gordon B. Hinckley
-
 By Elder Robert L. Backman - *Emeritus Member of the Seventy*
 
 *Given in the October session of the 1992 General Conference*
@@ -81,4 +79,3 @@ My beloved Brethren, my dear wife and I are still prepared to go wherever you wa
 
 
 
-#Elderly #Missionary_Work #Service

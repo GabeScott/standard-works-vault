@@ -1,7 +1,5 @@
 # Worship through Music
 
-Gordon B. Hinckley
-
 By Elder Dallin H. Oaks - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1994 General Conference*
@@ -110,4 +108,3 @@ We who have “felt to sing the song of redeeming love” ([[Alma 5.26|Alma 5:26
 
 
 
-#Children #Disabilities #Music #Reverence #Scriptures #Temples #Worship

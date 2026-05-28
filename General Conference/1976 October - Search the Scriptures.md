@@ -1,7 +1,5 @@
 # Search the Scriptures
 
-Spencer W. Kimball
-
 By Elder Henry D. Taylor - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1976 General Conference*
@@ -49,4 +47,3 @@ I bear solemn testimony that inspired men are leading the Church today. Let us h
 
 
 
-#Scriptures

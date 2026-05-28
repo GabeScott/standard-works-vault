@@ -1,7 +1,5 @@
 # Gifts
 
-Thomas S. Monson
-
 By President Thomas S. Monson - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 1993 General Conference*
@@ -175,7 +173,3 @@ May we give generously to Him, as He has so abundantly given to us, by living an
 
 [^21]: [[2 Nephi 31.20|2 Ne. 31:20–21]][[2 Nephi 31.21|]].
 
-
-
-
-#Gratitude #Love #Peace #Spirituality

@@ -1,7 +1,5 @@
 # The Spirit of Elijah
 
-Gordon B. Hinckley
-
 By Elder Russell M. Nelson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1994 General Conference*
@@ -199,7 +197,3 @@ No mortal mind could have conceived this divine work. It is evidence of the rest
 
 [^41]: [[D&C 128.24|D&C 128:24]].
 
-
-
-
-#Agency #Family_History #Ordinances #Temple_Work

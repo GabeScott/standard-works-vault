@@ -1,7 +1,5 @@
 # The Kingdom Rolls Forth in South America
 
-Ezra Taft Benson
-
 By Elder M. Russell Ballard - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1986 General Conference*
@@ -87,4 +85,3 @@ May the Lord bless us, my brothers and sisters, in doing his work, is my prayer 
 
 
 
-#Missionary_Work #Quorum_Of_The_Twelve_Apostles

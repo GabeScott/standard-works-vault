@@ -1,7 +1,5 @@
 # We Are Not Alone
 
-Gordon B. Hinckley
-
 By Sheri L. Dew - *Second Counselor in the Relief Society General Presidency*
 
 *Given in the October session of the 1998 General Conference*
@@ -51,4 +49,3 @@ I know that God is our Father, that Jesus Christ is our Redeemer, and that They 
 
 
 
-#Adversity #Church_Membership #Faith #Holy_Ghost #Honesty #Jesus_Christ #Priesthood #Relief_Society #Satan #Scriptures #Women

@@ -1,7 +1,5 @@
 # Foundations of Faith
 
-Bonnie H. Cordon
-
 By Elder Quentin L. Cook - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2017 General Conference*
@@ -143,7 +141,3 @@ I am grateful for the fortification of the foundations of faith that has come fr
 
 [^24]: [[Helaman 5.12|Helaman 5:12]].
 
-
-
-
-#Adversity #Faith #Holy_Ghost #Jesus_Christ #Joseph_Smith

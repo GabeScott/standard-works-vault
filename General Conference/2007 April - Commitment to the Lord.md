@@ -1,7 +1,5 @@
 # Commitment to the Lord
 
-Thomas S. Monson
-
 By Elder John B. Dickson - *Of the Seventy*
 
 *Given in the April session of the 2007 General Conference*
@@ -43,4 +41,3 @@ As you commit now to do the will of the Lord, He will help and strengthen you. Y
 
 
 
-#Commitment #Obedience #Standards #Word_Of_Wisdom #Youth

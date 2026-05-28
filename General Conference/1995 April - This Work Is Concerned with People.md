@@ -1,7 +1,5 @@
 # This Work Is Concerned with People
 
-Thomas S. Monson
-
 By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the April session of the 1995 General Conference*
@@ -71,4 +69,3 @@ Jesus is the Christ, the promised Messiah, who came to earth in the most humble 
 
 
 
-#Agency #Church_Leaders #Church_Organization #Individual_Worth #Jesus_Christ #Priesthood

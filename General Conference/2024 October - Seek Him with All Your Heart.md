@@ -1,7 +1,5 @@
 # Seek Him with All Your Heart
 
-Henry B. Eyring
-
 By Bishop L. Todd Budge - *Second Counselor in the Presiding Bishopric*
 
 *Given in the October session of the 2024 General Conference*
@@ -137,7 +135,3 @@ I testify that this promise is true. In the name of Jesus Christ, amen.
 
 [^31]: [[Jeremiah 29.13|Jeremiah 29:13]]; see also [[Lamentations 3.25|Lamentations 3:25]].
 
-
-
-
-#Listening #Prayer #Worship

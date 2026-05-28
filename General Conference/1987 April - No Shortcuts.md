@@ -1,7 +1,5 @@
 # No Shortcuts
 
-Ezra Taft Benson
-
 By Elder Robert L. Simpson - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1987 General Conference*
@@ -73,4 +71,3 @@ O youth of the noble birthright, you young men of a royal priesthood, become a m
 
 
 
-#Priesthood

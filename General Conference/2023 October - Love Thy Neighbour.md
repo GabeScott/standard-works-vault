@@ -1,7 +1,5 @@
 # Love Thy Neighbour
 
-David A. Bednar
-
 By Elder Ian S. Ardern - *Of the Seventy*
 
 *Given in the October session of the 2023 General Conference*
@@ -63,4 +61,3 @@ May we be forever looking to the well-being of others and show in word and deed 
 
 
 
-#Compassion #Humanitarian_Aid #Love #Neighbors #Poverty

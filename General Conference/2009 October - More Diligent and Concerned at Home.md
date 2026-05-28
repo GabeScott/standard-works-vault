@@ -1,7 +1,5 @@
 # More Diligent and Concerned at Home
 
-Thomas S. Monson
-
 By Elder David A. Bednar - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2009 General Conference*
@@ -87,4 +85,3 @@ In these important pursuits we will never be left alone. Our Heavenly Father and
 
 
 
-#Family #Home #Love #Testimony

@@ -1,7 +1,5 @@
 # Have We Not Reason to Rejoice?
 
-Gordon B. Hinckley
-
 By Elder Dieter F. Uchtdorf - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2007 General Conference*
@@ -96,4 +94,3 @@ Of this I bear witness with all my heart and mind in the sacred name of Jesus Ch
 
 
 
-#Church_Membership #Endurance #Gratitude #Joy

@@ -1,7 +1,5 @@
 # “We Believe in Being Honest”
 
-Spencer W. Kimball
-
 By Elder Mark E. Petersen - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1982 General Conference*
@@ -151,4 +149,3 @@ Humble obedience is the thing. It alone can save us. To this I testify, in the s
 
 
 
-#Honesty #Obedience

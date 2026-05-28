@@ -1,7 +1,5 @@
 # With All the Feeling of a Tender Parent: A Message of Hope for Families
 
-Gordon B. Hinckley
-
 By Elder Robert D. Hales - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2004 General Conference*
@@ -149,7 +147,3 @@ May we gather our loved ones around us, “gird up \[our\] loins; \[and\] fresh 
 
 [^22]: In Conference Report, Apr. 1929, 110.
 
-
-
-
-#Children #Faith #Family #Parenthood #Scripture_Study #Teaching

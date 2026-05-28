@@ -1,7 +1,5 @@
 # Confidence in the Presence of God
 
-Dallin H. Oaks
-
 By President Russell M. Nelson - *President of The Church of Jesus Christ of Latter-day Saints*
 
 *Given in the April session of the 2025 General Conference*
@@ -115,7 +113,3 @@ I testify that Jesus Christ, the Redeemer of Israel, leads this, His Church. He 
 
 [^15]: We may experience what King Benjamin’s people did: “They were filled with joy, having received a remission of their sins, and having peace of conscience, because of the exceeding faith which they had in Jesus Christ” ([[Mosiah 4.3|Mosiah 4:3]]).
 
-
-
-
-#Charity #Confidence #Peacemaking #Temples #Virtue

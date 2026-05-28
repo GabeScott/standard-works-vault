@@ -1,7 +1,5 @@
 # A Challenge to the Priesthood
 
-Wilford G. Edling
-
 By Bishop Vaughn J. Featherstone - *Of the Presiding Bishopric*
 
 *Given in the April session of the 1972 General Conference*
@@ -47,4 +45,3 @@ During those twenty years I have watched our beloved prophet and the Council of 
 
 
 
-#Priesthood #Prophets #Youth

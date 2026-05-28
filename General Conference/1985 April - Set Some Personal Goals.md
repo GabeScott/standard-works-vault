@@ -1,7 +1,5 @@
 # Set Some Personal Goals
 
-Gordon B. Hinckley
-
 By President Spencer W. Kimball - *President of the Church*
 
 *Given in the April session of the 1985 General Conference*
@@ -67,4 +65,3 @@ By President Spencer W. Kimball - *President of the Church*
 
 
 
-#Goals

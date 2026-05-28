@@ -1,7 +1,5 @@
 # Children
 
-Gordon B. Hinckley
-
 By President Boyd K. Packer - *Acting President of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2002 General Conference*
@@ -113,4 +111,3 @@ I bear witness that the gospel is true, and the power of it is to bless little c
 
 
 
-#Children #Love #Safety #Teaching

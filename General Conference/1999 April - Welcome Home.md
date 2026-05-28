@@ -1,7 +1,5 @@
 # Welcome Home
 
-Gordon B. Hinckley
-
 By Bishop Keith B. McMullin - *Second Counselor in the Presiding Bishopric*
 
 *Given in the April session of the 1999 General Conference*
@@ -83,4 +81,3 @@ In the name of Jesus Christ, amen.
 
 
 
-#Adversity #Agency #Jesus_Christ #Justice #Mercy #Plan_Of_Salvation #Repentance #Sin

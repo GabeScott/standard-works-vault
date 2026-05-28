@@ -1,7 +1,5 @@
 # Today—A Day of Eternity
 
-Gordon B. Hinckley
-
 By Elder George I. Cannon - *Released Member of the Seventy*
 
 *Given in the October session of the 1991 General Conference*
@@ -101,4 +99,3 @@ Above all, I express my gratitude and love to my Savior, Jesus Christ. He is the
 
 
 
-#Faith #Honesty #Joy #Repentance #Self-Esteem

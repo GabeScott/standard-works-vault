@@ -1,7 +1,5 @@
 # “Walk with Me”
 
-Bonnie H. Cordon
-
 By President Henry B. Eyring - *First Counselor in the First Presidency*
 
 *Given in the April session of the 2017 General Conference*
@@ -75,4 +73,3 @@ I give you my solemn witness that Jesus is the Christ, our resurrected Lord. I b
 
 
 
-#Jesus_Christ #Priesthood #Service

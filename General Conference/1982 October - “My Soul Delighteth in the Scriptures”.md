@@ -1,7 +1,5 @@
 # “My Soul Delighteth in the Scriptures”
 
-Spencer W. Kimball
-
 By Bishop J. Richard Clarke - *Second Counselor in the Presiding Bishopric*
 
 *Given in the October session of the 1982 General Conference*
@@ -81,4 +79,3 @@ To this I add my witness. The holy scriptures are the word of God. If we are to 
 
 
 
-#Scriptures

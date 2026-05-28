@@ -1,7 +1,5 @@
 # Seven Events of Great Consequence
 
-Spencer W. Kimball
-
 By Elder J. Thomas Fyans - *Of the Presidency of the First Quorum of the Seventy*
 
 *Given in the October session of the 1980 General Conference*
@@ -99,4 +97,3 @@ I raise my voice in solemn testimony that these earth-and-heaven encompassing ev
 
 
 
-#Restoration

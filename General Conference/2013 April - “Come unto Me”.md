@@ -1,7 +1,5 @@
 # “Come unto Me”
 
-Thomas S. Monson
-
 By President Henry B. Eyring - *First Counselor in the First Presidency*
 
 *Given in the April session of the 2013 General Conference*
@@ -171,7 +169,3 @@ This is the true Church of Jesus Christ. Only in the priesthood keys held by Pre
 
 [^19]: [[Matthew 25.21|Matthew 25:21]].
 
-
-
-
-#Jesus_Christ #Service

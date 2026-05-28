@@ -1,7 +1,5 @@
 # Testimony as a Process
 
-Thomas S. Monson
-
 By Elder Carlos A. Godoy - *Of the Seventy*
 
 *Given in the October session of the 2008 General Conference*
@@ -49,4 +47,3 @@ The Book of Mormon is the word of God, as well as the Bible, and it is another t
 
 
 
-#Holy_Ghost #Testimony

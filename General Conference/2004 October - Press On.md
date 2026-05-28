@@ -1,7 +1,5 @@
 # Press On
 
-Gordon B. Hinckley
-
 By Elder Joseph B. Wirthlin - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2004 General Conference*
@@ -147,7 +145,3 @@ That we may do so this day and forever is my prayer, in the name of Jesus Christ
 
 [^17]: See [[Romans 8.17|Romans 8:17]].
 
-
-
-
-#Endurance #Humility #Media #Pride #Repentance #Testimony #Worldliness

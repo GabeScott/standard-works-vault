@@ -1,7 +1,5 @@
 # Organize Yourselves
 
-Spencer W. Kimball
-
 By Marian R. Boyer - *First Counselor in the Relief Society General Presidency*
 
 *Given in the October session of the 1980 General Conference*
@@ -47,4 +45,3 @@ May we make our homes havens of peace and happiness where all enjoy being togeth
 
 
 
-#Home #Relief_Society

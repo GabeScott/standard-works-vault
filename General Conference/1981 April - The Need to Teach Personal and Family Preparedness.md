@@ -1,7 +1,5 @@
 # The Need to Teach Personal and Family Preparedness
 
-Marion G. Romney
-
 By Elder L. Tom Perry - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1981 General Conference*
@@ -73,4 +71,3 @@ God grant us to see what must be done in our own wards and stakes, I humbly pray
 
 
 
-#Preparation #Self-Reliance

@@ -1,7 +1,5 @@
 # Rearing Children in a Polluted Environment
 
-Gordon B. Hinckley
-
 By Elder Joe J. Christensen - *Of the Presidency of the Seventy*
 
 *Given in the October session of the 1993 General Conference*
@@ -95,4 +93,3 @@ Of this I sincerely testify in the name of Jesus the Christ, amen.
 
 
 
-#Family #Morality #Spirituality

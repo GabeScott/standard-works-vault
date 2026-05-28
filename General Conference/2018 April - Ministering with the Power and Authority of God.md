@@ -1,7 +1,5 @@
 # Ministering with the Power and Authority of God
 
-Henry B. Eyring
-
 By President Russell M. Nelson - *President of the Church*
 
 *Given in the April session of the 2018 General Conference*
@@ -87,7 +85,3 @@ Now, brethren, will you please remain standing and join with our chorus in singi
 
 [^13]: “Rise Up, O Men of God,” *Hymns,* no. 324.
 
-
-
-
-#Activation #Ministering #Priesthood #Priesthood_Blessings #Service

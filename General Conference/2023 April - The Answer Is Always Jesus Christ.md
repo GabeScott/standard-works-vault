@@ -1,7 +1,5 @@
 # The Answer Is Always Jesus Christ
 
-Gary E. Stevenson
-
 By President Russell M. Nelson - *President of The Church of Jesus Christ of Latter-day Saints*
 
 *Given in the April session of the 2023 General Conference*
@@ -71,7 +69,3 @@ My dear brothers and sisters, I bear witness that Jesus Christ directs the affai
 
 [^4]: [[1 Nephi 14.14|1 Nephi 14:14]].
 
-
-
-
-#Easter #Healing #Jesus_Christ #Temples

@@ -1,7 +1,5 @@
 # The Three Rs of Choice
 
-Thomas S. Monson
-
 By President Thomas S. Monson - *President of the Church*
 
 *Given in the October session of the 2010 General Conference*
@@ -113,7 +111,3 @@ My beloved brethren, may we be filled with gratitude for the *right* of choice, 
 
 [^14]: [[Isaiah 52.11|Isaiah 52:11]].
 
-
-
-
-#Accountability #Agency

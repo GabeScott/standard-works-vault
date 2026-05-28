@@ -1,7 +1,5 @@
 # Happiness Is Having a Father Who Cares
 
-Harold B. Lee
-
 By Elder James E. Faust - *Assistant to the Council of the Twelve*
 
 *Given in the October session of the 1973 General Conference*
@@ -57,4 +55,3 @@ That this may be so, I pray, in the name of the Lord, Jesus Christ. Amen.
 
 
 
-#Family #Fatherhood #Priesthood

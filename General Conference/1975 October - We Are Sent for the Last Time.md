@@ -1,7 +1,5 @@
 # We Are Sent for the Last Time
 
-Spencer W. Kimball
-
 By Elder William R. Bradford - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1975 General Conference*
@@ -39,4 +37,3 @@ I bear solemn witness that this church is true, in the name of Jesus Christ. Ame
 
 
 
-#Missionary_Work

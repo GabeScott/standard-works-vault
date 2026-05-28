@@ -1,7 +1,5 @@
 # Follow the Prophet
 
-Ezra Taft Benson
-
 By Bishop Glenn L. Pace - *Second Counselor in the Presiding Bishopric*
 
 *Given in the April session of the 1989 General Conference*
@@ -61,4 +59,3 @@ In the Lord’s wisdom, he has not left any of us dependent on another’s testi
 
 
 
-#Criticism #Obedience

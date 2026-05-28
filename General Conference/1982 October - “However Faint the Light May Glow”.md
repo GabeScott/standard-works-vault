@@ -1,7 +1,5 @@
 # “However Faint the Light May Glow”
 
-Spencer W. Kimball
-
 By Elder Vaughn J. Featherstone - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1982 General Conference*
@@ -99,4 +97,3 @@ And we invite all those who are not here to come home. We gaze steadily down the
 
 
 
-#Forgiveness #Repentance

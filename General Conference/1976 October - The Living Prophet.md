@@ -1,7 +1,5 @@
 # The Living Prophet
 
-Spencer W. Kimball
-
 By Elder Rex D. Pinegar - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1976 General Conference*
@@ -47,4 +45,3 @@ May you receive in your heart through the Holy Ghost the same witness and testim
 
 
 
-#Spencer_W._Kimball #Testimony

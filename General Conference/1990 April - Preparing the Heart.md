@@ -1,7 +1,5 @@
 # Preparing the Heart
 
-Thomas S. Monson
-
 By Elder H. Burke Peterson - *Of the Seventy*
 
 *Given in the April session of the 1990 General Conference*
@@ -69,4 +67,3 @@ To this, brothers and sisters, I add my testimony of the divinity of the Lord Je
 
 
 
-#Agency #Communication #Listening #Love #Spirituality

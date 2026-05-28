@@ -1,7 +1,5 @@
 # Dear Are the Sheep That Have Wandered
 
-Gordon B. Hinckley
-
 By President James E. Faust - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 2003 General Conference*
@@ -101,7 +99,3 @@ Let us not be arrogant but rather humbly grateful if our children are obedient a
 
 [^21]: [[Jeremiah 31.16|Jeremiah 31:16]].
 
-
-
-
-#Children #Love #Parenthood #Repentance #Teaching

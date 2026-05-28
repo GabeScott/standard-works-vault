@@ -1,7 +1,5 @@
 # A Crown of Thorns, a Crown of Glory
 
-Thomas S. Monson
-
 By Elder James E. Faust - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1991 General Conference*
@@ -67,4 +65,3 @@ I conclude with the words of Ezekiel, “And thou, son of man, … though briers
 
 
 
-#Adversity #Atonement #Conscience #Holy_Ghost #Jesus_Christ #Repentance #Responsibility

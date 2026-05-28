@@ -1,7 +1,5 @@
 # There Is Hope Smiling Brightly before Us
 
-Gordon B. Hinckley
-
 By Julie B. Beck - *First Counselor in the Young Women General Presidency*
 
 *Given in the April session of the 2003 General Conference*
@@ -47,4 +45,3 @@ Like Katie, my mother, and five-year-old Hope, you can wake up every day looking
 
 
 
-#Atonement #Endurance #Hope #Resurrection

@@ -1,7 +1,5 @@
 # Seeing the Five A’s
 
-Spencer W. Kimball
-
 By Elder Marion D. Hanks - *Of the Presidency of the First Quorum of the Seventy*
 
 *Given in the October session of the 1977 General Conference*
@@ -93,4 +91,3 @@ God bless us, young men and men, to be what God permits us and expects us to be.
 
 
 
-#Character #Fatherhood #Youth

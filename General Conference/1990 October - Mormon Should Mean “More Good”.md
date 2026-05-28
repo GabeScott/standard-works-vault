@@ -1,7 +1,5 @@
 # Mormon Should Mean “More Good”
 
-Gordon B. Hinckley
-
 By President Gordon B. Hinckley - *First Counselor in the First Presidency*
 
 *Given in the October session of the 1990 General Conference*
@@ -133,4 +131,3 @@ I testify of His living reality. I testify of the reality of God, our Eternal Fa
 
 
 
-#Book_Of_Mormon #Compassion #Example #Name_Of_Church

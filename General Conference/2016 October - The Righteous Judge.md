@@ -1,7 +1,5 @@
 # The Righteous Judge
 
-Jean B. Bingham
-
 By Elder Lynn G. Robbins - *Of the Presidency of the Seventy*
 
 *Given in the October session of the 2016 General Conference*
@@ -107,7 +105,3 @@ There is only one way to judge righteous judgment, as Jesus Christ does, and tha
 
 [^11]: Thomas S. Monson, “[[2008 October - Finding Joy in the Journey.md|Finding Joy in the Journey]],” *Ensign* or *Liahona,* Nov. 2008, 86.
 
-
-
-
-#Atonement #Discipline #Jesus_Christ #Judging #Parenthood #Repentance #Sacrifice

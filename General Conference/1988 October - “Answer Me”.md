@@ -1,7 +1,5 @@
 # “Answer Me”
 
-Ezra Taft Benson
-
 By Elder Neal A. Maxwell - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1988 General Conference*
@@ -93,4 +91,3 @@ These observations describe only in small part Him who said, “Answer me,” re
 
 
 
-#Atonement #Discipleship #Jesus_Christ

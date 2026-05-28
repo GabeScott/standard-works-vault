@@ -1,7 +1,5 @@
 # Our Personal Savior
 
-Russell M. Nelson
-
 By Elder Michael John U. Teh - *Of the Seventy*
 
 *Given in the April session of the 2021 General Conference*
@@ -111,7 +109,3 @@ On this Easter Sunday, just as the Savior came forth from His stone grave, may w
 
 [^16]: Russell M. Nelson, “[Prophets, Leadership, and Divine Law](https://www.churchofjesuschrist.org/study/broadcasts/worldwide-devotional-for-young-adults-an-evening-with-president-nelson/2017/01/prophets-leadership-and-divine-law?lang=eng)” (worldwide devotional for young adults, Jan. 8, 2017), broadcasts.ChurchofJesusChrist.org.
 
-
-
-
-#Atonement #Jesus_Christ

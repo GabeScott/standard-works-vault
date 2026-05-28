@@ -1,7 +1,5 @@
 # Always Retain a Remission of Your Sins
 
-Cheryl A. Esplin
-
 By Elder David A. Bednar - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2016 General Conference*
@@ -157,7 +155,3 @@ Although none of us can achieve perfection in this life, we can become increasin
 
 [^33]: [[Mormon 9.6|Mormon 9:6]].
 
-
-
-
-#Atonement #Baptism #Confirmation #Holy_Ghost #Jesus_Christ #Ordinances #Sacrament

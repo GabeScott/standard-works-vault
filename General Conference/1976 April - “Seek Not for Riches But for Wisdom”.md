@@ -1,7 +1,5 @@
 # “Seek Not for Riches But for Wisdom”
 
-Spencer W. Kimball
-
 By Elder Franklin D. Richards - *Assistant to the Council of the Twelve*
 
 *Given in the April session of the 1976 General Conference*
@@ -85,4 +83,3 @@ I bear you my witness that I know that God lives and that Jesus is the Christ. A
 
 
 
-#Activation #Family #Wealth #Wisdom

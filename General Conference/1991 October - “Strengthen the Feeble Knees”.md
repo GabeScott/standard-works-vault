@@ -1,7 +1,5 @@
 # “Strengthen the Feeble Knees”
 
-Gordon B. Hinckley
-
 By Elder Marvin J. Ashton - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1991 General Conference*
@@ -111,4 +109,3 @@ May God help us to strengthen the feeble knees of ourselves and those about us b
 
 
 
-#Adversity #Faith #Love #Sabbath

@@ -1,7 +1,5 @@
 # Spit and Mud and Kigatsuku
 
-Thomas S. Monson
-
 By Chieko N. Okazaki - *First Counselor in the Relief Society General Presidency*
 
 *Given in the April session of the 1992 General Conference*
@@ -45,4 +43,3 @@ Our desire to serve is divine. Charity is our motto. As women, we beseech with t
 
 
 
-#Charity #Service

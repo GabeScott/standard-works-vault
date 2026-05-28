@@ -1,7 +1,5 @@
 # Like a Broken Vessel
 
-Thomas S. Monson
-
 By Elder Jeffrey R. Holland - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2013 General Conference*
@@ -67,7 +65,3 @@ I testify of the holy Resurrection, that unspeakable cornerstone gift in the Ato
 
 [^13]: [[1 Peter 3.8|1 Peter 3:8]].
 
-
-
-
-#Adversity #Compassion #Disabilities

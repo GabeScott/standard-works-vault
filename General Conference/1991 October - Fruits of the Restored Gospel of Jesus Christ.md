@@ -1,7 +1,5 @@
 # Fruits of the Restored Gospel of Jesus Christ
 
-Gordon B. Hinckley
-
 By Elder Joseph B. Wirthlin - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1991 General Conference*
@@ -111,4 +109,3 @@ My brothers and sisters, your leaders of the Church love you and labor to bring 
 
 
 
-#Faith #Family #Godhead #Holy_Ghost #Jesus_Christ #Missionary_Work #Morality #Obedience #Resurrection #Self-Reliance #Welfare #Word_Of_Wisdom

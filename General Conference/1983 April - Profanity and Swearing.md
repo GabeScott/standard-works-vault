@@ -1,7 +1,5 @@
 # Profanity and Swearing
 
-Ezra Taft Benson
-
 By Elder Ted E. Brewerton - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1983 General Conference*
@@ -145,4 +143,3 @@ We are in the presence of and being directed by living prophets. This is an abso
 
 
 
-#Attitude #Profanity

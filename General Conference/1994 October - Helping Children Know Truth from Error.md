@@ -1,7 +1,5 @@
 # Helping Children Know Truth from Error
 
-Gordon B. Hinckley
-
 By Michaelene P. Grassli - *Recently Released Primary General President*
 
 *Given in the October session of the 1994 General Conference*
@@ -73,4 +71,3 @@ In the name of Jesus Christ, amen.
 
 
 
-#Agency #Children #Family_Home_Evening #Honesty #Prayer #Primary #Satan #Truth

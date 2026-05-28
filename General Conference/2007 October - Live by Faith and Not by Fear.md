@@ -1,7 +1,5 @@
 # Live by Faith and Not by Fear
 
-Gordon B. Hinckley
-
 By Elder Quentin L. Cook - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2007 General Conference*
@@ -89,4 +87,3 @@ May we all recognize and give thanks for the incomparable gift of life we each e
 
 
 
-#Faith #Love #Missionary_Work

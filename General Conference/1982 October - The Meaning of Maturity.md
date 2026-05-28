@@ -1,7 +1,5 @@
 # The Meaning of Maturity
 
-Spencer W. Kimball
-
 By Elder Derek A. Cuthbert - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1982 General Conference*
@@ -73,4 +71,3 @@ May we, like him, be innocent and humble, simple, and full of faith and love. Ma
 
 
 
-#Character

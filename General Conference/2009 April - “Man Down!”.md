@@ -1,7 +1,5 @@
 # “Man Down!”
 
-Thomas S. Monson
-
 By President Henry B. Eyring - *First Counselor in the First Presidency*
 
 *Given in the April session of the 2009 General Conference*
@@ -115,7 +113,3 @@ I testify that you were called of God and you are sent to serve His children. He
 
 [^9]: See [[Abraham 3.27|Abraham 3:27]].
 
-
-
-
-#Activation #Brotherhood #Priesthood #Service

@@ -1,7 +1,5 @@
 # Successful Welfare Stewardship
 
-Spencer W. Kimball
-
 By Bishop J. Richard Clarke - *Second Counselor in the Presiding Bishopric*
 
 *Given in the October session of the 1978 General Conference*
@@ -61,4 +59,3 @@ My brothers and sisters, the Lord loves you for your devotion and untiring effor
 
 
 
-#Accountability #Welfare

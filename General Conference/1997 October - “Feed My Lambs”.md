@@ -1,7 +1,5 @@
 # “Feed My Lambs”
 
-Gordon B. Hinckley
-
 By Elder Henry B. Eyring - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1997 General Conference*
@@ -83,4 +81,3 @@ I know that Jesus is the Christ. I know that He lives. And I know that He leads 
 
 
 
-#Atonement #Children #Commandments #Covenants #Faith #Fellowshipping #Holy_Ghost #Humility #Jesus_Christ #Plan_Of_Salvation #Prayer

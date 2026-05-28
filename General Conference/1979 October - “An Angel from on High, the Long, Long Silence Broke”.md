@@ -1,7 +1,5 @@
 # “An Angel from on High, the Long, Long Silence Broke”
 
-Spencer W. Kimball
-
 By Elder Gordon B. Hinckley - *Of the Council of the Twelve*
 
 *Given in the October session of the 1979 General Conference*
@@ -66,4 +64,3 @@ My brothers and sisters, without reservation I promise you that if each of you w
 
 
 
-#Book_Of_Mormon

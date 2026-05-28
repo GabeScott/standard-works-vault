@@ -1,7 +1,5 @@
 # A Perfect Brightness of Hope
 
-Russell M. Nelson
-
 By Elder Jeffrey R. Holland - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2020 General Conference*
@@ -85,7 +83,3 @@ I give thanks, my brothers and sisters, for all we have been given in this last 
 
 [^21]: [[2 Nephi 31.20|2 Nephi 31:20]].
 
-
-
-
-#Hope #Restoration

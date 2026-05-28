@@ -1,7 +1,5 @@
 # Follow the Fundamentals
 
-Marion G. Romney
-
 By President Spencer W. Kimball - *President of the Church*
 
 *Given in the April session of the 1981 General Conference*
@@ -39,4 +37,3 @@ I am grateful for the welfare instructions we receive in this session of our con
 
 
 
-#Fasting #Sacrifice

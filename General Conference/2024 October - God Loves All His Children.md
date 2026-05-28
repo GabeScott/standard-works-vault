@@ -1,7 +1,5 @@
 # God Loves All His Children
 
-Henry B. Eyring
-
 By Elder Gregorio E. Casillas - *Of the Seventy*
 
 *Given in the October session of the 2024 General Conference*
@@ -55,7 +53,3 @@ I testify that Jesus Christ is the Savior of the world, that He lives, that He l
 
 [^6]: See [[Alma 56.47|Alma 56:47]]; [[Alma 57.26|57:26]].
 
-
-
-
-#Discipleship #Love #Ministering

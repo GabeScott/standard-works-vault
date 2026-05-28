@@ -1,7 +1,5 @@
 # A Year of Jubilee
 
-Gordon B. Hinckley
-
 By Elder L. Tom Perry - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1999 General Conference*
@@ -69,4 +67,3 @@ I hope it is clearly evident when the world looks at us that we are known for ou
 
 
 
-#Agency #Christianity #Family #Habits #Sin

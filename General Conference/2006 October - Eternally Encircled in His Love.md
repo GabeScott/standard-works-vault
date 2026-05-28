@@ -1,7 +1,5 @@
 # Eternally Encircled in His Love
 
-Gordon B. Hinckley
-
 By Bonnie D. Parkin - *Relief Society General President*
 
 *Given in the October session of the 2006 General Conference*
@@ -63,7 +61,3 @@ My dear sisters, may the Lord bless you to feel His love daily as you keep your 
 
 [^4]: Personal correspondence.
 
-
-
-
-#Compassion #Jesus_Christ #Love #Sisterhood

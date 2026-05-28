@@ -1,7 +1,5 @@
 # It Is Not Good for Man or Woman to Be Alone
 
-Gordon B. Hinckley
-
 By Sheri L. Dew - *Second Counselor in the Relief Society General Presidency*
 
 *Given in the October session of the 2001 General Conference*
@@ -87,7 +85,3 @@ Our Father’s patterns help us avoid deception. Look to the Lord and not to the
 
 [^18]: See [[Abraham 3.26|Abr. 3:26]].
 
-
-
-
-#Children #Disabilities #Faith #Family #Holy_Ghost #Humility #Marriage #Priesthood #Satan #Temples #Women #Work #Worthiness

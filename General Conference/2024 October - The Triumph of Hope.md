@@ -1,7 +1,5 @@
 # The Triumph of Hope
 
-Henry B. Eyring
-
 By Elder Neil L. Andersen - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2024 General Conference*
@@ -169,7 +167,3 @@ May we nurture our precious faith, pressing forward with a perfect brightness of
 
 [^27]: See [[2 Nephi 31.20|2 Nephi 31:20]]. The hope Nephi speaks of is perfect and bright because it is centered in Christ. He is perfect, and His Atonement, which offers this bright hope, is also perfect.
 
-
-
-
-#Adversity #Faith #Holy_Ghost #Hope #Jesus_Christ #Joy #Temples

@@ -1,7 +1,5 @@
 # “Some Have Compassion, Making a Difference”
 
-Ezra Taft Benson
-
 By Bishop Robert D. Hales - *Presiding Bishop*
 
 *Given in the April session of the 1987 General Conference*
@@ -117,4 +115,3 @@ Brothers and sisters, may we leave this conference with a renewed determination,
 
 
 
-#Fellowshipping #Missionary_Work #Temptation

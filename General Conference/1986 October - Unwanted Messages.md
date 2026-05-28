@@ -1,7 +1,5 @@
 # Unwanted Messages
 
-Ezra Taft Benson
-
 By Elder James E. Faust - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1986 General Conference*
@@ -71,4 +69,3 @@ I wish to testify that the prophetic messages of this conference will lead any w
 
 
 
-#Commandments #Conscience #Forgiveness #Honesty #Justice #Parenthood

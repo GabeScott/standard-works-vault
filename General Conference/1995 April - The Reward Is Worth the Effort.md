@@ -1,7 +1,5 @@
 # The Reward Is Worth the Effort
 
-Thomas S. Monson
-
 By Melanie Eaton - *Leland Ward, Spanish Fork Utah West Stake*
 
 *Given in the April session of the 1995 General Conference*
@@ -23,4 +21,3 @@ I testify to you that it has been well worth the struggle. I love the Book of Mo
 
 
 
-#Book_Of_Mormon #Endurance #Holy_Ghost #Scripture_Study #Young_Women

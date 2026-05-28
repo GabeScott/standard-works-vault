@@ -1,7 +1,5 @@
 # Voices of the Past, of the Present, of the Future
 
-Joseph Fielding Smith
-
 By President Spencer W. Kimball - *Acting President of the Council of the Twelve*
 
 *Given in the April session of the 1971 General Conference*
@@ -199,4 +197,3 @@ May the voices of the Lord’s servants prevail, I pray in the name of Jesus Chr
 
 
 
-#Marriage #Morality

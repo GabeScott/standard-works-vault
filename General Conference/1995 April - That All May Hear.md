@@ -1,7 +1,5 @@
 # That All May Hear
 
-Thomas S. Monson
-
 By President Thomas S. Monson - *First Counselor in the First Presidency*
 
 *Given in the April session of the 1995 General Conference*
@@ -123,7 +121,3 @@ Such is the promise to all of us when we pursue our missionary opportunities and
 
 [^14]: [[D&C 84.88|D&C 84:88]].
 
-
-
-
-#Conversion #Missionary_Work #Priesthood

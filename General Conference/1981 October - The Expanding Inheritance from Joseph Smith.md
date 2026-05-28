@@ -1,7 +1,5 @@
 # The Expanding Inheritance from Joseph Smith
 
-Gordon B. Hinckley
-
 By Elder James E. Faust - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1981 General Conference*
@@ -63,4 +61,3 @@ What has been taught at this pulpit for the last two days is an extension of the
 
 
 
-#Joseph_Smith #Restoration

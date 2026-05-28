@@ -1,7 +1,5 @@
 # Solemn Assemblies
 
-Gordon B. Hinckley
-
 By Elder David B. Haight - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1994 General Conference*
@@ -79,4 +77,3 @@ I bear this testimony to you in the name of Jesus Christ, amen.
 
 
 
-#Authority #Church_Leaders #Church_Organization #Ezra_Taft_Benson #General_Conference

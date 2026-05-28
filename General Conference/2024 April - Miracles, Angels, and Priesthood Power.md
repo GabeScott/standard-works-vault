@@ -1,7 +1,5 @@
 # Miracles, Angels, and Priesthood Power
 
-Dallin H. Oaks
-
 By Elder Shayne M. Bowen - *Of the Seventy*
 
 *Given in the April session of the 2024 General Conference*
@@ -91,7 +89,3 @@ I witness that miracles have not ceased, angels are among us, and the heavens ar
 
 [^9]: [[D&C 107.3|Doctrine and Covenants 107:3]].
 
-
-
-
-#Angels #Miracles #Priesthood_Blessings #Priesthood_Keys #Priesthood_Power

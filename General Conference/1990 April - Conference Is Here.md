@@ -1,7 +1,5 @@
 # Conference Is Here
 
-Thomas S. Monson
-
 By President Thomas S. Monson - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 1990 General Conference*
@@ -47,4 +45,3 @@ I bear to you my witness that God does live, that Jesus is the Christ, our Redee
 
 
 
-#Example #Gratitude #Jesus_Christ #Prayer #Prophets #Service #Temples #Youth

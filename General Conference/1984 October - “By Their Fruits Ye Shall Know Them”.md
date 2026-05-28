@@ -1,7 +1,5 @@
 # “By Their Fruits Ye Shall Know Them”
 
-Gordon B. Hinckley
-
 By Elder Royden G. Derrick - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1984 General Conference*
@@ -117,4 +115,3 @@ Let us diligently strive to understand the wonderful things of God. The jewels o
 
 
 
-#Honesty #Truth

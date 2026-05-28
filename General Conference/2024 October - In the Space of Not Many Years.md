@@ -1,7 +1,5 @@
 # In the Space of Not Many Years
 
-Henry B. Eyring
-
 By Elder David A. Bednar - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2024 General Conference*
@@ -187,7 +185,3 @@ I joyfully witness that God the Eternal Father is our Father. Jesus Christ is Hi
 
 [^40]: See [[D&C 19.23|Doctrine and Covenants 19:23]].
 
-
-
-
-#Apostasy #Book_Of_Mormon #Pride

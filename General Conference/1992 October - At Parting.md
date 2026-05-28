@@ -1,7 +1,5 @@
 # At Parting
 
-Gordon B. Hinckley
-
 By President Thomas S. Monson - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 1992 General Conference*
@@ -53,7 +51,3 @@ The work is true. Jesus is the Christ. Ezra Taft Benson is a prophet of God. I s
 
 [^6]: *Hymns,* 1985, no. 156.
 
-
-
-
-#Ezra_Taft_Benson #Obedience #Prophets

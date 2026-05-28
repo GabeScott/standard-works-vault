@@ -1,7 +1,5 @@
 # “A Disciple of Jesus Christ”
 
-Thomas S. Monson
-
 By Elder L. Aldin Porter - *Of the Seventy*
 
 *Given in the April session of the 1992 General Conference*
@@ -79,4 +77,3 @@ I am a witness that the Lord Jesus Christ is the Son of God and the Savior of th
 
 
 
-#Repentance #Worthiness

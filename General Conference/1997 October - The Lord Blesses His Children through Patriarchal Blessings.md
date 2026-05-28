@@ -1,7 +1,5 @@
 # The Lord Blesses His Children through Patriarchal Blessings
 
-Gordon B. Hinckley
-
 By Elder Richard D. Allred - *Of the Seventy*
 
 *Given in the October session of the 1997 General Conference*
@@ -43,4 +41,3 @@ It is my sincere prayer that all who desire a blessing at the Lord’s hand may 
 
 
 
-#Joseph_Smith #Patriarchal_Blessings #Priesthood

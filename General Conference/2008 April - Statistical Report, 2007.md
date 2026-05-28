@@ -1,7 +1,5 @@
 # Statistical Report, 2007
 
-Dieter F. Uchtdorf
-
 By Presented by Elder F. Michael Watson - *Of the Seventy*
 
 *Given in the April session of the 2008 General Conference*

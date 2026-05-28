@@ -1,7 +1,5 @@
 # Meeting the Challenges of Today’s World
 
-Rosemary M. Wixom
-
 By Elder Robert D. Hales - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2015 General Conference*
@@ -69,7 +67,7 @@ I bear my testimony that God lives. I bear my special witness that the Savior lo
 
 [^3]: See [[Genesis 39.1|Genesis 39]][[Genesis 39.2|]][[Genesis 39.3|]][[Genesis 39.4|]][[Genesis 39.5|]][[Genesis 39.6|]][[Genesis 39.7|]][[Genesis 39.8|]][[Genesis 39.9|]][[Genesis 39.10|]][[Genesis 39.11|]][[Genesis 39.12|]][[Genesis 39.13|]][[Genesis 39.14|]][[Genesis 39.15|]][[Genesis 39.16|]][[Genesis 39.17|]][[Genesis 39.18|]][[Genesis 39.19|]][[Genesis 39.20|]][[Genesis 39.21|]][[Genesis 39.22|]][[Genesis 39.23|]].
 
-[^4]: See [[1 Nephi 2.1|1 Nephi 2]].
+[^4]: See [[1 Nephi 2.1|1 Nephi 2]][[1 Nephi 2.2|]][[1 Nephi 2.3|]][[1 Nephi 2.4|]][[1 Nephi 2.5|]][[1 Nephi 2.6|]][[1 Nephi 2.7|]][[1 Nephi 2.8|]][[1 Nephi 2.9|]][[1 Nephi 2.10|]][[1 Nephi 2.11|]][[1 Nephi 2.12|]][[1 Nephi 2.13|]][[1 Nephi 2.14|]][[1 Nephi 2.15|]][[1 Nephi 2.16|]][[1 Nephi 2.17|]][[1 Nephi 2.18|]][[1 Nephi 2.19|]][[1 Nephi 2.20|]][[1 Nephi 2.21|]][[1 Nephi 2.22|]][[1 Nephi 2.23|]][[1 Nephi 2.24|]].
 
 [^5]: See [[Matthew 2.1|Matthew 2]][[Matthew 2.2|]][[Matthew 2.3|]][[Matthew 2.4|]][[Matthew 2.5|]][[Matthew 2.6|]][[Matthew 2.7|]][[Matthew 2.8|]][[Matthew 2.9|]][[Matthew 2.10|]][[Matthew 2.11|]][[Matthew 2.12|]][[Matthew 2.13|]][[Matthew 2.14|]][[Matthew 2.15|]][[Matthew 2.16|]][[Matthew 2.17|]][[Matthew 2.18|]][[Matthew 2.19|]][[Matthew 2.20|]][[Matthew 2.21|]][[Matthew 2.22|]][[Matthew 2.23|]].
 
@@ -103,7 +101,3 @@ I bear my testimony that God lives. I bear my special witness that the Savior lo
 
 [^20]: [[D&C 128.22|Doctrine and Covenants 128:22]].
 
-
-
-
-#Dating #Education #Financial_Management #Marriage #Worthiness #Young_Adults

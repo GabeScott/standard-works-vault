@@ -1,7 +1,5 @@
 # Spiritual Nutrients
 
-Gordon B. Hinckley
-
 By President James E. Faust - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 2006 General Conference*
@@ -91,7 +89,3 @@ Brethren, I hope we will be faithful and true to all of our covenants. I pray th
 
 [^13]: [[D&C 132.47|D&C 132:47]].
 
-
-
-
-#Faith #Healing #Priesthood #Scriptures #Service

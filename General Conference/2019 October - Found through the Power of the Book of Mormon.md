@@ -1,7 +1,5 @@
 # Found through the Power of the Book of Mormon
 
-Jeffrey R. Holland
-
 By Elder Rubén V. Alliaud - *Of the Seventy*
 
 *Given in the October session of the 2019 General Conference*
@@ -97,7 +95,3 @@ I solemnly testify that the Book of Mormon contains the fulness of the gospel of
 
 [^11]: See [[3 Nephi 5.20|3 Nephi 5:20]].
 
-
-
-
-#Book_Of_Mormon #Conversion

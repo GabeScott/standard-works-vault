@@ -1,7 +1,5 @@
 # To My Grandchildren
 
-Thomas S. Monson
-
 By President Henry B. Eyring - *First Counselor in the First Presidency*
 
 *Given in the October session of the 2013 General Conference*
@@ -103,7 +101,3 @@ With the help of the Holy Ghost, all truths will be brought to our remembrance. 
 
 [^3]: [[Alma 42.13|Alma 42:13]].
 
-
-
-
-#Atonement #Church_Callings #Family #Joy #Obedience

@@ -1,7 +1,5 @@
 # “Thou Shalt Not Commit Adultery”
 
-Joseph Fielding Smith
-
 By President Milton R. Hunter - *Of the First Council of the Seventy*
 
 *Given in the April session of the 1971 General Conference*
@@ -99,4 +97,3 @@ In the name of Jesus Christ. Amen.
 
 
 
-#Marriage #Morality

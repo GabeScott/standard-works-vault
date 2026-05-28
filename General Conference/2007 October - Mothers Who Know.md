@@ -1,7 +1,5 @@
 # Mothers Who Know
 
-Gordon B. Hinckley
-
 By Julie B. Beck - *Relief Society General President*
 
 *Given in the October session of the 2007 General Conference*
@@ -61,7 +59,3 @@ Who will prepare this righteous generation of sons and daughters? Latter-day Sai
 
 [^7]: Gordon B. Hinckley, *Worldwide Leadership Training Meeting,* Jan. 10, 2004, 20.
 
-
-
-
-#Children #Family #Motherhood #Teaching

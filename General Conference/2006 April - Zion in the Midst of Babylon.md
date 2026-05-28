@@ -1,7 +1,5 @@
 # Zion in the Midst of Babylon
 
-Robert D. Hales
-
 By Elder David R. Stone - *Of the Seventy*
 
 *Given in the April session of the 2006 General Conference*
@@ -89,4 +87,3 @@ In the name of Jesus Christ, amen.
 
 
 
-#Standards #Zion

@@ -1,7 +1,5 @@
 # Cat’s Cradle of Kindness
 
-Thomas S. Monson
-
 By Chieko N. Okazaki - *First Counselor in the Relief Society General Presidency*
 
 *Given in the April session of the 1993 General Conference*
@@ -45,4 +43,3 @@ May we all deal kindly with one another, seeking in our lives the blessing of th
 
 
 
-#Kindness #Love #Service

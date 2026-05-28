@@ -1,7 +1,5 @@
 # To Be a Follower of Christ
 
-Russell M. Nelson
-
 By Elder Alfred Kyungu - *Of the Seventy*
 
 *Given in the October session of the 2021 General Conference*
@@ -73,4 +71,3 @@ I testify that our Heavenly Father lives and that He knows each of us individual
 
 
 
-#Courage #Discipleship #Forgiveness #Humility #Jesus_Christ #Sacrifice

@@ -1,7 +1,5 @@
 # Act in All Diligence
 
-Thomas S. Monson
-
 By President Henry B. Eyring - *First Counselor in the First Presidency*
 
 *Given in the April session of the 2010 General Conference*
@@ -135,7 +133,3 @@ I leave you my blessing that you may come to feel by the Spirit the magnitude of
 
 [^12]: [[D&C 138.30|Doctrine and Covenants 138:30–31]][[D&C 138.31|]]
 
-
-
-
-#Dedication #Duty #Priesthood

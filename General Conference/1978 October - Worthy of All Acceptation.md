@@ -1,7 +1,5 @@
 # Worthy of All Acceptation
 
-Spencer W. Kimball
-
 By President Ezra Taft Benson - *Of the Council of the Twelve*
 
 *Given in the October session of the 1978 General Conference*
@@ -71,4 +69,3 @@ In the name of Jesus Christ, amen.
 
 
 
-#Family #Family_History #Temple_Work

@@ -1,7 +1,5 @@
 # The Sustaining of Church Officers
 
-Russell M. Nelson
-
 By Presented by President Henry B. Eyring - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 2018 General Conference*

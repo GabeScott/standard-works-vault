@@ -1,7 +1,5 @@
 # Blessed from on High
 
-Ezra Taft Benson
-
 By President Howard W. Hunter - *President of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1988 General Conference*
@@ -90,4 +88,3 @@ I testify of the divinity of Jesus Christ. God does live and imparts to us his S
 
 
 
-#Prayer #Scripture_Study #Spirituality

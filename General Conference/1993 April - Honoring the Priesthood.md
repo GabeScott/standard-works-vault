@@ -1,7 +1,5 @@
 # Honoring the Priesthood
 
-Thomas S. Monson
-
 By Elder Russell M. Nelson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1993 General Conference*
@@ -137,7 +135,3 @@ Brethren, to all mankind we proclaim these everlasting truths: “The Melchizede
 
 [^10]: *History of the Church,* 2:177.
 
-
-
-
-#Leadership #Priesthood #Respect

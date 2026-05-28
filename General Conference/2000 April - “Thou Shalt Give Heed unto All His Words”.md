@@ -1,7 +1,5 @@
 # “Thou Shalt Give Heed unto All His Words”
 
-Gordon B. Hinckley
-
 By Elder L. Tom Perry - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2000 General Conference*
@@ -81,4 +79,3 @@ This is my humble testimony to you, and I do it in the name of our Savior, even 
 
 
 
-#Church_Growth #Commandments #General_Conference #Joy #Media #Scriptures #Spirituality #Teaching #Testimony

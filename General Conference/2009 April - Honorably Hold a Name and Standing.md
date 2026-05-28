@@ -1,7 +1,5 @@
 # Honorably Hold a Name and Standing
 
-Thomas S. Monson
-
 By Elder David A. Bednar - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2009 General Conference*
@@ -95,4 +93,3 @@ I bear solemn witness that the fire of the covenant will burn in the heart of ev
 
 
 
-#Covenants #Safety #Temples

@@ -1,7 +1,5 @@
 # Addressing Mental Health
 
-Russell M. Nelson
-
 By Elder Erich W. Kopischke - *Of the Seventy*
 
 *Given in the October session of the 2021 General Conference*
@@ -87,7 +85,3 @@ In the name of Jesus Christ, amen.
 
 [^8]: “How Firm a Foundation,” *Hymns*, no. 85.
 
-
-
-
-#Anxiety #Depression #Love #Mental_Health #Mental_Illness #Ministering

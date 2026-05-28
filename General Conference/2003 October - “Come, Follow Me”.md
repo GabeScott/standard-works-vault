@@ -1,7 +1,5 @@
 # “Come, Follow Me”
 
-Gordon B. Hinckley
-
 By Elder William W. Parmley - *Of the Seventy*
 
 *Given in the October session of the 2003 General Conference*
@@ -59,4 +57,3 @@ Of the Savior, who is our exemplar, I bear personal witness that He lives. In th
 
 
 
-#Example #Jesus_Christ #Love #Mercy #Prayer

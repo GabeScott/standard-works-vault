@@ -1,6 +1,6 @@
 # The Times of Restitution of All Things
 
-Dallin H. Oaks
+([[Acts 3.21|Acts 3:21]])
 
 By Elder David A. Bednar - *Of the Quorum of the Twelve Apostles*
 
@@ -159,7 +159,3 @@ And I joyfully witness that the Father and the Son appeared to the boy Joseph Sm
 
 [^32]: “[The Restoration of the Fulness of the Gospel of Jesus Christ](https://www.churchofjesuschrist.org/study/scriptures/the-restoration-of-the-fulness-of-the-gospel-of-jesus-christ/a-bicentennial-proclamation-to-the-world?lang=eng&id=p9#p9),” Gospel Library.
 
-
-
-
-#Book_Of_Mormon #Dispensations #First_Vision #Joseph_Smith #Priesthood #Restoration

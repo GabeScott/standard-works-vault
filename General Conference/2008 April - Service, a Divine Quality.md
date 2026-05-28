@@ -1,7 +1,5 @@
 # Service, a Divine Quality
 
-Dieter F. Uchtdorf
-
 By Elder Carlos H. Amado - *Of the Seventy*
 
 *Given in the April session of the 2008 General Conference*
@@ -91,4 +89,3 @@ Because of His doctrine and His service, the restored Church of Jesus Christ is 
 
 
 
-#Atonement #Jesus_Christ #Service

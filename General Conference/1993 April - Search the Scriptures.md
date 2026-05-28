@@ -1,7 +1,5 @@
 # Search the Scriptures
 
-Thomas S. Monson
-
 By Elder L. Lionel Kendrick - *Of the Seventy*
 
 *Given in the April session of the 1993 General Conference*
@@ -79,4 +77,3 @@ The scriptures are priceless possessions. If we search the scriptures, seeking f
 
 
 
-#Jesus_Christ #Scripture_Study

@@ -1,7 +1,5 @@
 # Trust in the Lord
 
-Dallin H. Oaks
-
 By Elder Paul B. Pieper - *Of the Seventy*
 
 *Given in the April session of the 2024 General Conference*
@@ -67,7 +65,7 @@ The good news is that regardless of the trust we may or may not have chosen to p
 
 [^9]: [[Proverbs 3.5|Proverbs 3:5]].
 
-[^10]: See [[1 Nephi 3.1|1 Nephi 3–4]].
+[^10]: See [[1 Nephi 3.1|1 Nephi 3–4]][[1 Nephi 3.2|]][[1 Nephi 3.3|]][[1 Nephi 3.4|]][[1 Nephi 3.5|]][[1 Nephi 3.6|]][[1 Nephi 3.7|]][[1 Nephi 3.8|]][[1 Nephi 3.9|]][[1 Nephi 3.10|]][[1 Nephi 3.11|]][[1 Nephi 3.12|]][[1 Nephi 3.13|]][[1 Nephi 3.14|]][[1 Nephi 3.15|]][[1 Nephi 3.16|]][[1 Nephi 3.17|]][[1 Nephi 3.18|]][[1 Nephi 3.19|]][[1 Nephi 3.20|]][[1 Nephi 3.21|]][[1 Nephi 3.22|]][[1 Nephi 3.23|]][[1 Nephi 3.24|]][[1 Nephi 3.25|]][[1 Nephi 3.26|]][[1 Nephi 3.27|]][[1 Nephi 3.28|]][[1 Nephi 3.29|]][[1 Nephi 3.30|]][[1 Nephi 3.31|]].
 
 [^11]: See [[1 Nephi 16.18|1 Nephi 16:18–31]][[1 Nephi 16.19|]][[1 Nephi 16.20|]][[1 Nephi 16.21|]][[1 Nephi 16.22|]][[1 Nephi 16.23|]][[1 Nephi 16.24|]][[1 Nephi 16.25|]][[1 Nephi 16.26|]][[1 Nephi 16.27|]][[1 Nephi 16.28|]][[1 Nephi 16.29|]][[1 Nephi 16.30|]][[1 Nephi 16.31|]].
 
@@ -77,7 +75,3 @@ The good news is that regardless of the trust we may or may not have chosen to p
 
 [^14]: [[2 Nephi 4.34|2 Nephi 4:34]].
 
-
-
-
-#Adversity #Agency #God_The_Father #Trust

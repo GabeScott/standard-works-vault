@@ -1,7 +1,5 @@
 # A Personal Commitment
 
-Spencer W. Kimball
-
 By Elder James M. Paramore - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1979 General Conference*
@@ -81,4 +79,3 @@ We, too, can resolve this day to declare ourselves, give ourselves, devote ourse
 
 
 
-#Commitment

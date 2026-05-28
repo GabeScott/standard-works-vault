@@ -1,7 +1,5 @@
 # Come, Follow Me—the Lord’s Counterstrategy and Proactive Plan
 
-Jeffrey R. Holland
-
 By Mark L. Pace - *Sunday School General President*
 
 *Given in the October session of the 2019 General Conference*
@@ -83,4 +81,3 @@ May our daily efforts in studying the scriptures fortify us and prove us worthy 
 
 
 
-#Spirituality #Teaching

@@ -1,7 +1,5 @@
 # The Strength of Testimony
 
-Spencer W. Kimball
-
 By President Hartman Rector, Jr. - *Of the First Council of the Seventy*
 
 *Given in the April session of the 1974 General Conference*
@@ -101,4 +99,3 @@ May the Lord bless us to hold fast and remain faithful as we follow the Lord’s
 
 
 
-#Conversion #Endurance #Obedience #Spirituality #Testimony

@@ -1,7 +1,5 @@
 # He Took Him by the Hand
 
-Harold B. Lee
-
 By Elder Marvin J. Ashton - *Of the Council of the Twelve*
 
 *Given in the October session of the 1973 General Conference*
@@ -99,4 +97,3 @@ I leave you my witness that God lives. This is the Church of Jesus Christ, resto
 
 
 
-#Compassion #Service

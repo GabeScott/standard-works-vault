@@ -1,7 +1,5 @@
 # Principles and Promises
 
-Jean B. Bingham
-
 By President Thomas S. Monson
 
 *Given in the October session of the 2016 General Conference*
@@ -33,7 +31,3 @@ Brethren, may we care for our bodies and our minds by observing the principles s
 
 [^2]: See John A. Larsen, in Robert C. Freeman and Dennis A. Wright, comps., *Saints at War: Experiences of Latter-day Saints in World War II* (2001), 350–51; used by permission.
 
-
-
-
-#Prayer #Word_Of_Wisdom

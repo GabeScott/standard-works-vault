@@ -1,7 +1,5 @@
 # Prayers and Answers
 
-Spencer W. Kimball
-
 By Elder Boyd K. Packer - *Of the Council of the Twelve*
 
 *Given in the October session of the 1979 General Conference*
@@ -198,4 +196,3 @@ I know that Jesus is the Christ, that He directs this Church, that He is close t
 
 
 
-#Holy_Ghost #Prayer #Spirituality #Youth

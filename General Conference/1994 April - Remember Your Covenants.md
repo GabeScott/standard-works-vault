@@ -1,7 +1,5 @@
 # Remember Your Covenants
 
-James E. Faust
-
 By Elder Charles Didier - *Of the Presidency of the Seventy*
 
 *Given in the April session of the 1994 General Conference*
@@ -57,4 +55,3 @@ I testify that Jesus lives, that this is the only true church, that the priestho
 
 
 
-#Covenants #Marriage #Priesthood #Sacrament #Temples

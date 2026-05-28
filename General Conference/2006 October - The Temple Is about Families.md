@@ -1,7 +1,5 @@
 # The Temple Is about Families
 
-Gordon B. Hinckley
-
 By Elder Richard H. Winkel - *Of the Seventy*
 
 *Given in the October session of the 2006 General Conference*
@@ -59,7 +57,3 @@ In the name of Jesus Christ, amen.
 
 [^4]: *History of the Church,* 6:363.
 
-
-
-
-#Family #Love #Temples

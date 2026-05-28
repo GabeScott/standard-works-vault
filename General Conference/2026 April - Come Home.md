@@ -1,7 +1,5 @@
 # Come Home
 
-Dallin H. Oaks
-
 By Elder Clark G. Gilbert - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2026 General Conference*
@@ -113,5 +111,3 @@ I witness that Christ is our Redeemer. When we fall short, He repairs the breach
 
 [^19]: “Softly and Tenderly Jesus Is Calling,” *Hymns for Home and Church*, Gospel Library.
 
-
-#Activation #Ministering

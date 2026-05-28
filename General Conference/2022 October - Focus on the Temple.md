@@ -1,7 +1,5 @@
 # Focus on the Temple
 
-Dallin H. Oaks
-
 By President Russell M. Nelson - *President of The Church of Jesus Christ of Latter-day Saints*
 
 *Given in the October session of the 2022 General Conference*
@@ -29,7 +27,3 @@ My dear brothers and sisters, may you focus on the temple in ways you never have
 
 [^2]: As of October 1, 2022, four more temples are being renovated (St. George Utah, Manti Utah, Salt Lake, and Columbus Ohio), and three are awaiting dedication (Hamilton New Zealand, Quito Ecuador, and Belém Brazil).
 
-
-
-
-#Jesus_Christ #Temples

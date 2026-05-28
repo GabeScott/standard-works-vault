@@ -1,7 +1,5 @@
 # The Conversion Process
 
-Gordon B. Hinckley
-
 By Elder Julio E. Dávila - *Of the Seventy*
 
 *Given in the October session of the 1991 General Conference*
@@ -47,4 +45,3 @@ Brothers and sisters, I testify to you that God lives and loves us; that he sent
 
 
 
-#Holy_Ghost #Missionary_Work #Repentance #Testimony

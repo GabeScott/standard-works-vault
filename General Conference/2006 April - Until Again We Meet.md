@@ -1,7 +1,5 @@
 # Until Again We Meet
 
-Robert D. Hales
-
 By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the April session of the 2006 General Conference*
@@ -19,4 +17,3 @@ God bless you, my beloved brothers and sisters. I leave my love and my testimony
 
 
 
-#Faith #Family #Testimony

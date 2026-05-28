@@ -1,7 +1,5 @@
 # “The Word Is Commitment”
 
-Gordon B. Hinckley
-
 By Elder Marvin J. Ashton - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1983 General Conference*
@@ -97,4 +95,3 @@ The word is *commitment.* To be something, we must be committed. God is our Fath
 
 
 
-#Commitment

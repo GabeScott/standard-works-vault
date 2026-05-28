@@ -1,7 +1,5 @@
 # Pressing toward the Mark
 
-Russell M. Nelson
-
 By Elder Edward Dube - *Of the Seventy*
 
 *Given in the April session of the 2021 General Conference*
@@ -67,7 +65,3 @@ It is not so much about what we are going through in life but what we are becomi
 
 [^12]: [[Hebrews 12.1|Hebrews 12:1–2]][[Hebrews 12.2|]].
 
-
-
-
-#Adversity #Endurance #Faith #Jesus_Christ

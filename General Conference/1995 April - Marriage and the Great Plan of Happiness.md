@@ -1,7 +1,5 @@
 # Marriage and the Great Plan of Happiness
 
-Thomas S. Monson
-
 By Elder Joe J. Christensen - *Of the Presidency of the Seventy*
 
 *Given in the April session of the 1995 General Conference*
@@ -53,4 +51,3 @@ I testify that Jesus is the Christ. The tomb was empty on that third day, and â€
 
 
 
-#Family #Financial_Management #Joy #Listening #Marriage #Plan_Of_Salvation #Prayer #Repentance #Tithing

@@ -1,7 +1,5 @@
 # Shall We Not Go On in So Great a Cause?
 
-Russell M. Nelson
-
 By President M. Russell Ballard - *Acting President of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2020 General Conference*
@@ -159,7 +157,3 @@ I know that the Savior is pleased when we present Him an offering from our heart
 
 [^24]: [[D&C 128.22|Doctrine and Covenants 128:22, 24]][[D&C 128.24|]]; emphasis added.
 
-
-
-
-#Joseph_Smith #Restoration

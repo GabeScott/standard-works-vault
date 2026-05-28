@@ -1,7 +1,5 @@
 # The Joy of the Priesthood
 
-Thomas S. Monson
-
 By President Dieter F. Uchtdorf - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 2012 General Conference*
@@ -137,7 +135,3 @@ That we may always have eyes to see and a heart to feel the wonder and joy of th
 
 [^15]: [[D&C 4.2|Doctrine and Covenants 4:2]].
 
-
-
-
-#Joy #Priesthood #Service

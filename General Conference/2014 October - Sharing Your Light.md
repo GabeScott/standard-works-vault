@@ -1,7 +1,5 @@
 # Sharing Your Light
 
-Thomas S. Monson
-
 By Neill F. Marriott - *Second Counselor in the Young Women General Presidency*
 
 *Given in the October session of the 2014 General Conference*
@@ -87,7 +85,3 @@ I testify we have a living Savior, Jesus Christ, and with His power and light we
 
 [^10]: “The Living Christ: The Testimony of the Apostles,” *Ensign* or *Liahona,* Apr. 2000, 2.
 
-
-
-
-#Atonement #Temples #Truth

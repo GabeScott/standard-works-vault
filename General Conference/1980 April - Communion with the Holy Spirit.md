@@ -1,7 +1,5 @@
 # Communion with the Holy Spirit
 
-Spencer W. Kimball
-
 By Elder James E. Faust - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1980 General Conference*
@@ -117,4 +115,3 @@ I pray that we may so live as to enjoy the companionship of the Holy Ghost, for 
 
 
 
-#Holy_Ghost #Prophets #Spirituality

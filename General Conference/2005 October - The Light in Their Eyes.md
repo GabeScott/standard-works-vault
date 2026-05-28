@@ -1,7 +1,5 @@
 # The Light in Their Eyes
 
-Gordon B. Hinckley
-
 By President James E. Faust - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 2005 General Conference*
@@ -127,7 +125,3 @@ I know with all my heart and soul that God lives. I believe He will enlighten ou
 
 [^28]: *Discourses of Brigham Young,* 31.
 
-
-
-
-#Covenants #Holy_Ghost #Jesus_Christ #Joy #Spirituality

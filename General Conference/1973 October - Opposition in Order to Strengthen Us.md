@@ -1,7 +1,5 @@
 # Opposition in Order to Strengthen Us
 
-Harold B. Lee
-
 By Elder Eldred G. Smith - *Patriarch to the Church*
 
 *Given in the October session of the 1973 General Conference*
@@ -107,4 +105,3 @@ May the Lord bless each one of you to accomplish your goal in life, I pray in th
 
 
 
-#Plan_Of_Salvation #Temptation

@@ -1,7 +1,5 @@
 # Personal Integrity
 
-Thomas S. Monson
-
 By Elder Joseph B. Wirthlin - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1990 General Conference*
@@ -103,4 +101,3 @@ I bear my witness that Jesus is the Christ, the Son of God, and is our Lord and 
 
 
 
-#Holy_Ghost #Honesty #Joseph_Smith #Love #Service

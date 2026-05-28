@@ -1,7 +1,5 @@
 # Put Ye On the Lord Jesus Christ
 
-Dallin H. Oaks
-
 By Sister J. Anette Dennis - *First Counselor in the Relief Society General Presidency*
 
 *Given in the April session of the 2024 General Conference*
@@ -151,7 +149,3 @@ Through a covenant relationship with God, our own lives can become a living symb
 
 [^46]: See Russell M. Nelson, “[The Everlasting Covenant](https://www.churchofjesuschrist.org/study/liahona/2022/10/04-the-everlasting-covenant?lang=eng&id=p57#p57),” 11.
 
-
-
-
-#Baptism #Covenants #Discipleship #Jesus_Christ #Sacrament #Symbols #Temples

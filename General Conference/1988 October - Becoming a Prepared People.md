@@ -1,7 +1,5 @@
 # Becoming a Prepared People
 
-Ezra Taft Benson
-
 By Barbara W. Winder - *Relief Society General President*
 
 *Given in the October session of the 1988 General Conference*
@@ -87,4 +85,3 @@ I know our Father lives and that Jesus is the Christ. We are engaged in his work
 
 
 
-#Preparation #Service #Spirituality

@@ -1,7 +1,5 @@
 # Fun and Happiness
 
-Gordon B. Hinckley
-
 By Elder Claudio R. M. Costa - *Of the Seventy*
 
 *Given in the October session of the 2002 General Conference*
@@ -69,4 +67,3 @@ These things are part of my testimony of the truth, and I share them with you, m
 
 
 
-#Joy #Obedience #Plan_Of_Salvation

@@ -1,7 +1,5 @@
 # “Trust in the Lord”
 
-Spencer W. Kimball
-
 By Elder L. Tom Perry - *Of the Council of the Twelve*
 
 *Given in the April session of the 1978 General Conference*
@@ -97,4 +95,3 @@ God lives. Jesus is the Christ. This is his church. This is my humble witness to
 
 
 
-#Example #House_Of_Israel #Joy

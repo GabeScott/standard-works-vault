@@ -1,7 +1,5 @@
 # Come unto Christ—Living as Latter-day Saints
 
-Russell M. Nelson
-
 By Elder John A. McCune - *Of the Seventy*
 
 *Given in the April session of the 2020 General Conference*
@@ -101,7 +99,3 @@ I bear witness that as we come unto Christ and live as Latter-day Saints, we wil
 
 [^19]: See [[Psalms 27.1|Psalm 27:1]].
 
-
-
-
-#Adversity #Church_Organization #Faith #Jesus_Christ

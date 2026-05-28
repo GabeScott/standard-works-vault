@@ -1,7 +1,5 @@
 # “The Things of My Soul”
 
-Ezra Taft Benson
-
 By Elder Boyd K. Packer - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1986 General Conference*
@@ -185,4 +183,3 @@ I bear witness that the Book of Mormon is true—that it is another testament of
 
 
 
-#Book_Of_Mormon

@@ -1,7 +1,5 @@
 # “We Seek After These Things”
 
-Gordon B. Hinckley
-
 By President James E. Faust - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 1998 General Conference*
@@ -91,7 +89,3 @@ In His infinite wisdom, since the beginning of the earth, God has led His people
 
 [^16]: *Discourses of Brigham Young,* 280.
 
-
-
-
-#Character #Endurance #Honesty #Jesus_Christ #Missionary_Work #Morality #Priesthood

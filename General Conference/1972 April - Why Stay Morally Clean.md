@@ -1,7 +1,5 @@
 # Why Stay Morally Clean
 
-Wilford G. Edling
-
 By Elder Boyd K. Packer - *Of the Council of the Twelve*
 
 *Given in the April session of the 1972 General Conference*
@@ -131,4 +129,3 @@ I pray God’s blessings upon you, our youth. May our Heavenly Father watch over
 
 
 
-#Love #Morality

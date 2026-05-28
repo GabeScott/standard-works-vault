@@ -1,7 +1,5 @@
 # Until We Meet Again
 
-Thomas S. Monson
-
 By President Thomas S. Monson - *President of the Church*
 
 *Given in the April session of the 2013 General Conference*
@@ -39,7 +37,3 @@ Until we meet again in six months, I pray that the Lord will bless and keep you,
 
 [^2]: [[Revelation 3.20|Revelation 3:20]].
 
-
-
-
-#Gratitude #Prayer

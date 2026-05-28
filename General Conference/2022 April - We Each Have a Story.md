@@ -1,7 +1,5 @@
 # We Each Have a Story
 
-Russell M. Nelson
-
 By Elder Gerrit W. Gong - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2022 General Conference*
@@ -143,7 +141,3 @@ Praise God’s plan of happiness, Jesus Christ’s Atonement, continuing restora
 
 [^28]: See [[Genesis 1.4|Genesis 1:4, 31]][[Genesis 1.31|]].
 
-
-
-
-#Divine_Nature #Family #Family_History #Temple_Work

@@ -1,7 +1,5 @@
 # A Missionary Opportunity
 
-Spencer W. Kimball
-
 By Elder Carlos E. Asay - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1976 General Conference*
@@ -31,4 +29,3 @@ I pray the Lord will bless me and make me capable and equal to the task ahead, t
 
 
 
-#Missionary_Work

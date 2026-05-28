@@ -1,7 +1,5 @@
 # “God Be with You Till We Meet Again”
 
-Gordon B. Hinckley
-
 By President Thomas S. Monson - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 1990 General Conference*
@@ -46,4 +44,3 @@ To the membership of the Church and to God’s children everywhere, our prophet,
 
 
 
-#Example #Prophets

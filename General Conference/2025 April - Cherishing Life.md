@@ -1,7 +1,5 @@
 # Cherishing Life
 
-Dallin H. Oaks
-
 By Elder Neil L. Andersen - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2025 General Conference*
@@ -147,7 +145,3 @@ My dear brothers and sisters, the diminishing love for unborn children worldwide
 
 [^23]: Other resources that may be helpful: Topics and Questions, “[Unwed Pregnancy](https://www.churchofjesuschrist.org/study/manual/gospel-topics/unwed-pregnancy?lang=eng),” Gospel Library; “[Single Expectant Parents](https://www.churchofjesuschrist.org/study/manual/general-handbook/38-church-policies-and-guidelines?lang=eng&id=title97#title97),” *General Handbook*, 38.6.19; Counseling Resources, “[Single Expectant Parents](https://www.churchofjesuschrist.org/study/manual/counseling-resources/single-expectant-parents?lang=eng),” Gospel Library.
 
-
-
-
-#Abortion #Children #Family #Love

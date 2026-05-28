@@ -1,7 +1,5 @@
 # Family Traditions
 
-Thomas S. Monson
-
 By Elder L. Tom Perry - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1990 General Conference*
@@ -83,4 +81,3 @@ This is the Lord’s work in which we are engaged. God lives! Jesus is the Chris
 
 
 
-#Family #Freedom #House_Of_Israel #Temples

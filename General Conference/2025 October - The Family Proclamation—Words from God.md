@@ -1,7 +1,5 @@
 # The Family Proclamation—Words from God
 
-Dallin H. Oaks
-
 By Elder Ronald A. Rasband - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2025 General Conference*
@@ -137,7 +135,3 @@ Our Father in Heaven has provided the proclamation on the family to help guide u
 
 [^30]: [[Philippians 4.7|Philippians 4:7]].
 
-
-
-
-#Divine_Nature #Family #Marriage

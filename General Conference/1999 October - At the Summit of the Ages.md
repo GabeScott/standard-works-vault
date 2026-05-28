@@ -1,7 +1,5 @@
 # At the Summit of the Ages
 
-Gordon B. Hinckley
-
 By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the October session of the 1999 General Conference*
@@ -125,7 +123,3 @@ May God bless us with a sense of our place in history and, having been given tha
 
 [^1]: *The Decameron of Giovanni Boccaccio,* trans. Richard Aldington (1930), 7.
 
-
-
-
-#Apostasy #Atonement #Church_History #Dispensations #Jesus_Christ #Love #Priesthood #Prophecy #Restoration #Resurrection

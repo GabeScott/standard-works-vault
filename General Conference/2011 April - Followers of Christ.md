@@ -1,7 +1,5 @@
 # Followers of Christ
 
-Thomas S. Monson
-
 By Elder Walter F. González - *Of the Presidency of the Seventy*
 
 *Given in the April session of the 2011 General Conference*
@@ -83,7 +81,3 @@ I testify that we are happier when we follow the teachings of the gospel of Jesu
 
 [^16]: See, for example, [[3 Nephi 18.7|3 Nephi 18:7–11]][[3 Nephi 18.8|]][[3 Nephi 18.9|]][[3 Nephi 18.10|]][[3 Nephi 18.11|]].
 
-
-
-
-#Covenants #Discipleship #Jesus_Christ #Love

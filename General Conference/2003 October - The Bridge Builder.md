@@ -1,7 +1,5 @@
 # The Bridge Builder
 
-Gordon B. Hinckley
-
 By President Thomas S. Monson - *First Counselor in the First Presidency*
 
 *Given in the October session of the 2003 General Conference*
@@ -181,7 +179,3 @@ That we may have the wisdom and determination to cross the bridges the Savior bu
 
 [^17]: [[1 Corinthians 15.22|1 Corinthians 15:22]].
 
-
-
-
-#Jesus_Christ #Obedience #Prayer #Service

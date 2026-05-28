@@ -1,7 +1,5 @@
 # Finding One’s Identity
 
-Ezra Taft Benson
-
 By Bishop Victor L. Brown - *Presiding Bishop*
 
 *Given in the April session of the 1983 General Conference*
@@ -109,4 +107,3 @@ I bear you my testimony that we can only find individual identity and happiness 
 
 
 
-#Jesus_Christ #Self-Esteem

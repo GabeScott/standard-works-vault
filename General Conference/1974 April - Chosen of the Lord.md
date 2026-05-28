@@ -1,7 +1,5 @@
 # Chosen of the Lord
 
-Spencer W. Kimball
-
 By President N. Eldon Tanner - *First Counselor in the First Presidency*
 
 *Given in the April session of the 1974 General Conference*
@@ -103,4 +101,3 @@ In the name of Jesus Christ. Amen.
 
 
 
-#Church_Leaders

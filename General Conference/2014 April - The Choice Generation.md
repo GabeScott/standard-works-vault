@@ -1,7 +1,5 @@
 # The Choice Generation
 
-Thomas S. Monson
-
 By Randall L. Ridd - *Second Counselor in the Young Men General Presidency*
 
 *Given in the April session of the 2014 General Conference*
@@ -63,4 +61,3 @@ I testify that this is the Lord’s Church. You were chosen to participate in Hi
 
 
 
-#Agency #Prayer #Scriptures #Technology

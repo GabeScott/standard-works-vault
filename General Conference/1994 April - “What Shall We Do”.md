@@ -1,7 +1,5 @@
 # “What Shall We Do?”
 
-James E. Faust
-
 By Elder Hans B. Ringger - *Of the Seventy*
 
 *Given in the April session of the 1994 General Conference*
@@ -49,4 +47,3 @@ In the name of Jesus Christ, amen.
 
 
 
-#Adversity #Commandments #Faith #God_The_Father #Honesty #Idol_Worship #Joy #Plan_Of_Salvation #Prophets #Service #Temptation

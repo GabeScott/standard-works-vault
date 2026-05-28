@@ -1,7 +1,5 @@
 # Clean Hands and a Pure Heart
 
-Gordon B. Hinckley
-
 By Elder David A. Bednar - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2007 General Conference*
@@ -79,4 +77,3 @@ May you and I repent with sincerity of heart and truly come unto Christ. I pray 
 
 
 
-#Atonement #Morality #Repentance

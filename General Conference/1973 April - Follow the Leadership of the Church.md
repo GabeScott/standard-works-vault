@@ -1,7 +1,5 @@
 # Follow the Leadership of the Church
 
-Harold B. Lee
-
 By President Harold B. Lee - *President of the Church*
 
 *Given in the April session of the 1973 General Conference*
@@ -91,4 +89,3 @@ So I bear you that witness and leave you my blessing this night, and pray God’
 
 
 
-#Priesthood #Youth

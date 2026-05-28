@@ -1,7 +1,5 @@
 # Our Own Liahona
 
-Spencer W. Kimball
-
 By President Spencer W. Kimball - *President of the Church*
 
 *Given in the October session of the 1976 General Conference*
@@ -47,4 +45,3 @@ Brethren, we’ve heard some wonderful messages here tonight. May the Lord bless
 
 
 
-#Holy_Ghost #Spirituality

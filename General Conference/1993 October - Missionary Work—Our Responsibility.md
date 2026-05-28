@@ -1,7 +1,5 @@
 # Missionary Work—Our Responsibility
 
-Gordon B. Hinckley
-
 By Elder David B. Haight - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1993 General Conference*
@@ -77,4 +75,3 @@ When that glorious day comes, may each of us have some part in it, I humbly pray
 
 
 
-#Missionary_Work #Preparation #Testimony

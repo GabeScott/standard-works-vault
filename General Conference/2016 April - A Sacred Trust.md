@@ -1,7 +1,5 @@
 # A Sacred Trust
 
-Cheryl A. Esplin
-
 By President Thomas S. Monson - *President of the Church*
 
 *Given in the April session of the 2016 General Conference*
@@ -35,4 +33,3 @@ As we now conclude this general priesthood session, I say to you that you “are
 
 
 
-#Divine_Nature #Priesthood #Worthiness

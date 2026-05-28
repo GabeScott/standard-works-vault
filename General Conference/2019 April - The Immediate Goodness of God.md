@@ -1,7 +1,5 @@
 # The Immediate Goodness of God
 
-Ulisses Soares
-
 By Elder Kyle S. McKay - *Of the Seventy*
 
 *Given in the April session of the 2019 General Conference*
@@ -85,7 +83,3 @@ I bear witness that Jesus Christ is the Great Deliverer, and in His name, I prom
 
 [^14]: [[1 Nephi 5.15|1 Nephi 5:15]].
 
-
-
-
-#Love

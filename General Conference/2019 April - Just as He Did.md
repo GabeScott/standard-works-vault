@@ -1,7 +1,5 @@
 # Just as He Did
 
-Ulisses Soares
-
 By Bishop W. Christopher Waddell - *Second Counselor in the Presiding Bishopric*
 
 *Given in the April session of the 2019 General Conference*
@@ -101,7 +99,3 @@ I testify that because He “finished,” there is always hope. In the name of J
 
 [^17]: [[D&C 19.18|Doctrine and Covenants 19:18–19]][[D&C 19.19|]].
 
-
-
-
-#Conversion #Jesus_Christ #Ministering #Service

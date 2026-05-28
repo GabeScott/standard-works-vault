@@ -1,7 +1,5 @@
 # “Train Up a Child”
 
-Ezra Taft Benson
-
 By Elder L. Tom Perry - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1988 General Conference*
@@ -79,4 +77,3 @@ May the Lord bless us with the desire to instill in the lives of our children a 
 
 
 
-#Children #Parenthood #Responsibility

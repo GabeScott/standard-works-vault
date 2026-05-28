@@ -1,7 +1,5 @@
 # Is It Still Wonderful to You?
 
-Cheryl A. Esplin
-
 By Bishop Gérald Caussé - *First Counselor in the Presiding Bishopric*
 
 *Given in the April session of the 2015 General Conference*
@@ -81,7 +79,3 @@ That we may always have eyes that see, ears that hear, and hearts that perceive 
 
 [^10]: “I Stand All Amazed,” *Hymns,* no. 193.
 
-
-
-
-#Faith #Holy_Ghost #Miracles

@@ -1,7 +1,5 @@
 # “May the Kingdom of God Go Forth”
 
-N. Eldon Tanner
-
 By President Harold B. Lee - *President of the Church*
 
 *Given in the October session of the 1972 General Conference*
@@ -95,4 +93,3 @@ I bear that testimony with all the conviction of my soul and leave my blessing u
 
 
 
-#Church_Leaders #Leadership

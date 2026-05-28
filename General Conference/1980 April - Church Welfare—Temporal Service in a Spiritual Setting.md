@@ -1,7 +1,5 @@
 # Church Welfare—Temporal Service in a Spiritual Setting
 
-Spencer W. Kimball
-
 By President Marion G. Romney - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 1980 General Conference*
@@ -89,4 +87,3 @@ It is my prayer that each and every one of us will learn and apply these fundame
 
 
 
-#Welfare

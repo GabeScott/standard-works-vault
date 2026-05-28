@@ -1,7 +1,5 @@
 # Senior Missionaries and the Gospel
 
-Gordon B. Hinckley
-
 By Elder Russell M. Nelson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2004 General Conference*
@@ -113,7 +111,3 @@ As one among the “special witnesses of the name of Christ in all the world,”
 
 [^21]: [[D&C 107.23|D&C 107:23]].
 
-
-
-
-#Couple_Missionaries #Jesus_Christ #Missionary_Work

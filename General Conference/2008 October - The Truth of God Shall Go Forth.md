@@ -1,7 +1,5 @@
 # The Truth of God Shall Go Forth
 
-Thomas S. Monson
-
 By Elder M. Russell Ballard - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2008 General Conference*
@@ -73,4 +71,3 @@ This is a great time to live, brothers and sisters, and it is up to us to carry 
 
 
 
-#Church_Growth #Church_History #Missionary_Work

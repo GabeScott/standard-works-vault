@@ -1,7 +1,5 @@
 # Church Government through Councils
 
-Spencer W. Kimball
-
 By President Ezra Taft Benson - *Of the Quorum of the Twelve*
 
 *Given in the April session of the 1979 General Conference*
@@ -149,4 +147,3 @@ Brethren and sisters, we want you to know that our whole interest has been to do
 
 
 
-#Councils

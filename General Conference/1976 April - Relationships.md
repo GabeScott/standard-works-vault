@@ -1,7 +1,5 @@
 # Relationships
 
-Spencer W. Kimball
-
 By Elder William Grant Bangerter - *Assistant to the Council of the Twelve*
 
 *Given in the April session of the 1976 General Conference*
@@ -63,4 +61,3 @@ Putting the Lord’s family together on eternal terms constitutes the purpose fo
 
 
 
-#Family_History

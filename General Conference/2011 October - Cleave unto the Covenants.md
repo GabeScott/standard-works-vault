@@ -1,7 +1,5 @@
 # Cleave unto the Covenants
 
-Richard G. Scott
-
 By Barbara Thompson - *Second Counselor in the Relief Society General Presidency*
 
 *Given in the October session of the 2011 General Conference*
@@ -131,7 +129,3 @@ Dear sisters, I love you and hope you will experience this great joy in your own
 
 [^23]: [[D&C 25.13|Doctrine and Covenants 25:13]].
 
-
-
-
-#Covenants #Temples

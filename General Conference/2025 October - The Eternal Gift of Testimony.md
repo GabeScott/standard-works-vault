@@ -1,7 +1,5 @@
 # The Eternal Gift of Testimony
 
-Dallin H. Oaks
-
 By Elder Kevin G. Brown - *Of the Seventy*
 
 *Given in the October session of the 2025 General Conference*
@@ -175,7 +173,3 @@ Brothers and sisters, a testimony of Jesus Christ was never meant to be a tempor
 
 [^33]: See [[Moroni 10.30|Moroni 10:30]].
 
-
-
-
-#Agency #God_The_Father #Holy_Ghost #Testimony

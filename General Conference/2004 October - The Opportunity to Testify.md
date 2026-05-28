@@ -1,7 +1,5 @@
 # The Opportunity to Testify
 
-Gordon B. Hinckley
-
 By Elder Dieter F. Uchtdorf - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2004 General Conference*
@@ -63,4 +61,3 @@ These things I know in my heart and in my mind. And of these things I testify in
 
 
 
-#Humility #Quorum_Of_The_Twelve_Apostles #Service #Testimony

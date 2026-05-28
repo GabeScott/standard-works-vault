@@ -1,7 +1,5 @@
 # More Joy and Rejoicing
 
-Spencer W. Kimball
-
 By Elder Marion D. Hanks - *Of the First Council of the Seventy*
 
 *Given in the October session of the 1976 General Conference*
@@ -75,4 +73,3 @@ God grant that we may make it so. In the name of Jesus Christ. Amen.
 
 
 
-#Compassion #Love

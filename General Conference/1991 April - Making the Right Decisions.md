@@ -1,7 +1,5 @@
 # Making the Right Decisions
 
-Thomas S. Monson
-
 By Elder Richard G. Scott - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1991 General Conference*
@@ -77,4 +75,3 @@ I know they love you. They know each one of you personally. They know every deta
 
 
 
-#Example #Morality #Obedience #Prayer #Spirituality #Youth

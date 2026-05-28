@@ -1,7 +1,5 @@
 # Commandments to Live By
 
-Spencer W. Kimball
-
 By Elder O. Leslie Stone - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1979 General Conference*
@@ -99,4 +97,3 @@ I pray that these brethren may be blessed with inspiration at all times. Further
 
 
 
-#Commandments #Obedience

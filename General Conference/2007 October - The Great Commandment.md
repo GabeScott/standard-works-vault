@@ -1,7 +1,5 @@
 # The Great Commandment
 
-Gordon B. Hinckley
-
 By Elder Joseph B. Wirthlin - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2007 General Conference*
@@ -175,7 +173,3 @@ I pray that our hearts may be filled with that love and that we may reach out to
 
 [^25]: [[John 13.34|John 13:34]].
 
-
-
-
-#Charity #Compassion #Love

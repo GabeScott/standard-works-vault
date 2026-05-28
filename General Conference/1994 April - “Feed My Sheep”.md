@@ -1,7 +1,5 @@
 # “Feed My Sheep”
 
-James E. Faust
-
 By Elder Richard P. Lindsay - *Of the Seventy*
 
 *Given in the April session of the 1994 General Conference*
@@ -65,4 +63,3 @@ I leave my witness that this is God’s work. It is the most important work in a
 
 
 
-#Media #Priesthood #Service

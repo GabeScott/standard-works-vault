@@ -1,7 +1,5 @@
 # Prayer and Revelation
 
-Spencer W. Kimball
-
 By President Marion G. Romney - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 1978 General Conference*
@@ -185,4 +183,3 @@ To the truthfulness of these divine teachings concerning prayer and revelation, 
 
 
 
-#Family #Prayer #Spirituality

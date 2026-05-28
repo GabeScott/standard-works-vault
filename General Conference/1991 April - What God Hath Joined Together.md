@@ -1,7 +1,5 @@
 # What God Hath Joined Together
 
-Thomas S. Monson
-
 By President Gordon B. Hinckley - *First Counselor in the First Presidency*
 
 *Given in the April session of the 1991 General Conference*
@@ -107,4 +105,3 @@ God bless the homes of our people. May He bless those homes that there may be lo
 
 
 
-#Divorce #Marriage

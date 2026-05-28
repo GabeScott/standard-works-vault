@@ -1,7 +1,5 @@
 # Pulling in the Gospel Net
 
-Ezra Taft Benson
-
 By Elder Joseph B. Wirthlin - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1986 General Conference*
@@ -79,4 +77,3 @@ In closing, brothers and sisters, I want to say that this is the way we tried to
 
 
 
-#Faith #Missionary_Work #Temples #Testimony

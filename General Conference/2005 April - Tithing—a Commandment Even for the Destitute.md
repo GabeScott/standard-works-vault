@@ -1,7 +1,5 @@
 # Tithing—a Commandment Even for the Destitute
 
-Gordon B. Hinckley
-
 By Elder Lynn G. Robbins - *Of the Seventy*
 
 *Given in the April session of the 2005 General Conference*
@@ -81,7 +79,3 @@ I am so grateful for the Savior, who was the perfect example of obedience throug
 
 [^1]: *The Annotated Christmas Carol,* ed. Michael Patrick Hearn (1976), 69; emphasis added.
 
-
-
-
-#Blessings #Faith #Sacrifice #Tithing

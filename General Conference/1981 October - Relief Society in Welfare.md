@@ -1,7 +1,5 @@
 # Relief Society in Welfare
 
-Gordon B. Hinckley
-
 By Marian R. Boyer - *First Counselor in the Relief Society General Presidency*
 
 *Given in the October session of the 1981 General Conference*
@@ -65,4 +63,3 @@ I ask it in the name of Jesus Christ, amen.
 
 
 
-#Relief_Society #Welfare

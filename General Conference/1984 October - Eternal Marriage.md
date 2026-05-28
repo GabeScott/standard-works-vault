@@ -1,7 +1,5 @@
 # Eternal Marriage
 
-Gordon B. Hinckley
-
 By Elder Marion D. Hanks - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1984 General Conference*
@@ -101,4 +99,3 @@ We sat in a room the other night with our five children and their eternal partne
 
 
 
-#Marriage

@@ -1,7 +1,5 @@
 # Remember What Matters Most
 
-Gary E. Stevenson
-
 By President M. Russell Ballard - *Acting President of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2023 General Conference*
@@ -89,7 +87,3 @@ In my ministry, I have learned what matters most is our relationships with Heave
 
 [^5]: [[Alma 5.45|Alma 5:45–46]][[Alma 5.46|]].
 
-
-
-
-#Family #Holy_Ghost #Jesus_Christ #Priorities #Promptings #Testimony

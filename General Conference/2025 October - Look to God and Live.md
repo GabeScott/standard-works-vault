@@ -1,7 +1,5 @@
 # Look to God and Live
 
-Dallin H. Oaks
-
 By Elder D. Todd Christofferson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2025 General Conference*
@@ -113,7 +111,3 @@ I bear testimony of the Father, Son, and Holy Ghost, who in perfect unity of wor
 
 [^25]: [[3 Nephi 15.9|3 Nephi 15:9]].
 
-
-
-
-#Adversity #Commandments #Healing #Jesus_Christ

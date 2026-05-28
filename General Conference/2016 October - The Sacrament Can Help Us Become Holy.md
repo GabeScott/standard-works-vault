@@ -1,7 +1,5 @@
 # The Sacrament Can Help Us Become Holy
 
-Jean B. Bingham
-
 By Elder Peter F. Meurs - *Of the Seventy*
 
 *Given in the October session of the 2016 General Conference*
@@ -38,7 +36,7 @@ The sacrament hymn is an especially important part of our sacrament experience. 
 
 As we sing a hymn in preparation to partake of the emblems, the words can become part of our covenant commitment. Consider, for example: “We love thee, Lord; our hearts are full. We’ll walk thy chosen way.”[^6]
 
-## 4. Spiritually Participate in the Sacrament Prayers (See [[Moroni 4.1|Moroni 4–5]])
+## 4. Spiritually Participate in the Sacrament Prayers (See [[Moroni 4.1|Moroni 4–5]][[Moroni 4.2|]][[Moroni 4.3|]])
 
 Instead of tuning out the familiar words of the sacrament prayers, we can learn much and feel even more as we participate spiritually by considering the commitments and associated blessings included in these sacred prayers.
 
@@ -109,7 +107,3 @@ I testify of the multitude of blessings available to us as we increase our prepa
 
 [^7]: David A. Bednar, “[[2016 April - Always Retain a Remission of Your Sins.md|Always Retain a Remission of Your Sins]],” *Ensign* or *Liahona,* May 2016, 61–62.
 
-
-
-
-#Holy_Ghost #Jesus_Christ #Music #Preparation #Sacrament

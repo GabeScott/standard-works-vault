@@ -1,7 +1,5 @@
 # As We Meet Together Again
 
-Thomas S. Monson
-
 By President Thomas S. Monson - *President of the Church*
 
 *Given in the October session of the 2010 General Conference*
@@ -39,4 +37,3 @@ Now, my brothers and sisters, may you be attuned to the Spirit of the Lord as we
 
 
 
-#General_Conference #Missionary_Work #Temples

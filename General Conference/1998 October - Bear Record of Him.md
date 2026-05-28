@@ -1,7 +1,5 @@
 # Bear Record of Him
 
-Gordon B. Hinckley
-
 By Susan L. Warner - *Second Counselor in the Primary General Presidency*
 
 *Given in the October session of the 1998 General Conference*
@@ -67,4 +65,3 @@ In His sacred name, Jesus Christ, amen.
 
 
 
-#Children #Creation #Family_Home_Evening #Holy_Ghost #Jesus_Christ #Love #Parenthood #Prayer #Scripture_Study #Testimony

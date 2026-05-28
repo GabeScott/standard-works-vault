@@ -1,7 +1,5 @@
 # Relief Society: A Sacred Work
 
-Thomas S. Monson
-
 By Julie B. Beck - *Relief Society General President*
 
 *Given in the October session of the 2009 General Conference*
@@ -137,7 +135,3 @@ I rejoice to know that the Lord loves us enough to guide us in this work through
 
 [^11]: *Teachings: Joseph Smith,* 144.
 
-
-
-
-#Faith #Relief_Society #Service #Visiting_Teaching

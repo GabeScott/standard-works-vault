@@ -1,7 +1,5 @@
 # Medicine for the Soul
 
-Wilford G. Edling
-
 By Elder Sterling W. Sill - *Assistant to the Council of the Twelve*
 
 *Given in the April session of the 1972 General Conference*
@@ -63,4 +61,3 @@ For this I humbly pray in the name of Jesus Christ. Amen.
 
 
 
-#Literature

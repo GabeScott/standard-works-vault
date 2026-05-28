@@ -1,7 +1,5 @@
 # Our Moral Environment
 
-Thomas S. Monson
-
 By Elder Boyd K. Packer - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1992 General Conference*
@@ -141,4 +139,3 @@ And may we have the protection of Him who is our Father and our God, and may we 
 
 
 
-#Abuse #Marriage #Morality #Repentance

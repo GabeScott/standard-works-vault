@@ -1,7 +1,5 @@
 # Developing Faith
 
-Ezra Taft Benson
-
 By Elder A. Theodore Tuttle - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1986 General Conference*
@@ -97,4 +95,3 @@ I understand better what that means now. I am grateful for his atonement in our 
 
 
 
-#Faith #Family

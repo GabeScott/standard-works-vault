@@ -1,7 +1,5 @@
 # Strengthen Thy Brethren
 
-Gordon B. Hinckley
-
 By Elder Robert J. Whetten - *Of the Seventy*
 
 *Given in the April session of the 2005 General Conference*
@@ -119,7 +117,3 @@ It is my prayer that our Heavenly Father will bless each of us with that love fo
 
 [^25]: [[Moroni 7.48|Moroni 7:48]].
 
-
-
-
-#Activation #Church_Growth #Conversion #Kindness #Love #Service

@@ -1,7 +1,5 @@
 # Protect the Children
 
-Thomas S. Monson
-
 By Elder Dallin H. Oaks - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2012 General Conference*
@@ -137,7 +135,3 @@ I pray that we will humble ourselves as little children and reach out to protect
 
 [^25]: Latter-day Saints are especially committed to parenthood as one of the most important goals in life (see Pew Research Center’s Forum on Religion and Public Life, *Mormons in America: Certain in Their Beliefs, Uncertain of Their Place in Society,* Jan. 12, 2012, 10, 16, 51).
 
-
-
-
-#Abortion #Children #Family #Marriage

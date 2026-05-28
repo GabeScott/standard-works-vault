@@ -1,7 +1,5 @@
 # Deceive Me Not
 
-Jeffrey R. Holland
-
 By Elder Gary E. Stevenson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2019 General Conference*
@@ -137,7 +135,3 @@ I bear my witness of the *Holy One of Israel*—even the name of Jesus Christ. I
 
 [^16]: “True to the Faith,” *Hymns,* no. 254.
 
-
-
-
-#Commandments #Satan #Spirituality

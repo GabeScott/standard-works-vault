@@ -1,7 +1,5 @@
 # What Shall a Man Give in Exchange for His Soul?
 
-Thomas S. Monson
-
 By Elder Robert C. Gay - *Of the Seventy*
 
 *Given in the October session of the 2012 General Conference*
@@ -99,7 +97,3 @@ On a recent trip to Nicaragua, I noticed a plaque in the modest home of a family
 
 [^22]: See [[D&C 19.38|Doctrine and Covenants 19:38]].
 
-
-
-
-#Humility #Repentance #Sacrifice

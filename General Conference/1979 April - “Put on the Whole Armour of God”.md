@@ -1,7 +1,5 @@
 # “Put on the Whole Armour of God”
 
-Spencer W. Kimball
-
 By President N. Eldon Tanner - *First Counselor in the First Presidency*
 
 *Given in the April session of the 1979 General Conference*
@@ -176,4 +174,3 @@ I exhort all of you to listen closely to his messages and follow him. In the nam
 
 
 
-#Faith #Obedience #Safety

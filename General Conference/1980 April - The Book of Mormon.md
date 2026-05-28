@@ -1,7 +1,5 @@
 # The Book of Mormon
 
-Spencer W. Kimball
-
 By President Marion G. Romney - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 1980 General Conference*
@@ -108,7 +106,7 @@ And when the going gets rough and temptation to abandon the course of righteousn
 
 “Let us be faithful,” he said, “in keeping the commandments of the Lord; for behold he is mightier than all the earth, then why not mightier than Laban and his fifty, yea, or even than his tens of thousands?” ([[1 Nephi 4.1|1 Ne. 4:1]]; see also [[1 Nephi 3.15|1 Ne. 3:15]]).
 
-If our young folks become familiar with the teachings of the Book of Mormon, they will not only be inspired by the examples of Nephi, the 2,000 sons of Helaman (see [[Alma 53.1|Alma 53]]), and other great Book of Mormon characters to choose the right, they will also be so schooled in the principles of the gospel of Jesus Christ that they will be able to know and understand what is right.
+If our young folks become familiar with the teachings of the Book of Mormon, they will not only be inspired by the examples of Nephi, the 2,000 sons of Helaman (see [[Alma 53.1|Alma 53]][[Alma 53.2|]][[Alma 53.3|]][[Alma 53.4|]][[Alma 53.5|]][[Alma 53.6|]][[Alma 53.7|]][[Alma 53.8|]][[Alma 53.9|]][[Alma 53.10|]][[Alma 53.11|]][[Alma 53.12|]][[Alma 53.13|]][[Alma 53.14|]][[Alma 53.15|]][[Alma 53.16|]][[Alma 53.17|]][[Alma 53.18|]][[Alma 53.19|]][[Alma 53.20|]][[Alma 53.21|]][[Alma 53.22|]][[Alma 53.23|]]), and other great Book of Mormon characters to choose the right, they will also be so schooled in the principles of the gospel of Jesus Christ that they will be able to know and understand what is right.
 
 From almost every page of the book, there will come to them a moving testimony that Jesus is indeed the Christ, the Son of the living God, our Redeemer and Savior. This witness alone will be a sustaining anchor in every storm. In the Book of Mormon they will find the plainest explanation of Christ’s divine mission and his atonement to be found anywhere in sacred scriptures.
 
@@ -125,4 +123,3 @@ That we will seek these blessings through reading the Book of Mormon, I humbly p
 
 
 
-#Book_Of_Mormon #Scripture_Study

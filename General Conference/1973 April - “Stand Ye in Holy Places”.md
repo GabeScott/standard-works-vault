@@ -1,7 +1,5 @@
 # “Stand Ye in Holy Places”
 
-Harold B. Lee
-
 By President Harold B. Lee - *President of the Church*
 
 *Given in the April session of the 1973 General Conference*
@@ -85,4 +83,3 @@ May the Lord help us so to understand and do, and fill our stations, and not be 
 
 
 
-#Compassion #Forgiveness #Repentance

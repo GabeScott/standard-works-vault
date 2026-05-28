@@ -1,7 +1,5 @@
 # Mothers Teaching Children in the Home
 
-Thomas S. Monson
-
 By Elder L. Tom Perry - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2010 General Conference*
@@ -51,4 +49,3 @@ God bless you wonderful mothers and fathers in Zion. He has entrusted to your ca
 
 
 
-#Family #Home #Motherhood #Teaching

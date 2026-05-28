@@ -1,7 +1,5 @@
 # “Behold, the Lord Hath Shown unto Me Great and Marvelous Things”
 
-Gordon B. Hinckley
-
 By Elder L. Tom Perry - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1992 General Conference*
@@ -89,4 +87,3 @@ It is my witness to you that God lives, that Jesus is the Christ, the Son of the
 
 
 
-#Pride #Prophecy #Scriptures

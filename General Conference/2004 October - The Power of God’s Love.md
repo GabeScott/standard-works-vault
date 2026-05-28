@@ -1,7 +1,5 @@
 # The Power of God’s Love
 
-Gordon B. Hinckley
-
 By Elder John H. Groberg - *Of the Presidency of the Seventy*
 
 *Given in the October session of the 2004 General Conference*
@@ -67,4 +65,3 @@ I know He lives. I know He loves us. I know we can feel His love here and now. I
 
 
 
-#Charity #God_The_Father #Jesus_Christ #Love #Sacrament

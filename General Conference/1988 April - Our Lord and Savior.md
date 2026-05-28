@@ -1,7 +1,5 @@
 # Our Lord and Savior
 
-Ezra Taft Benson
-
 By Elder David B. Haight - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1988 General Conference*
@@ -118,4 +116,3 @@ It is my hope that we will all come to know and love our Lord through obedience 
 
 
 
-#Atonement #Jesus_Christ #Resurrection

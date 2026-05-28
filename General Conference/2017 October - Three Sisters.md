@@ -1,7 +1,5 @@
 # Three Sisters
 
-Sharon Eubank
-
 By President Dieter F. Uchtdorf - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 2017 General Conference*
@@ -195,7 +193,7 @@ I leave you my blessing as an Apostle of the Lord that you will find the strengt
 
 [^5]: [[Matthew 5.44|Matthew 5:44]].
 
-[^6]: See [[1 Nephi 8.1|1 Nephi 8]].
+[^6]: See [[1 Nephi 8.1|1 Nephi 8]][[1 Nephi 8.2|]][[1 Nephi 8.3|]][[1 Nephi 8.4|]][[1 Nephi 8.5|]][[1 Nephi 8.6|]][[1 Nephi 8.7|]][[1 Nephi 8.8|]][[1 Nephi 8.9|]][[1 Nephi 8.10|]][[1 Nephi 8.11|]][[1 Nephi 8.12|]][[1 Nephi 8.13|]][[1 Nephi 8.14|]][[1 Nephi 8.15|]][[1 Nephi 8.16|]][[1 Nephi 8.17|]][[1 Nephi 8.18|]][[1 Nephi 8.19|]][[1 Nephi 8.20|]][[1 Nephi 8.21|]][[1 Nephi 8.22|]][[1 Nephi 8.23|]][[1 Nephi 8.24|]][[1 Nephi 8.25|]][[1 Nephi 8.26|]][[1 Nephi 8.27|]][[1 Nephi 8.28|]][[1 Nephi 8.29|]][[1 Nephi 8.30|]][[1 Nephi 8.31|]][[1 Nephi 8.32|]][[1 Nephi 8.33|]][[1 Nephi 8.34|]][[1 Nephi 8.35|]][[1 Nephi 8.36|]][[1 Nephi 8.37|]][[1 Nephi 8.38|]].
 
 [^7]: See “I Am a Child of God,” *Children’s Songbook,* 2–3.
 
@@ -205,7 +203,3 @@ I leave you my blessing as an Apostle of the Lord that you will find the strengt
 
 [^10]: See [[Alma 5.26|Alma 5:26]].
 
-
-
-
-#Discipleship #Divine_Nature #Jesus_Christ #Joy

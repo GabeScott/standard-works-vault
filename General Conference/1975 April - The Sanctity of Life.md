@@ -1,7 +1,5 @@
 # The Sanctity of Life
 
-Spencer W. Kimball
-
 By Elder James E. Faust - *Assistant to the Council of the Twelve*
 
 *Given in the April session of the 1975 General Conference*
@@ -59,4 +57,3 @@ I leave my testimony that the most precious of all of God’s creations is etern
 
 
 
-#Abortion

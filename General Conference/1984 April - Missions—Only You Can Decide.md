@@ -1,7 +1,5 @@
 # Missions—Only You Can Decide
 
-Gordon B. Hinckley
-
 By Devin G. Durrant - *BYU First Ward, BYU Sixth Stake*
 
 *Given in the April session of the 1984 General Conference*
@@ -73,4 +71,3 @@ I testify of these things in the name of Jesus Christ, amen.
 
 
 
-#Missionary_Work

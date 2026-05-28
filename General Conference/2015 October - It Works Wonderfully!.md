@@ -1,7 +1,5 @@
 # It Works Wonderfully!
 
-Rosemary M. Wixom
-
 By President Dieter F. Uchtdorf - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 2015 General Conference*
@@ -175,7 +173,3 @@ This is my hope, my prayer, my testimony, and my blessing in the name of Jesus C
 
 [^18]: [[2 Corinthians 11.3|2 Corinthians 11:3]].
 
-
-
-
-#Church_Membership #Discipleship #Divine_Nature #Grace #Plan_Of_Salvation #Truth

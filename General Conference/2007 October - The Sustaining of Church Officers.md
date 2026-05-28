@@ -1,7 +1,5 @@
 # The Sustaining of Church Officers
 
-Gordon B. Hinckley
-
 By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the October session of the 2007 General Conference*

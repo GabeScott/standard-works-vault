@@ -1,7 +1,5 @@
 # Mercy—The Divine Gift
 
-Thomas S. Monson
-
 By President Thomas S. Monson - *First Counselor in the First Presidency*
 
 *Given in the April session of the 1995 General Conference*
@@ -150,7 +148,3 @@ My sincere and humble prayer this Sabbath day is that each of us may be the prov
 
 [^15]: [[Matthew 5.1|Matt. 5:1–2, 7]][[Matthew 5.2|]][[Matthew 5.7|]].
 
-
-
-
-#Bishops #Brotherhood #Forgiveness #Mercy #Priesthood

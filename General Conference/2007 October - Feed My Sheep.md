@@ -1,7 +1,5 @@
 # Feed My Sheep
 
-Gordon B. Hinckley
-
 By Silvia H. Allred - *First Counselor in the Relief Society General Presidency*
 
 *Given in the October session of the 2007 General Conference*
@@ -81,7 +79,3 @@ It is my prayer that we will pledge an increased commitment to extend our arms o
 
 [^5]: Personal correspondence.
 
-
-
-
-#Friendship #Service #Visiting_Teaching

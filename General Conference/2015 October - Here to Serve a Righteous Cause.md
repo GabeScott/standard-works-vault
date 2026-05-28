@@ -1,7 +1,5 @@
 # Here to Serve a Righteous Cause
 
-Rosemary M. Wixom
-
 By Carol F. McConkie - *First Counselor in the Young Women General Presidency*
 
 *Given in the October session of the 2015 General Conference*
@@ -95,7 +93,3 @@ May we choose to serve a righteous cause as valiant emissaries of our Lord Jesus
 
 [^24]: Gordon B. Hinckley, *Ensign,* Nov. 1995, 72.
 
-
-
-
-#Covenants #Divine_Nature #Family #Plan_Of_Salvation #Repentance #Service

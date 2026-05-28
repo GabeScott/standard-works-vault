@@ -1,7 +1,5 @@
 # Is There Not a Cause?
 
-Spencer W. Kimball
-
 By Bishop Victor L. Brown - *Presiding Bishop*
 
 *Given in the October session of the 1974 General Conference*
@@ -79,4 +77,3 @@ Is there a cause? Most assuredly there is. I challenge each young person in this
 
 
 
-#Honesty #Spirituality #Youth

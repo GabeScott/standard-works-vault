@@ -1,7 +1,5 @@
 # To Look, Reach, and Come unto Christ
 
-Gordon B. Hinckley
-
 By Anne C. Pingree - *Second Counselor in the Relief Society General Presidency*
 
 *Given in the October session of the 2006 General Conference*
@@ -85,7 +83,3 @@ In the name of Jesus Christ, amen.
 
 [^13]: [[3 Nephi 25.2|3 Nephi 25:2]].
 
-
-
-
-#Charity #Jesus_Christ #Repentance

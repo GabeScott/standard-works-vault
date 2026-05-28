@@ -1,7 +1,5 @@
 # I Am a Child of God
 
-Cheryl A. Esplin
-
 By Elder Donald L. Hallstrom - *Of the Presidency of the Seventy*
 
 *Given in the April session of the 2016 General Conference*
@@ -96,7 +94,3 @@ In today’s world, no matter where we live and no matter what our circumstances
 
 [^11]: [[Mosiah 5.15|Mosiah 5:15]].
 
-
-
-
-#Adversity #Divine_Nature #Music #Opposition

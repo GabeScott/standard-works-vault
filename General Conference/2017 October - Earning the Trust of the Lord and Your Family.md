@@ -1,7 +1,5 @@
 # Earning the Trust of the Lord and Your Family
 
-Sharon Eubank
-
 By Elder Richard J. Maynes - *Of the Seventy*
 
 *Given in the October session of the 2017 General Conference*
@@ -81,7 +79,3 @@ Brethren, it is my prayer this evening that we might all first place our trust i
 
 [^7]: [[D&C 124.15|Doctrine and Covenants 124:15]].
 
-
-
-
-#Family #Fatherhood #Honesty #Integrity #Marriage #Peace #Trust

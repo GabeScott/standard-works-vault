@@ -1,7 +1,5 @@
 # A People of Sound Judgment
 
-Wilford G. Edling
-
 By Elder Mark E. Petersen - *Of the Council of the Twelve*
 
 *Given in the April session of the 1972 General Conference*
@@ -137,4 +135,3 @@ We appeal to you: Do not let prejudice blind you to the truth; open your hearts 
 
 
 
-#Prophets #Restoration

@@ -1,7 +1,5 @@
 # What Do We Hear?
 
-Spencer W. Kimball
-
 By President Spencer W. Kimball - *President of the Church*
 
 *Given in the April session of the 1974 General Conference*
@@ -117,4 +115,3 @@ We shall serve you, our people, and love you and do our utmost to guide you to y
 
 
 
-#Church_Leaders #Prophets

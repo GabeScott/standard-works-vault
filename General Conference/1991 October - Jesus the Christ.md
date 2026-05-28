@@ -1,7 +1,5 @@
 # Jesus the Christ
 
-Gordon B. Hinckley
-
 By Elder Robert L. Backman - *Of the Presidency of the Seventy*
 
 *Given in the October session of the 1991 General Conference*
@@ -131,4 +129,3 @@ In the name of Jesus Christ, amen.
 
 
 
-#Jesus_Christ #Missionary_Work #Resurrection

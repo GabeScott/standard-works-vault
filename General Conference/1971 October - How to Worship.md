@@ -1,7 +1,5 @@
 # How to Worship
 
-Joseph Fielding Smith
-
 By President Bruce R. McConkie - *Of the First Council of the Seventy*
 
 *Given in the October session of the 1971 General Conference*
@@ -97,4 +95,3 @@ In the name of the Lord Jesus Christ. Amen.
 
 
 
-#Jesus_Christ #Worship

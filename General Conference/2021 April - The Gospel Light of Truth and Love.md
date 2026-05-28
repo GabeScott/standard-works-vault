@@ -1,7 +1,5 @@
 # The Gospel Light of Truth and Love
 
-Russell M. Nelson
-
 By Elder Alan R. Walker - *Of the Seventy*
 
 *Given in the April session of the 2021 General Conference*
@@ -123,7 +121,3 @@ Brothers and sisters, may we be willing and decide today to engage ourselves and
 
 [^18]: *[Teachings of Presidents of the Church: Joseph Smith](https://www.churchofjesuschrist.org/study/manual/teachings-joseph-smith/chapter-11?lang=eng)* (2007), 142.
 
-
-
-
-#Covenants #Gospel #Love #Missionary_Work #Restoration #Temples #Truth

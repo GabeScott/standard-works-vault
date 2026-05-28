@@ -1,7 +1,5 @@
 # Pioneers All
 
-Gordon B. Hinckley
-
 By President Thomas S. Monson - *First Counselor in the First Presidency*
 
 *Given in the April session of the 1997 General Conference*
@@ -160,7 +158,3 @@ To all of you noble pioneers who go before, showing others the way to follow, I 
 
 [^15]: “Carry On,” *Hymns,* no. 255.
 
-
-
-
-#Church_Leaders #Faith #Friendship #Gratitude #Jesus_Christ #Love #Parents #Pioneers #Temples #Testimony

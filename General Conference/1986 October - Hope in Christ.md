@@ -1,7 +1,5 @@
 # Hope in Christ
 
-Ezra Taft Benson
-
 By Barbara W. Winder - *Relief Society General President*
 
 *Given in the October session of the 1986 General Conference*
@@ -71,4 +69,3 @@ I know that he lives. I know that he cares! This is my testimony and my hope for
 
 
 
-#Adversity #Hope #Jesus_Christ

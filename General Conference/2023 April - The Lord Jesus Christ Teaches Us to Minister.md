@@ -1,7 +1,5 @@
 # The Lord Jesus Christ Teaches Us to Minister
 
-Gary E. Stevenson
-
 By Elder Juan A. Uceda - *Of the Seventy*
 
 *Given in the April session of the 2023 General Conference*
@@ -89,7 +87,3 @@ The following Sunday he was back. He had a long conversation with his bishop and
 
 [^16]: [[Luke 15.20|Luke 15:20]].
 
-
-
-
-#Activation #Jesus_Christ #Love #Ministering

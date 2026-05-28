@@ -1,7 +1,5 @@
 # Eternity’s Great Gifts: Jesus Christ’s Atonement, Resurrection, Restoration
 
-Dallin H. Oaks
-
 By Elder Gerrit W. Gong - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2025 General Conference*
@@ -147,7 +145,3 @@ May we each find in Jesus Christ atonement, resurrection, and restoration—peac
 
 [^31]: [[John 3.16|John 3:16]].
 
-
-
-
-#Atonement #Easter #Jesus_Christ #Restoration #Resurrection

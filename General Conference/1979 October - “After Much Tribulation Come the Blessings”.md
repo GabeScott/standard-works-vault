@@ -1,7 +1,5 @@
 # “After Much Tribulation Come the Blessings”
 
-Spencer W. Kimball
-
 By Elder Adney Y. Komatsu - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1979 General Conference*
@@ -81,4 +79,3 @@ May we endure our trials and sufferings well. May we look to the Lord with faith
 
 
 
-#Adversity #Blessings

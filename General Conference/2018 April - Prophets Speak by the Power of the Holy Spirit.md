@@ -1,7 +1,5 @@
 # Prophets Speak by the Power of the Holy Spirit
 
-Henry B. Eyring
-
 By Elder Ulisses Soares - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2018 General Conference*
@@ -33,4 +31,3 @@ On this Easter day I solemnly testify that Jesus Christ is risen, He lives, and 
 
 
 
-#Prophets

@@ -1,7 +1,5 @@
 # Follow Joyously
 
-Spencer W. Kimball
-
 By Barbara B. Smith - *Relief Society General President*
 
 *Given in the October session of the 1980 General Conference*
@@ -89,4 +87,3 @@ Then as we attend area and multiregion council meetings and as we serve in this 
 
 
 
-#Home #Relief_Society

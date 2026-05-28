@@ -1,7 +1,5 @@
 # Response to the Call
 
-Spencer W. Kimball
-
 By Elder Rex C. Reeve - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1978 General Conference*
@@ -23,4 +21,3 @@ Now I leave you my witness that God lives and commit to you that I will do every
 
 
 
-#Testimony

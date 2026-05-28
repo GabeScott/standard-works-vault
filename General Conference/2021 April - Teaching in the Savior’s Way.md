@@ -1,7 +1,5 @@
 # Teaching in the Savior’s Way
 
-Russell M. Nelson
-
 By Jan E. Newman - *Second Counselor in the Sunday School General Presidency*
 
 *Given in the April session of the 2021 General Conference*
@@ -87,7 +85,3 @@ My dear friends in Christ, the responsibility rests squarely upon each of us to 
 
 [^11]: [[Moroni 7.48|Moroni 7:48]].
 
-
-
-
-#Conversion #Family #Jesus_Christ #Learning #Teaching

@@ -1,7 +1,5 @@
 # Small Temples—Large Blessings
 
-Gordon B. Hinckley
-
 By Elder David E. Sorensen - *Of the Presidency of the Seventy*
 
 *Given in the October session of the 1998 General Conference*
@@ -61,4 +59,3 @@ Brothers and sisters, the gates of heaven are open to us, and the Lord Jesus Chr
 
 
 
-#Family #Godhead #Holy_Ghost #Jesus_Christ #Priesthood #Temples

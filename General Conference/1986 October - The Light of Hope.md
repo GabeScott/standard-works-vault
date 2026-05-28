@@ -1,7 +1,5 @@
 # The Light of Hope
 
-Ezra Taft Benson
-
 By Dwan J. Young - *Primary General President*
 
 *Given in the October session of the 1986 General Conference*
@@ -73,4 +71,3 @@ I pray that each of us will seek this gift of hope so that we will be filled wit
 
 
 
-#Hope #Jesus_Christ

@@ -1,7 +1,5 @@
 # Genealogy: A Personal Responsibility
 
-N. Eldon Tanner
-
 By Elder Theodore M. Burton - *Assistant to the Council of the Twelve*
 
 *Given in the October session of the 1972 General Conference*
@@ -97,4 +95,3 @@ I bear my witness of the divinity of this priesthood goal, in the name of Jesus 
 
 
 
-#Family_History

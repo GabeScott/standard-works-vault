@@ -1,7 +1,5 @@
 # All Nations, Kindreds, and Tongues
 
-Russell M. Nelson
-
 By Elder Gerrit W. Gong - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2020 General Conference*
@@ -179,7 +177,3 @@ May we joyfully accept God’s invitation to receive and help fulfill His promis
 
 [^34]: “While of These Emblems We Partake,” *Hymns,* no. 173, verse 3.
 
-
-
-
-#Book_Of_Mormon #Humanitarian_Aid #Restoration

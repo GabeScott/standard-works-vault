@@ -1,7 +1,5 @@
 # Future Leaders
 
-Gordon B. Hinckley
-
 By Elder Harold G. Hillam - *Of the Presidency of the Seventy*
 
 *Given in the April session of the 2000 General Conference*
@@ -45,4 +43,3 @@ I pray that you young people will develop a reverence for sacred things, a respe
 
 
 
-#Children #Commandments #Holy_Ghost #Home #Jesus_Christ #Morality #Prophets #Respect #Responsibility #Reverence #Teaching #Temples #Youth

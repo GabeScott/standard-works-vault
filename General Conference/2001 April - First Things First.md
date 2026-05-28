@@ -1,7 +1,5 @@
 # First Things First
 
-Gordon B. Hinckley
-
 By Elder Richard G. Scott - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2001 General Conference*
@@ -71,4 +69,3 @@ Put first things first. Do the best you can while on earth to have an *ideal fam
 
 
 
-#Adam_And_Eve #Children #Evil #Family #Holy_Ghost #Joy #Missionary_Work #Obedience #Ordinances #Parents #Plan_Of_Salvation #Priorities #Satan #Time_Management

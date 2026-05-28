@@ -1,7 +1,5 @@
 # Jesus the Christ
 
-Spencer W. Kimball
-
 By President Spencer W. Kimball - *President of the Church*
 
 *Given in the October session of the 1977 General Conference*
@@ -18,7 +16,7 @@ It was this same Jesus Christ who gave revelations to his prophets and revealed 
 
 It was He, Jesus Christ, in his glorified state who came to the ancestors of the Indians, who is variously known by them as the Great White Spirit, the Fair God and numerous other names.
 
-It was He, Jesus Christ, our Savior, who was introduced to surprised listeners at Jordan (see [[Matthew 3.13|Matt. 3:13–17]][[Matthew 3.14|]][[Matthew 3.15|]][[Matthew 3.16|]][[Matthew 3.17|]]), at the holy Mount of Transfiguration (see [[Matthew 17.1|Matt. 17:1–9]][[Matthew 17.2|]][[Matthew 17.3|]][[Matthew 17.4|]][[Matthew 17.5|]][[Matthew 17.6|]][[Matthew 17.7|]][[Matthew 17.8|]][[Matthew 17.9|]]), at the temple of the Nephites (see [[3 Nephi 11.1|3 Ne. 11–26]]), and in the grove at Palmyra, New York (see [[Joseph Smith History 1.17|JS—H 1:17–25]][[Joseph Smith History 1.18|]][[Joseph Smith History 1.19|]][[Joseph Smith History 1.20|]][[Joseph Smith History 1.21|]][[Joseph Smith History 1.22|]][[Joseph Smith History 1.23|]][[Joseph Smith History 1.24|]][[Joseph Smith History 1.25|]]); and the introducing person was none other than his actual Father, the holy Elohim, in whose image he was and whose will he carried out.
+It was He, Jesus Christ, our Savior, who was introduced to surprised listeners at Jordan (see [[Matthew 3.13|Matt. 3:13–17]][[Matthew 3.14|]][[Matthew 3.15|]][[Matthew 3.16|]][[Matthew 3.17|]]), at the holy Mount of Transfiguration (see [[Matthew 17.1|Matt. 17:1–9]][[Matthew 17.2|]][[Matthew 17.3|]][[Matthew 17.4|]][[Matthew 17.5|]][[Matthew 17.6|]][[Matthew 17.7|]][[Matthew 17.8|]][[Matthew 17.9|]]), at the temple of the Nephites (see [[3 Nephi 11.1|3 Ne. 11–26]][[3 Nephi 11.2|]][[3 Nephi 11.3|]][[3 Nephi 11.4|]][[3 Nephi 11.5|]][[3 Nephi 11.6|]][[3 Nephi 11.7|]][[3 Nephi 11.8|]][[3 Nephi 11.9|]][[3 Nephi 11.10|]][[3 Nephi 11.11|]][[3 Nephi 11.12|]][[3 Nephi 11.13|]][[3 Nephi 11.14|]][[3 Nephi 11.15|]][[3 Nephi 11.16|]][[3 Nephi 11.17|]][[3 Nephi 11.18|]][[3 Nephi 11.19|]][[3 Nephi 11.20|]][[3 Nephi 11.21|]][[3 Nephi 11.22|]][[3 Nephi 11.23|]][[3 Nephi 11.24|]][[3 Nephi 11.25|]][[3 Nephi 11.26|]][[3 Nephi 11.27|]][[3 Nephi 11.28|]][[3 Nephi 11.29|]][[3 Nephi 11.30|]][[3 Nephi 11.31|]][[3 Nephi 11.32|]][[3 Nephi 11.33|]][[3 Nephi 11.34|]][[3 Nephi 11.35|]][[3 Nephi 11.36|]][[3 Nephi 11.37|]][[3 Nephi 11.38|]][[3 Nephi 11.39|]][[3 Nephi 11.40|]][[3 Nephi 11.41|]]), and in the grove at Palmyra, New York (see [[Joseph Smith History 1.17|JS—H 1:17–25]][[Joseph Smith History 1.18|]][[Joseph Smith History 1.19|]][[Joseph Smith History 1.20|]][[Joseph Smith History 1.21|]][[Joseph Smith History 1.22|]][[Joseph Smith History 1.23|]][[Joseph Smith History 1.24|]][[Joseph Smith History 1.25|]]); and the introducing person was none other than his actual Father, the holy Elohim, in whose image he was and whose will he carried out.
 
 Many people have grown up with the idea that it was the Father who was in charge through the Old Testament history days whenever the title God or Lord was used.
 
@@ -103,4 +101,3 @@ Now brethren and sisters, it has been glorious to be with you. May peace be with
 
 
 
-#Jesus_Christ

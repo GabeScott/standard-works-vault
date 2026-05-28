@@ -1,7 +1,5 @@
 # The Power of the Word
 
-Ezra Taft Benson
-
 By President Ezra Taft Benson - *President of the Church*
 
 *Given in the April session of the 1986 General Conference*
@@ -83,4 +81,3 @@ Like Alma, I say unto you, “It \[is\] expedient that \[you\] should try the vi
 
 
 
-#Book_Of_Mormon

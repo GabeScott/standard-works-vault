@@ -1,7 +1,5 @@
 # The Great Commandment—Love the Lord
 
-Ezra Taft Benson
-
 By President Ezra Taft Benson - *President of the Church*
 
 *Given in the April session of the 1988 General Conference*
@@ -115,4 +113,3 @@ May God bless us to put the first commandment first and, as a result, reap peace
 
 
 
-#Commandments #God_The_Father #Love #Priorities

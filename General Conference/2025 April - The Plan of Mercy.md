@@ -1,7 +1,5 @@
 # The Plan of Mercy
 
-Dallin H. Oaks
-
 By Elder James R. Rasband - *Of the Seventy*
 
 *Given in the April session of the 2025 General Conference*
@@ -145,7 +143,3 @@ I express my gratitude for the Father’s great plan of mercy and for the Savior
 
 [^38]: In offering this suggestion, I do not intend to offer a substitute “formula” for a testimony of the truthfulness of the Book of Mormon or the gospel. As Elder David A. Bednar has taught, revelation can come like “a light turned on in a dark room,” where the revelation is received “quickly, completely and all at once.” It can also come like the “gradual increase of light radiating from the rising sun, … ‘line upon line, precept upon precept’ ([[2 Nephi 28.30|2 Nephi 28:30]]). … Such communications from Heavenly Father gradually and gently ‘distil upon \[our souls\] as the dews from heaven’ \[[[D&C 121.45|Doctrine and Covenants 121:45]]\]. This pattern of revelation tends to be more common than rare” (“[[2011 April - The Spirit of Revelation.md|The Spirit of Revelation]],” *Ensign* or *Liahona*, May 2011, 88).
 
-
-
-
-#Book_Of_Mormon #Mercy #Plan_Of_Salvation #Temples

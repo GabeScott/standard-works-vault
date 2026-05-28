@@ -1,7 +1,5 @@
 # Please Hear the Call!
 
-Thomas S. Monson
-
 By Elder Adney Y. Komatsu - *Of the Seventy*
 
 *Given in the April session of the 1992 General Conference*
@@ -77,4 +75,3 @@ May I invite all to come unto Christ. Come back and partake of His joy. In the n
 
 
 
-#Activation #Fellowshipping #Forgiveness

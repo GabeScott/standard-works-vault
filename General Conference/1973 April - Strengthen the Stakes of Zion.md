@@ -1,7 +1,5 @@
 # Strengthen the Stakes of Zion
 
-Harold B. Lee
-
 By President Harold B. Lee - *President of the Church*
 
 *Given in the April session of the 1973 General Conference*
@@ -147,4 +145,3 @@ I want to bear my sacred witness that because I know of the divinity of this wor
 
 
 
-#Church_Organization #Zion

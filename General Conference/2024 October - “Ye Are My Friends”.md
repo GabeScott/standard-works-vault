@@ -1,7 +1,5 @@
 # “Ye Are My Friends”
 
-Henry B. Eyring
-
 By Elder David L. Buckner - *Of the Seventy*
 
 *Given in the October session of the 2024 General Conference*
@@ -117,7 +115,3 @@ In a contentious and divided world, I testify that the Savior Jesus Christ is th
 
 [^30]: [[John 15.14|John 15:14]]; [[D&C 84.63|Doctrine and Covenants 84:63]].
 
-
-
-
-#Belonging #Friendship #Jesus_Christ #Unity

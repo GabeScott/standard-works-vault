@@ -1,7 +1,5 @@
 # Be Faithful, Not Faithless
 
-Jeffrey R. Holland
-
 By Stephen W. Owen - *Young Men General President*
 
 *Given in the October session of the 2019 General Conference*
@@ -81,7 +79,3 @@ Brothers and sisters, I testify that Jesus Christ is at the head of this Church.
 
 [^10]: [[1 Nephi 1.1|1 Nephi 1:1]].
 
-
-
-
-#Conversion #Faith

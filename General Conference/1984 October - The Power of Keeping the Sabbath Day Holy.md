@@ -1,7 +1,5 @@
 # The Power of Keeping the Sabbath Day Holy
 
-Gordon B. Hinckley
-
 By Elder John H. Groberg - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1984 General Conference*
@@ -91,4 +89,3 @@ May we all live that someday, someway, somewhere, somehow, as we face that which
 
 
 
-#Commandments #Obedience #Sabbath

@@ -1,7 +1,5 @@
 # “Teach One Another”
 
-Joseph Fielding Smith
-
 By Elder David B. Haight - *Assistant to the Council of the Twelve*
 
 *Given in the April session of the 1971 General Conference*
@@ -61,4 +59,3 @@ We must understand these instructions and our responsibility to “teach one ano
 
 
 
-#Teaching

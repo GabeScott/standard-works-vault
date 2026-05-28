@@ -1,7 +1,5 @@
 # Power of the Church Rooted in Christ
 
-Thomas S. Monson
-
 By Elder V. Dallas Merrell - *Of the Seventy*
 
 *Given in the April session of the 1993 General Conference*
@@ -47,4 +45,3 @@ No other institution has the divine character as does The Church of Jesus Christ
 
 
 
-#Authority #Jesus_Christ #Joseph_Smith #Priesthood

@@ -1,7 +1,5 @@
 # Yes, We Can and Will Win!
 
-Cheryl A. Esplin
-
 By Elder Ulisses Soares - *Of the Presidency of the Seventy*
 
 *Given in the April session of the 2015 General Conference*
@@ -95,7 +93,3 @@ I bear testimony of these truths in the sacred name of Jesus Christ, amen.
 
 [^16]: [[John 16.33|John 16:33]].
 
-
-
-
-#Agency #Atonement #Pornography #Temptation #Testimony

@@ -1,7 +1,5 @@
 # Unwavering Commitment to Jesus Christ
 
-Jeffrey R. Holland
-
 By Elder Dale G. Renlund - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2019 General Conference*
@@ -97,7 +95,3 @@ I invite you to commit to a lifelong process of discipleship. Make and keep cove
 
 [^19]: See [[3 Nephi 18.12|3 Nephi 18:12]].
 
-
-
-
-#Commitment #Conversion #Covenants #Faith #Jesus_Christ

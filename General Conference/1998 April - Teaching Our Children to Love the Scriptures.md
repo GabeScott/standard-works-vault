@@ -1,7 +1,5 @@
 # Teaching Our Children to Love the Scriptures
 
-Gordon B. Hinckley
-
 By Anne G. Wirthlin - *First Counselor in the Primary General Presidency*
 
 *Given in the April session of the 1998 General Conference*
@@ -57,4 +55,3 @@ It is my testimony that this will be our blessing as we follow the counsel of ou
 
 
 
-#Children #Family #Joseph_Smith #Peace #Primary #Scripture_Study #Scriptures

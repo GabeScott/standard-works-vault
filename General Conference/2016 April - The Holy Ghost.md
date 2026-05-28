@@ -1,7 +1,5 @@
 # The Holy Ghost
 
-Cheryl A. Esplin
-
 By Elder Robert D. Hales - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2016 General Conference*
@@ -107,7 +105,3 @@ I bear my special witness that the Savior lives. I express my love and gratitude
 
 [^23]: See [[Moroni 7.29|Moroni 7:29]].
 
-
-
-
-#Agency #Holy_Ghost #Joseph_Smith #Peace #Prayer #Restoration

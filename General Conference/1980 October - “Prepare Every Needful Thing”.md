@@ -1,7 +1,5 @@
 # “Prepare Every Needful Thing”
 
-Spencer W. Kimball
-
 By Bishop Victor L. Brown - *Presiding Bishop*
 
 *Given in the October session of the 1980 General Conference*
@@ -69,4 +67,3 @@ May I again implore you priesthood and Relief Society leaders to see that all me
 
 
 
-#Preparation #Welfare

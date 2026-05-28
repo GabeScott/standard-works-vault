@@ -1,7 +1,5 @@
 # My Prayers Were Answered
 
-James E. Faust
-
 By Kirstin Boyer - *Springville Seventh Ward, Springville Utah Stake*
 
 *Given in the April session of the 1996 General Conference*
@@ -23,4 +21,3 @@ Young women all over the world, I *challenge* each of you to listen to the proph
 
 
 
-#Prophets #Scripture_Study

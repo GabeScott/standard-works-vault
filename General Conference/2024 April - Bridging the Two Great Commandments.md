@@ -1,7 +1,5 @@
 # Bridging the Two Great Commandments
 
-Dallin H. Oaks
-
 By Elder Gary E. Stevenson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2024 General Conference*
@@ -119,7 +117,3 @@ May this strengthen our faith in Jesus Christ and His Atonement, of which I test
 
 [^14]: Dallin H. Oaks, “[[2019 October - Two Great Commandments.md|Two Great Commandments]],” *Ensign* or *Liahona*, Nov. 2019, 73–74.
 
-
-
-
-#Commandments #Discipleship #Love #Neighbors

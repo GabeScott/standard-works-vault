@@ -1,7 +1,5 @@
 # Sisters in Zion
 
-Russell M. Nelson
-
 By President Henry B. Eyring - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 2020 General Conference*
@@ -91,7 +89,3 @@ I testify that you are citizens of the Lord’s kingdom on the earth. You are da
 
 [^7]: [[4 Nephi 1.15|4 Nephi 1:15]].
 
-
-
-
-#Women #Zion

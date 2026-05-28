@@ -1,7 +1,5 @@
 # We Are Called to Spread the Light
 
-Marion G. Romney
-
 By Elder Jacob de Jager - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1981 General Conference*
@@ -101,4 +99,3 @@ I humbly pray that the missionary spirit will be with us all in the time ahead a
 
 
 
-#Missionary_Work

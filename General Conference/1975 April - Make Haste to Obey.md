@@ -1,7 +1,5 @@
 # Make Haste to Obey
 
-Spencer W. Kimball
-
 By Elder J. Thomas Fyans - *Assistant to the Council of the Twelve*
 
 *Given in the April session of the 1975 General Conference*
@@ -63,4 +61,3 @@ Come, catch the glow of the warmth of the gospel. There is a living prophet in t
 
 
 
-#Scriptures #Truth

@@ -1,7 +1,5 @@
 # The Ten Commandments
 
-Joseph Fielding Smith
-
 By Elder Bernard P. Brockbank - *Assistant to the Council of the Twelve*
 
 *Given in the October session of the 1971 General Conference*
@@ -121,4 +119,3 @@ I bear witness that God lives, that Jesus Christ is our Savior, mediator, and ou
 
 
 
-#Commandments #Obedience

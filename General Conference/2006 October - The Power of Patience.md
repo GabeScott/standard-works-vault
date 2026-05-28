@@ -1,7 +1,5 @@
 # The Power of Patience
 
-Gordon B. Hinckley
-
 By Elder Robert C. Oaks - *Of the Presidency of the Seventy*
 
 *Given in the October session of the 2006 General Conference*
@@ -71,4 +69,3 @@ I testify that Jesus is the Christ and that He stands at the head of this Church
 
 
 
-#Charity #Jesus_Christ #Patience

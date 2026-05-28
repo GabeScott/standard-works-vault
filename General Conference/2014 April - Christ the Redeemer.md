@@ -1,7 +1,5 @@
 # Christ the Redeemer
 
-Thomas S. Monson
-
 By Elder Carlos H. Amado - *Of the Seventy*
 
 *Given in the April session of the 2014 General Conference*
@@ -71,4 +69,3 @@ I testify that Christ will return in a way very different from His first coming.
 
 
 
-#Atonement #Death #Jesus_Christ #Resurrection

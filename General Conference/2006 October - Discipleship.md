@@ -1,7 +1,5 @@
 # Discipleship
 
-Gordon B. Hinckley
-
 By President James E. Faust - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 2006 General Conference*
@@ -131,7 +129,3 @@ One of the greatest blessings of life and eternity is to be counted as one of th
 
 [^24]: [[D&C 59.23|D&C 59:23]].
 
-
-
-
-#Discipleship #Obedience #Sacrifice

@@ -1,7 +1,5 @@
 # Spiritual Guides for Teachers of Righteousness
 
-Spencer W. Kimball
-
 By Elder Gene R. Cook - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1982 General Conference*
@@ -63,4 +61,3 @@ May the Lord bless all of us not to be fooled by illusions created by the devil.
 
 
 
-#Honesty #Teaching

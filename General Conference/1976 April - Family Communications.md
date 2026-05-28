@@ -1,7 +1,5 @@
 # Family Communications
 
-Spencer W. Kimball
-
 By Elder Marvin J. Ashton - *Of the Council of the Twelve*
 
 *Given in the April session of the 1976 General Conference*
@@ -41,4 +39,3 @@ May our gracious and kind Heavenly Father help us in our needs and desires for m
 
 
 
-#Communication #Family #Love

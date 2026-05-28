@@ -1,7 +1,5 @@
 # Temples and Work Therein
 
-Gordon B. Hinckley
-
 By Elder David B. Haight - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1990 General Conference*
@@ -117,4 +115,3 @@ God our Father lives, as does His Son, Jesus the Christ, our Savior and Redeemer
 
 
 
-#Family_History #Plan_Of_Salvation #Premortal_Existence #Spirituality #Temple_Work #Temples

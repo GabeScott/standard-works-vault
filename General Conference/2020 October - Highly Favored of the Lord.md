@@ -1,7 +1,5 @@
 # Highly Favored of the Lord
 
-Russell M. Nelson
-
 By Elder Gary E. Stevenson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2020 General Conference*
@@ -113,7 +111,3 @@ I close with my testimony of Jesus Christ, who Himself was no stranger to afflic
 
 [^16]: See [[D&C 122.8|Doctrine and Covenants 122:8]].
 
-
-
-
-#Adversity

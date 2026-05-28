@@ -1,7 +1,5 @@
 # Teaching with the Power and Authority of God
 
-Thomas S. Monson
-
 By David M. McConkie - *First Counselor in the Sunday School General Presidency*
 
 *Given in the October session of the 2013 General Conference*
@@ -81,7 +79,3 @@ Let us now end where we started—in the Sacred Grove. Because of what took plac
 
 [^10]: Marion G. Romney, in Boyd K. Packer, *Teach Ye Diligently* (1975), 304.
 
-
-
-
-#Holy_Ghost #Teaching

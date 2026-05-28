@@ -1,7 +1,5 @@
 # He Heals the Heavy Laden
 
-Gordon B. Hinckley
-
 By Elder Dallin H. Oaks - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2006 General Conference*
@@ -91,4 +89,3 @@ I testify of Jesus Christ, our Savior, who invites us all to come unto Him and b
 
 
 
-#Addiction #Adversity #Atonement #Healing #Homosexuality #Jesus_Christ #Media

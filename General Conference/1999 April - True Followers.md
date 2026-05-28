@@ -1,7 +1,5 @@
 # True Followers
 
-Gordon B. Hinckley
-
 By Elder Robert J. Whetten - *Of the Seventy*
 
 *Given in the April session of the 1999 General Conference*
@@ -87,7 +85,3 @@ As His true followers, the Savior wants us to love others as He loves them—mor
 
 [^19]: *Hymns,* no. 131.
 
-
-
-
-#Holy_Ghost #Jesus_Christ #Joy #Love #Missionary_Work #Motherhood #Obedience #Service

@@ -1,7 +1,5 @@
 # Personal Preparation for Temple Blessings
 
-Gordon B. Hinckley
-
 By Elder Russell M. Nelson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2001 General Conference*
@@ -169,7 +167,3 @@ Meanwhile, in this world smitten with spiritual decay, can individuals prepared 
 
 [^44]: [[1 Nephi 14.14|1 Ne. 14:14]].
 
-
-
-
-#Atonement #Commitment #Covenants #Death #Faith #Leadership #Morality #Obedience #Ordinances #Preparation #Priesthood #Spirituality #Temple_Work #Temples #Temptation #Tithing #Worship #Worthiness

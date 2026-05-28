@@ -1,7 +1,5 @@
 # You Make a Difference
 
-Ezra Taft Benson
-
 By President Thomas S. Monson - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 1988 General Conference*
@@ -104,4 +102,3 @@ As we leave this general priesthood meeting, let us all determine to shed any ba
 
 
 
-#Priesthood #Repentance #Worthiness

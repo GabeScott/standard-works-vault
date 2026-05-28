@@ -1,7 +1,5 @@
 # Lessons from the Atonement That Help Us to Endure to the End
 
-Gordon B. Hinckley
-
 By Bishop Robert D. Hales - *Presiding Bishop*
 
 *Given in the October session of the 1985 General Conference*
@@ -79,4 +77,3 @@ I bear you my testimony that God lives and that Jesus is the Christ. Of this I h
 
 
 
-#Atonement #Endurance

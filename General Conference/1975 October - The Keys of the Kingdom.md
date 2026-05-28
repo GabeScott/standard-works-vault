@@ -1,7 +1,5 @@
 # The Keys of the Kingdom
 
-Spencer W. Kimball
-
 By Elder James E. Faust - *Assistant to the Council of the Twelve*
 
 *Given in the October session of the 1975 General Conference*
@@ -43,4 +41,3 @@ I testify that it is by these same keys and these same powers that this marvelou
 
 
 
-#Church_Growth #Temples

@@ -1,7 +1,5 @@
 # Follow the Living Prophet
 
-Spencer W. Kimball
-
 By Bishop Victor L. Brown - *Presiding Bishop*
 
 *Given in the April session of the 1977 General Conference*
@@ -85,4 +83,3 @@ What a great blessing it is to live in this world and have ears with which to he
 
 
 
-#Obedience #Prophets

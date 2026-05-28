@@ -1,7 +1,5 @@
 # Personal Peace: The Reward of Righteousness
 
-Thomas S. Monson
-
 By Elder Quentin L. Cook - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2013 General Conference*
@@ -155,7 +153,3 @@ I so testify in the name of Jesus Christ, amen.
 
 [^32]: “Though Deepening Trials,” *Hymns,* no. 122.
 
-
-
-
-#Peace #Temples

@@ -1,7 +1,5 @@
 # The Foundations of Righteousness
 
-Spencer W. Kimball
-
 By President Spencer W. Kimball - *President of the Church*
 
 *Given in the October session of the 1977 General Conference*
@@ -149,4 +147,3 @@ And may he help us to strive to live his laws and to achieve happiness on earth,
 
 
 
-#Character #Commandments #Homosexuality #Honesty #Morality

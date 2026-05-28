@@ -1,7 +1,5 @@
 # “Behold Your Little Ones”
 
-Spencer W. Kimball
-
 By Elder Gordon B. Hinckley - *Of the Council of the Twelve*
 
 *Given in the October session of the 1978 General Conference*
@@ -73,4 +71,3 @@ For that peace I humbly pray in your behalf as I bear witness of the truth of th
 
 
 
-#Children #Love #Parenthood

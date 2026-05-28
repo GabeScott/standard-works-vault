@@ -1,7 +1,5 @@
 # Our Only Chance
 
-Gordon B. Hinckley
-
 By Sheri L. Dew - *Second Counselor in the Relief Society General Presidency*
 
 *Given in the April session of the 1999 General Conference*
@@ -51,7 +49,3 @@ May we recommit to seek after this Jesus, of whom the prophets have testified. M
 
 [^3]: In Conference Report, Oct. 1979, [[1979 October - Reading the Scriptures.md|93]]; or *Ensign,* Nov. 1979, 65.
 
-
-
-
-#Adversity #Atonement #Faith #Jesus_Christ #Joy #Satan

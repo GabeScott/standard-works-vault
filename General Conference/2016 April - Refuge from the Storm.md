@@ -1,7 +1,5 @@
 # Refuge from the Storm
 
-Cheryl A. Esplin
-
 By Elder Patrick Kearon - *Of the Seventy*
 
 *Given in the April session of the 2016 General Conference*
@@ -87,7 +85,3 @@ Being a refugee may be a defining moment in the lives of those who are refugees,
 
 [^13]: [[Matthew 25.40|Matthew 25:40]].
 
-
-
-
-#Charity #Compassion #Love #Service

@@ -1,7 +1,5 @@
 # Some Basic Teachings from the History of Joseph Smith
 
-Gordon B. Hinckley
-
 By Elder Carlos H. Amado - *Of the Seventy*
 
 *Given in the April session of the 2002 General Conference*
@@ -101,4 +99,3 @@ It is my prayer that we may do this, constantly, in the name of Jesus Christ, am
 
 
 
-#Church_Attendance #Joseph_Smith #Prayer #Scriptures #Spirituality #Truth

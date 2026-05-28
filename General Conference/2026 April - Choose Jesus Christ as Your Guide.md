@@ -1,7 +1,5 @@
 # Choose Jesus Christ as Your Guide
 
-Dallin H. Oaks
-
 By Elder Edward B. Rowe - *Of the Seventy*
 
 *Given in the April session of the 2026 General Conference*
@@ -93,5 +91,3 @@ This Easter morning, may we *all* accept Christ’s invitation to be our guide a
 
 [^18]: In Ryan Jensen, “[‘Jesus Christ Is the Way,’ President Oaks Says in First Interview as Church President](https://www.thechurchnews.com/leaders/2025/10/16/president-dallin-h-oaks-first-interview-as-church-president),” *Church News*, Oct. 16, 2025, thechurchnews.com.
 
-
-#Covenants #Discipleship #Healing #Jesus_Christ

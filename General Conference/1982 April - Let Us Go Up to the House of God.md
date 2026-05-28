@@ -1,7 +1,5 @@
 # Let Us Go Up to the House of God
 
-Spencer W. Kimball
-
 By Elder L. Tom Perry - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1982 General Conference*
@@ -79,4 +77,3 @@ May God bless us that we may find the joy and satisfaction that come from learni
 
 
 
-#Blessings #Covenants #Plan_Of_Salvation #Temples

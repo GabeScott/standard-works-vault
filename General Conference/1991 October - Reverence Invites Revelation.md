@@ -1,7 +1,5 @@
 # Reverence Invites Revelation
 
-Gordon B. Hinckley
-
 By Elder Boyd K. Packer - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1991 General Conference*
@@ -99,4 +97,3 @@ And in the spirit of reverence, I bear testimony that God lives, that Jesus is t
 
 
 
-#Church_Meetings #Holy_Ghost #Music #Prayer #Reverence #Spirituality #Testimony

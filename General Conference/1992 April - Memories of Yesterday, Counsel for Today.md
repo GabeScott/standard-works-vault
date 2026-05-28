@@ -1,7 +1,5 @@
 # Memories of Yesterday, Counsel for Today
 
-Thomas S. Monson
-
 By President Thomas S. Monson - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 1992 General Conference*
@@ -85,7 +83,3 @@ God bless you, President Benson, in the name of Jesus Christ, amen.
 
 [^6]: “The Honored Place of Woman,” *Ensign,* Nov. 1981, p. 107; poem quoted from *The Writings of Charles Sprague* (New York: Charles S. Francis, 1841), p. 73.
 
-
-
-
-#Family #Parents #Prophets #Relief_Society #Service

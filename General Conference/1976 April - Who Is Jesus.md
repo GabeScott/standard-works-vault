@@ -1,7 +1,5 @@
 # Who Is Jesus?
 
-Spencer W. Kimball
-
 By Elder Eldred G. Smith - *Patriarch to the Church*
 
 *Given in the April session of the 1976 General Conference*
@@ -117,4 +115,3 @@ I testify that God lives and that Jesus is the Christ, the Son of God, and that 
 
 
 
-#Jesus_Christ

@@ -1,7 +1,5 @@
 # “Blessed Are the Peacemakers”
 
-Spencer W. Kimball
-
 By Elder Theodore M. Burton - *Assistant to the Council of the Twelve*
 
 *Given in the October session of the 1974 General Conference*
@@ -81,4 +79,3 @@ May God bless us to follow the instructions and examples of the holy prophet he 
 
 
 
-#Humility #Peace

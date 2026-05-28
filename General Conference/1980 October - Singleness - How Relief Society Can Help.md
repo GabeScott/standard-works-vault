@@ -1,7 +1,5 @@
 # Singleness: How Relief Society Can Help
 
-Spencer W. Kimball
-
 By Addie Fuhriman - *Of the Relief Society General Board*
 
 *Given in the October session of the 1980 General Conference*
@@ -43,4 +41,3 @@ My prayer is that each one of us can have and extend faith, hope, and charity by
 
 
 
-#Relief_Society #Single_Members

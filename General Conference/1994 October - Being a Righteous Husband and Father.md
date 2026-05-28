@@ -1,7 +1,5 @@
 # Being a Righteous Husband and Father
 
-Gordon B. Hinckley
-
 By President Howard W. Hunter - *President of the Church*
 
 *Given in the October session of the 1994 General Conference*
@@ -71,4 +69,3 @@ I testify that this is what the Lord would have the brethren of the priesthood r
 
 
 
-#Abuse #Family #Fatherhood #Marriage #Morality #Motherhood #Priesthood

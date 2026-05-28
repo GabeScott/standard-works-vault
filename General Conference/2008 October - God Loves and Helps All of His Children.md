@@ -1,7 +1,5 @@
 # God Loves and Helps All of His Children
 
-Thomas S. Monson
-
 By Bishop Keith B. McMullin - *Second Counselor in the Presiding Bishopric*
 
 *Given in the October session of the 2008 General Conference*
@@ -119,7 +117,3 @@ He is our Lawgiver and Judge, the Redeemer of the world. At His Second Coming, â
 
 [^24]: [[2 Nephi 19.6|2 Nephi 19:6]]; see also [[Isaiah 9.6|Isaiah 9:6]].
 
-
-
-
-#Blessings #Fasting #Jesus_Christ #Prayer #Service #Welfare

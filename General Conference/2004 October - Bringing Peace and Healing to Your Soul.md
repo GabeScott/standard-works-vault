@@ -1,7 +1,5 @@
 # Bringing Peace and Healing to Your Soul
 
-Gordon B. Hinckley
-
 By Elder Dale E. Miller - *Of the Seventy*
 
 *Given in the October session of the 2004 General Conference*
@@ -69,4 +67,3 @@ It is my personal witness that the Spirit of the Lord is real and unmistakable. 
 
 
 
-#Atonement #Conversion #Healing #Peace

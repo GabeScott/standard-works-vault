@@ -1,7 +1,5 @@
 # “Behold My Beloved Son, in Whom I Am Well Pleased”
 
-Spencer W. Kimball
-
 By Elder George P. Lee - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1982 General Conference*
@@ -83,4 +81,3 @@ I testify that he is the creator of “all things bright and beautiful, All crea
 
 
 
-#Jesus_Christ

@@ -1,7 +1,5 @@
 # Living Prophets, Seers, and Revelators
 
-Gordon B. Hinckley
-
 By Elder Dennis B. Neuenschwander - *Of the Presidency of the Seventy*
 
 *Given in the October session of the 2000 General Conference*
@@ -81,11 +79,7 @@ I bear witness of the saving power of the Atonement of Jesus Christ. I bear witn
 
 [^11]: [[Moses 6.36|Moses 6:36]]; see also [[Moses 6.35|Moses 6:35]].
 
-[^12]: In Conference Report, Apr. 1986, [95](https://www.churchofjesuschrist.org/study/general-conference/1986/04/solemn-assembly-and-sustaining-of-church-officers?lang=eng&id=p26#p26); or *Ensign,* May 1986, 75.
+[^12]: In Conference Report, Apr. 1986, [[1986 April - Solemn Assembly and Sustaining of Church Officers.md|95]]; or *Ensign,* May 1986, 75.
 
 [^13]: [[Jacob 4.3|Jacob 4:3]].
 
-
-
-
-#Church_Leaders #Jesus_Christ #Obedience #Prophets #Testimony

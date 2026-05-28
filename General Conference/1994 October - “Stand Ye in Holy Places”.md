@@ -1,7 +1,5 @@
 # “Stand Ye in Holy Places”
 
-Gordon B. Hinckley
-
 By Elder Lance B. Wickman - *Of the Seventy*
 
 *Given in the October session of the 1994 General Conference*
@@ -37,4 +35,3 @@ Pat’s eyes met mine. For a brief moment I was transported back across the year
 
 
 
-#Marriage #Temples #Zion

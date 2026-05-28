@@ -1,7 +1,5 @@
 # Precious Children—A Gift from God
 
-Gordon B. Hinckley
-
 By President Thomas S. Monson - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 1991 General Conference*
@@ -123,4 +121,3 @@ My dear brothers and sisters, may the laughter of children gladden our hearts. M
 
 
 
-#Abuse #Family #Teaching

@@ -1,7 +1,5 @@
 # The Dead Who Die in the Lord
 
-Spencer W. Kimball
-
 By Elder Bruce R. McConkie - *Of the Council of the Twelve*
 
 *Given in the October session of the 1976 General Conference*
@@ -103,4 +101,3 @@ In the name of the Lord Jesus Christ. Amen.
 
 
 
-#Death #Plan_Of_Salvation

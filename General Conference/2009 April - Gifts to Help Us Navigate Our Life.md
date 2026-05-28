@@ -1,7 +1,5 @@
 # Gifts to Help Us Navigate Our Life
 
-Thomas S. Monson
-
 By Elder José A. Teixeira - *Of the Seventy*
 
 *Given in the April session of the 2009 General Conference*
@@ -121,7 +119,3 @@ We have been taught this weekend by prophets, seers, and revelators. I am gratef
 
 [^14]: “Follow the Prophet,” *Children’s Songbook,* 110–11.
 
-
-
-
-#Agency #Holy_Ghost #Prophets

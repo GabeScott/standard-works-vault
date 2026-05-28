@@ -1,7 +1,5 @@
 # In the Lord’s Own Way
 
-Ezra Taft Benson
-
 By Elder Russell M. Nelson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1986 General Conference*
@@ -117,4 +115,3 @@ The Church of Jesus Christ has been restored to the earth. The power of God is a
 
 
 
-#Love #Welfare

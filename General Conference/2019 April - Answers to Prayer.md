@@ -1,7 +1,5 @@
 # Answers to Prayer
 
-Ulisses Soares
-
 By Elder Brook P. Hales - *Of the Seventy*
 
 *Given in the April session of the 2019 General Conference*
@@ -113,7 +111,3 @@ I know that God hears our prayers.[^15] I know that as an all-knowing, loving Fa
 
 [^15]: See “[Power of Prayer](https://www.mormon.org/site/god/power-of-prayer),” mormon.org/beliefs/power-of-prayer.
 
-
-
-
-#Prayer

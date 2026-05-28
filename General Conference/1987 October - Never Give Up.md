@@ -1,7 +1,5 @@
 # Never Give Up
 
-Ezra Taft Benson
-
 By Elder Joseph B. Wirthlin - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1987 General Conference*
@@ -59,4 +57,3 @@ I bear testimony that perseverance is essential to us in learning and living the
 
 
 
-#Adversity #Dedication

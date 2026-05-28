@@ -1,7 +1,5 @@
 # Preparing for the Second Coming of Christ
 
-Russell M. Nelson
-
 By Elder Christoffel Golden - *Of the Seventy*
 
 *Given in the October session of the 2021 General Conference*
@@ -95,7 +93,3 @@ I conclude my remarks with a truly inspiring prophetic declaration from the Prop
 
 [^14]: [[D&C 128.22|Doctrine and Covenants 128:22]].
 
-
-
-
-#Jesus_Christ #Preparation #Prophets #Second_Coming

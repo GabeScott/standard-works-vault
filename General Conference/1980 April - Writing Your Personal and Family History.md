@@ -1,7 +1,5 @@
 # Writing Your Personal and Family History
 
-Spencer W. Kimball
-
 By Elder John H. Groberg - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1980 General Conference*
@@ -73,4 +71,3 @@ Brethren, this is the work of the Lord. I testify that he lives and that he has 
 
 
 
-#Family_History

@@ -1,7 +1,5 @@
 # The Lord Has Not Forgotten You
 
-Thomas S. Monson
-
 By Linda S. Reeves - *Second Counselor in the Relief Society General Presidency*
 
 *Given in the October session of the 2012 General Conference*
@@ -99,7 +97,3 @@ That is our charge. We must feel and see for ourselves and then help all of Heav
 
 [^15]: [[3 Nephi 18.25|3 Nephi 18:25]]; emphasis added.
 
-
-
-
-#Jesus_Christ #Love

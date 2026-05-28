@@ -1,7 +1,5 @@
 # Patience in Affliction
 
-Thomas S. Monson
-
 By Elder Angel Abrea - *Of the Seventy*
 
 *Given in the April session of the 1992 General Conference*
@@ -81,4 +79,3 @@ These things I say in the name of Jesus Christ, amen.
 
 
 
-#Adversity #Faith #Patience

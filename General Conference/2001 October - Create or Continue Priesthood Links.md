@@ -1,7 +1,5 @@
 # Create or Continue Priesthood Links
 
-Gordon B. Hinckley
-
 By Elder Keith K. Hilbig - *Of the Seventy*
 
 *Given in the October session of the 2001 General Conference*
@@ -47,4 +45,3 @@ I bear solemn testimony of the Savior’s divinity and atoning sacrifice and of 
 
 
 
-#Priesthood #Service #Spirituality

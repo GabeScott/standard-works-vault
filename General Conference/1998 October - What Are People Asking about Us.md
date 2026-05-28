@@ -1,7 +1,5 @@
 # What Are People Asking about Us?
 
-Gordon B. Hinckley
-
 By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the October session of the 1998 General Conference*
@@ -119,4 +117,3 @@ Knowing this work to be true, we go forward, each of us. May we make a renewed e
 
 
 
-#Abortion #Abuse #Children #Church_Doctrine #Church_Organization #Family #Godhead #Homosexuality #Honesty #Jesus_Christ #Joseph_Smith #Joy #Marriage #Media #Prophets #Sin #Tithing

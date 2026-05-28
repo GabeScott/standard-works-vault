@@ -1,7 +1,5 @@
 # We Are Women of God
 
-Gordon B. Hinckley
-
 By Sheri L. Dew - *Second Counselor in the Relief Society General Presidency*
 
 *Given in the October session of the 1999 General Conference*
@@ -51,4 +49,3 @@ We have such cause to rejoice, for the gospel of Jesus Christ *is* the voice of 
 
 
 
-#Atonement #Family #Jesus_Christ #Plan_Of_Salvation #Relief_Society #Satan #Women #Worldliness

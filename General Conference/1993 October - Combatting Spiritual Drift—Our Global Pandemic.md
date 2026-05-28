@@ -1,7 +1,5 @@
 # Combatting Spiritual Drift—Our Global Pandemic
 
-Gordon B. Hinckley
-
 By Elder Russell M. Nelson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1993 General Conference*

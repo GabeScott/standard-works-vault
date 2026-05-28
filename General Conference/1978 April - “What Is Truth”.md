@@ -1,7 +1,5 @@
 # “What Is Truth?”
 
-Spencer W. Kimball
-
 By Elder John H. Vandenberg - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1978 General Conference*
@@ -135,4 +133,3 @@ I bear witness to the truth, that revelation and prayer are indispensable in att
 
 
 
-#Spirituality #Truth

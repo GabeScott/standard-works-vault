@@ -1,7 +1,5 @@
 # Should the Commandments Be Rewritten?
 
-Joseph Fielding Smith
-
 By Elder Richard L. Evans - *Of the Council of the Twelve*
 
 *Given in the October session of the 1971 General Conference*
@@ -121,4 +119,3 @@ There are many things, my beloved brethren and sisters, that I know and you know
 
 
 
-#Commandments #Morality

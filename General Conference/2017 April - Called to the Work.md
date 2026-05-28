@@ -1,7 +1,5 @@
 # Called to the Work
 
-Bonnie H. Cordon
-
 By Elder David A. Bednar - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2017 General Conference*
@@ -119,7 +117,3 @@ Joyfully, I witness that our Heavenly Father and His Beloved Son, Jesus Christ, 
 
 [^18]: [[Colossians 2.7|Colossians 2:7]].
 
-
-
-
-#Missionary_Work #Preparation #Priesthood #Temples #Worthiness

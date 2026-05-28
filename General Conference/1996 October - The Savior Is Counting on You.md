@@ -1,7 +1,5 @@
 # The Savior Is Counting on You
 
-Gordon B. Hinckley
-
 By Elder Joe J. Christensen - *Of the Presidency of the Seventy*
 
 *Given in the October session of the 1996 General Conference*
@@ -87,4 +85,3 @@ I pray that the world will be a better place because you have lived in it. That 
 
 
 
-#Evil #Jesus_Christ #Love #Media #Missionary_Work #Priesthood #Satan #Temples #Temptation #Youth

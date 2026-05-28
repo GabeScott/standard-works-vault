@@ -1,7 +1,5 @@
 # A Call to Serve
 
-Ezra Taft Benson
-
 By Elder David B. Haight - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1988 General Conference*
@@ -121,4 +119,3 @@ Now, my dear friends, as we near the closing moments of this historic conference
 
 
 
-#Mission_Of_The_Church #Missionary_Work #Sacrifice

@@ -1,7 +1,5 @@
 # Address Given by President N. Eldon Tanner at the Welfare Services Meeting Saturday, April 6, 1974
 
-Spencer W. Kimball
-
 By President N. Eldon Tanner - *First Counselor in the First Presidency*
 
 *Given in the April session of the 1974 General Conference*
@@ -35,4 +33,3 @@ Now this is The Church of Jesus Christ of Latter-day Saints. He is at the head. 
 
 
 
-#Welfare

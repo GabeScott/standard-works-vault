@@ -1,7 +1,5 @@
 # Change
 
-Thomas S. Monson
-
 By Elder Jacob de Jager - *Of the Seventy*
 
 *Given in the April session of the 1991 General Conference*
@@ -69,4 +67,3 @@ I know that God lives and that Jesus Christ is our Savior and Redeemer. I also t
 
 
 
-#Obedience #Repentance #Spirituality

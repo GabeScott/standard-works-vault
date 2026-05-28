@@ -1,7 +1,5 @@
 # Be Ye Therefore Perfect—Eventually
 
-Sharon Eubank
-
 By Elder Jeffrey R. Holland - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2017 General Conference*
@@ -85,7 +83,3 @@ I testify of that grand destiny, made available to us by the Atonement of the Lo
 
 [^17]: See [[D&C 93.13|Doctrine and Covenants 93:13]].
 
-
-
-
-#God_The_Father #Grace #Individual_Worth #Jesus_Christ #Perspective

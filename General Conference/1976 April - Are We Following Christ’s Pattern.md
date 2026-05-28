@@ -1,7 +1,5 @@
 # Are We Following Christ’s Pattern?
 
-Spencer W. Kimball
-
 By Elder William R. Bradford - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1976 General Conference*
@@ -71,4 +69,3 @@ I testify that Jesus Christ directs the righteous affairs of this earth, that Sp
 
 
 
-#Example #Jesus_Christ

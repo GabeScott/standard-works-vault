@@ -1,7 +1,5 @@
 # The Greatest Challenge in the World—Good Parenting
 
-Gordon B. Hinckley
-
 By Elder James E. Faust - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1990 General Conference*
@@ -71,4 +69,3 @@ God bless the struggling, sacrificing, honorable parents of this world. May He e
 
 
 
-#Family #Obedience #Prayer #Word_Of_Wisdom

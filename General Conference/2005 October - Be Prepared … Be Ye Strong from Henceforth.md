@@ -1,7 +1,5 @@
 # Be Prepared … Be Ye Strong from Henceforth
 
-Gordon B. Hinckley
-
 By Bishop Keith B. McMullin - *Second Counselor in the Presiding Bishopric*
 
 *Given in the October session of the 2005 General Conference*
@@ -127,7 +125,3 @@ In the name of Jesus Christ, amen.
 
 [^21]: [[Philippians 4.7|Philippians 4:7]].
 
-
-
-
-#Faith #Jesus_Christ #Obedience #Preparation

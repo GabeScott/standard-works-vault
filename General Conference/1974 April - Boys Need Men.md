@@ -1,7 +1,5 @@
 # Boys Need Men
 
-Spencer W. Kimball
-
 By Elder Marion D. Hanks - *Assistant to the Council of the Twelve*
 
 *Given in the April session of the 1974 General Conference*
@@ -30,7 +28,7 @@ Is it fair to ask what will happen if boys don’t get what they need from good 
 
 Now, brethren, if we need to do better than we are doing, and wish to do better, what program shall we follow? There is time here tonight to consider only the beginning of one answer among many, but that is a vital answer, and it needs to be understood.
 
-In [[Alma 36.1|chapter 36 of the book of Alma]] in the Book of Mormon is a remarkable lesson for every father, or for those who stand in place of a father. To his son Helaman, Alma bore a strong testimony of faith and repentance. Remember that Alma, in youthful rebelliousness, had made some serious mistakes. He wanted his sons to avoid those mistakes and to find what he, Alma, had discovered of the tender mercies of God, without the terrible, painful experiences through which he had gone. In this deeply honest account Alma bore record of the torment through which he had passed and shared with Helaman three great messages which every father would want to deliver to his own son. I deliver them tonight to my son and invite you to join me:
+In [[Alma 36.1|chapter 36 of the book of Alma]][[Alma 36.2|]][[Alma 36.3|]][[Alma 36.4|]][[Alma 36.5|]][[Alma 36.6|]][[Alma 36.7|]][[Alma 36.8|]][[Alma 36.9|]][[Alma 36.10|]][[Alma 36.11|]][[Alma 36.12|]][[Alma 36.13|]][[Alma 36.14|]][[Alma 36.15|]][[Alma 36.16|]][[Alma 36.17|]][[Alma 36.18|]][[Alma 36.19|]][[Alma 36.20|]][[Alma 36.21|]][[Alma 36.22|]][[Alma 36.23|]][[Alma 36.24|]][[Alma 36.25|]][[Alma 36.26|]][[Alma 36.27|]][[Alma 36.28|]][[Alma 36.29|]][[Alma 36.30|]] in the Book of Mormon is a remarkable lesson for every father, or for those who stand in place of a father. To his son Helaman, Alma bore a strong testimony of faith and repentance. Remember that Alma, in youthful rebelliousness, had made some serious mistakes. He wanted his sons to avoid those mistakes and to find what he, Alma, had discovered of the tender mercies of God, without the terrible, painful experiences through which he had gone. In this deeply honest account Alma bore record of the torment through which he had passed and shared with Helaman three great messages which every father would want to deliver to his own son. I deliver them tonight to my son and invite you to join me:
 
 1. “And now, O my son Helaman, behold, thou art in thy youth, and therefore, I beseech of thee that thou wilt hear my words and learn of me; for I do know that whosoever shall put their trust in God shall be supported in their trials, and their troubles, and their afflictions, and shall be lifted up at the last day.“And I would not that ye think that I know of myself—not of the temporal but of the spiritual, not of the carnal mind but of God.” ([[Alma 36.3|Alma 36:3–4]][[Alma 36.4|]].)
 
@@ -103,4 +101,3 @@ In the name of Jesus Christ. Amen.
 
 
 
-#Fatherhood

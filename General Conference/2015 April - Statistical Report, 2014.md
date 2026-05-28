@@ -1,7 +1,5 @@
 # Statistical Report, 2014
 
-Cheryl A. Esplin
-
 By Presented by Brook P. Hales - *Secretary to the First Presidency*
 
 *Given in the April session of the 2015 General Conference*

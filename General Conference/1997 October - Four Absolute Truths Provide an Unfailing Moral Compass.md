@@ -1,7 +1,5 @@
 # Four Absolute Truths Provide an Unfailing Moral Compass
 
-Gordon B. Hinckley
-
 By Elder Richard B. Wirthlin - *Of the Seventy*
 
 *Given in the October session of the 1997 General Conference*
@@ -91,7 +89,3 @@ In closing, I would like to express my sincere gratitude to our prophet, Preside
 
 [^13]: [[1 Corinthians 1.25|1 Cor. 1:25]].
 
-
-
-
-#Agency #God_The_Father #Jesus_Christ #Joy #Morality #Repentance #Truth #Wisdom

@@ -1,7 +1,5 @@
 # “I Will Remember Your Sins No More”
 
-Robert D. Hales
-
 By President Boyd K. Packer - *Acting President of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2006 General Conference*
@@ -135,4 +133,3 @@ Could there be any more sweeter or more consoling words, more filled with hope, 
 
 
 
-#Atonement #Forgiveness #Repentance

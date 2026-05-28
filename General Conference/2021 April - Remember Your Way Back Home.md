@@ -1,7 +1,5 @@
 # Remember Your Way Back Home
 
-Russell M. Nelson
-
 By Elder José A. Teixeira - *Of the Presidency of the Seventy*
 
 *Given in the April session of the 2021 General Conference*
@@ -89,7 +87,3 @@ Dear brothers and sisters, on this Easter Sunday, I bear testimony that Jesus Ch
 
 [^6]: See [[John 3.16|John 3:16]].
 
-
-
-
-#Divine_Nature #Jesus_Christ #Prayer #Service

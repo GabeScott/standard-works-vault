@@ -1,7 +1,5 @@
 # The Priesthood in Action
 
-Gordon B. Hinckley
-
 By President Thomas S. Monson - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 1992 General Conference*
@@ -103,7 +101,3 @@ To this divine truth I testify as I leave my witness with you that this work is 
 
 [^1]: *Gospel Doctrine,* 5th ed. (Salt Lake City: Deseret Book Co., 1939), pp. 469–70.
 
-
-
-
-#Missionary_Work #Priesthood #Service

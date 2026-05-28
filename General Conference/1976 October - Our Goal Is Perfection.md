@@ -1,7 +1,5 @@
 # Our Goal Is Perfection
 
-Spencer W. Kimball
-
 By Elder William H. Bennett - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1976 General Conference*
@@ -65,4 +63,3 @@ May we be successful in this, our greatest responsibility, is my humble prayer, 
 
 
 
-#Dedication #Plan_Of_Salvation #Self-Control

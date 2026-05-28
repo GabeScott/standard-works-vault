@@ -1,7 +1,5 @@
 # The Test
 
-Thomas S. Monson
-
 By President Boyd K. Packer - *President of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2008 General Conference*
@@ -177,7 +175,3 @@ I bear witness of God the Father and His Son, Jesus Christ, that They live, that
 
 [^22]: *History of the Church,* 4:540.
 
-
-
-
-#Church_History #Patriotism #Spirituality

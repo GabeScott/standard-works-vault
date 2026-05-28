@@ -1,7 +1,5 @@
 # The Witnesses of Christ
 
-Harold B. Lee
-
 By President S. Dilworth Young - *Of the First Council of the Seventy*
 
 *Given in the October session of the 1973 General Conference*
@@ -79,4 +77,3 @@ Anyone who will do these things will also know that President Harold B. Lee is a
 
 
 
-#Jesus_Christ #Plan_Of_Salvation #Truth

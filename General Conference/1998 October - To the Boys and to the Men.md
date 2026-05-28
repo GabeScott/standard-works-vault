@@ -1,7 +1,5 @@
 # To the Boys and to the Men
 
-Gordon B. Hinckley
-
 By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the October session of the 1998 General Conference*
@@ -133,4 +131,3 @@ I leave with you my testimony of the divinity of this work and my love for each 
 
 
 
-#Financial_Management #Honesty #Jesus_Christ #Love #Missionary_Work #Prayer #Self-Reliance

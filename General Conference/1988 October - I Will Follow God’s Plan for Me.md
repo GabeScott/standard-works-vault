@@ -1,7 +1,5 @@
 # I Will Follow God’s Plan for Me
 
-Ezra Taft Benson
-
 By Michaelene P. Grassli - *Primary General President*
 
 *Given in the October session of the 1988 General Conference*
@@ -81,4 +79,3 @@ Now, let us go forth as sisters, determined that no force will turn us from our 
 
 
 
-#Agency #Children #Commitment #Plan_Of_Salvation

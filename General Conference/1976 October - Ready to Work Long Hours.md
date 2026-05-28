@@ -1,7 +1,5 @@
 # Ready to Work Long Hours
 
-Spencer W. Kimball
-
 By President N. Eldon Tanner - *First Counselor in the First Presidency*
 
 *Given in the October session of the 1976 General Conference*
@@ -93,4 +91,3 @@ May we meet there when we have finished our work here I humbly pray in the name 
 
 
 
-#Priesthood #Temptation #Work

@@ -1,7 +1,5 @@
 # The Laborers in the Vineyard
 
-Thomas S. Monson
-
 By Elder Jeffrey R. Holland - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2012 General Conference*
@@ -59,7 +57,3 @@ So if you have made covenants, keep them. If you haven’t made them, make them.
 
 [^6]: “We Are All Enlisted,” *Hymns,* no. 250.
 
-
-
-
-#Atonement #Covetousness #Grace #Jesus_Christ

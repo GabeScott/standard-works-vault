@@ -1,7 +1,5 @@
 # Winning the War against Evil
 
-Thomas S. Monson
-
 By Elder James J. Hamula - *Of the Seventy*
 
 *Given in the October session of the 2008 General Conference*
@@ -133,7 +131,3 @@ My dear brethren of the Aaronic Priesthood, these are your days! Do not squander
 
 [^34]: [[Exodus 14.13|Exodus 14:13]].
 
-
-
-
-#Dedication #Holy_Ghost #Last_Days #Obedience #Prayer

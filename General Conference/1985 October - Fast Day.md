@@ -1,7 +1,5 @@
 # Fast Day
 
-Gordon B. Hinckley
-
 By Elder Howard W. Hunter - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1985 General Conference*
@@ -71,4 +69,3 @@ May the Lord bless us as we live his commandments and share with our brothers an
 
 
 
-#Fasting

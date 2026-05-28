@@ -1,7 +1,5 @@
 # The Plan of Salvation
 
-Gordon B. Hinckley
-
 By Elder L. Tom Perry - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2006 General Conference*
@@ -73,4 +71,3 @@ Let us be no more tossed to and fro by every worldly wind and doctrine of man (s
 
 
 
-#Jesus_Christ #Missionary_Work #Plan_Of_Salvation

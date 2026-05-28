@@ -1,7 +1,5 @@
 # Called and Chosen
 
-Gordon B. Hinckley
-
 By President James E. Faust - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 2005 General Conference*
@@ -69,7 +67,3 @@ Brethren, this work is true. Joseph Smith saw the Father and the Son, and he hea
 
 [^7]: [[Matthew 22.14|Matthew 22:14]].
 
-
-
-
-#Apostasy #Church_Callings #Financial_Management #Leadership #Priesthood #Prophets

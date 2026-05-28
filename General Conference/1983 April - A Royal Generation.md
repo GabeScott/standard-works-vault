@@ -1,7 +1,5 @@
 # A Royal Generation
 
-Ezra Taft Benson
-
 By Elder Dean L. Larsen - *Of the Presidency of the First Quorum of the Seventy*
 
 *Given in the April session of the 1983 General Conference*
@@ -77,4 +75,3 @@ Young men, let us prove by the way we live and serve that we are everything the 
 
 
 
-#Last_Days #Obedience #Priesthood #Repentance

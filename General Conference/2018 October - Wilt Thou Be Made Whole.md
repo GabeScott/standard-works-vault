@@ -1,7 +1,5 @@
 # Wilt Thou Be Made Whole?
 
-Russell M. Nelson
-
 By Elder Matthew L. Carpenter - *Of the Seventy*
 
 *Given in the October session of the 2018 General Conference*
@@ -103,7 +101,3 @@ I testify that Jesus Christ paid the price so that we can be made whole. But we 
 
 [^17]: Russell M. Nelson, “[As We Go Forward Together](https://www.churchofjesuschrist.org/study/liahona/2018/04/as-we-go-forward-together?lang=eng),” *Ensign* or *Liahona,* Apr. 2018, 7.
 
-
-
-
-#Adversity #Healing #Jesus_Christ #Repentance

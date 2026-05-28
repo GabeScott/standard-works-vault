@@ -1,7 +1,5 @@
 # The Witness: Martin Harris
 
-Gordon B. Hinckley
-
 By Elder Dallin H. Oaks - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1999 General Conference*
@@ -101,4 +99,3 @@ The Lord’s invitation is warm and loving: “Come back and feast at the table 
 
 
 
-#Book_Of_Mormon #Church_Leaders #God_The_Father #Holy_Ghost #Jesus_Christ #Plan_Of_Salvation #Testimony

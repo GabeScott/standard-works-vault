@@ -1,7 +1,5 @@
 # The Constitution—A Glorious Standard
 
-Spencer W. Kimball
-
 By President Ezra Taft Benson - *President of the Council of the Twelve*
 
 *Given in the April session of the 1976 General Conference*
@@ -97,4 +95,3 @@ May God bless us to protect this sacred instrument. In the words of the Prophet 
 
 
 
-#U.S._Constitution

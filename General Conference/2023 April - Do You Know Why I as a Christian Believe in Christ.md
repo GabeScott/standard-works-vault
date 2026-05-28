@@ -1,7 +1,5 @@
 # Do You Know Why I as a Christian Believe in Christ?
 
-Gary E. Stevenson
-
 By Elder Ahmad S. Corbitt - *Of the Seventy*
 
 *Given in the April session of the 2023 General Conference*
@@ -63,7 +61,7 @@ That evening in New Jersey, sharing why we need Jesus Christ and His doctrine ga
 
 [^10]: See “[Lesson 2: The Plan of Salvation](https://www.churchofjesuschrist.org/study/manual/preach-my-gospel-a-guide-to-missionary-service/lesson-2-the-plan-of-salvation?lang=eng),” *Preach My Gospel*, 47–50.
 
-[^11]: [[Mosiah 15.27|Mosiah 15:27]]. References to eternal justice or God’s justice abound in the scriptures, but see particularly [[Alma 41.2|Alma 41:2–8]][[Alma 41.3|]][[Alma 41.4|]][[Alma 41.5|]][[Alma 41.6|]][[Alma 41.7|]][[Alma 41.8|]] and [[Alma 42.1|Alma 42]].
+[^11]: [[Mosiah 15.27|Mosiah 15:27]]. References to eternal justice or God’s justice abound in the scriptures, but see particularly [[Alma 41.2|Alma 41:2–8]][[Alma 41.3|]][[Alma 41.4|]][[Alma 41.5|]][[Alma 41.6|]][[Alma 41.7|]][[Alma 41.8|]] and [[Alma 42.1|Alma 42]][[Alma 42.2|]][[Alma 42.3|]][[Alma 42.4|]][[Alma 42.5|]][[Alma 42.6|]][[Alma 42.7|]][[Alma 42.8|]][[Alma 42.9|]][[Alma 42.10|]][[Alma 42.11|]][[Alma 42.12|]][[Alma 42.13|]][[Alma 42.14|]][[Alma 42.15|]][[Alma 42.16|]][[Alma 42.17|]][[Alma 42.18|]][[Alma 42.19|]][[Alma 42.20|]][[Alma 42.21|]][[Alma 42.22|]][[Alma 42.23|]][[Alma 42.24|]][[Alma 42.25|]][[Alma 42.26|]][[Alma 42.27|]][[Alma 42.28|]][[Alma 42.29|]][[Alma 42.30|]][[Alma 42.31|]].
 
 [^12]: See [[Alma 42.14|Alma 42:14–24]][[Alma 42.15|]][[Alma 42.16|]][[Alma 42.17|]][[Alma 42.18|]][[Alma 42.19|]][[Alma 42.20|]][[Alma 42.21|]][[Alma 42.22|]][[Alma 42.23|]][[Alma 42.24|]]; [[Moses 1.39|Moses 1:39]].
 
@@ -109,7 +107,3 @@ That evening in New Jersey, sharing why we need Jesus Christ and His doctrine ga
 
 [^33]: [[2 Nephi 2.8|2 Nephi 2:8]].
 
-
-
-
-#Atonement #Christianity #Church_Doctrine #Eternal_Life #Jesus_Christ #Justice #Plan_Of_Salvation

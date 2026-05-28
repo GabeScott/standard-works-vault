@@ -1,7 +1,5 @@
 # Touch the Hearts of the Children
 
-Gordon B. Hinckley
-
 By Anne G. Wirthlin - *First Counselor in the Primary General Presidency*
 
 *Given in the October session of the 1995 General Conference*
@@ -40,7 +38,7 @@ There is a spirit that pervades our homes when there is a love of the Lord, a lo
 
 President Kimball shared vivid memories of his home when the family knelt before meals to pray, their chairs turned back from the table, dinner plates upside down. He remembers night prayers at his mother’s knee. He said, “I feel sorry for children who must learn these important lessons after they are grown, when it is so much harder” (in Edward L. Kimball and Andrew E. Kimball Jr., *Spencer W. Kimball* \[Salt Lake City: Bookcraft, 1977\], p. 31). Home can be an oasis in the world. It’s a place where every child has a right to feel safe.
 
-In a fast and testimony meeting I attended recently in my own ward, three children bore their testimonies. Richie stood at the beginning of the meeting and said, “Last night I was reading from [[1 Nephi 1.1|1 Nephi, chapters 1, 2, and 3]]; and as I was reading I felt a great feeling of peace. I felt good inside. I’m thankful for the scriptures.”
+In a fast and testimony meeting I attended recently in my own ward, three children bore their testimonies. Richie stood at the beginning of the meeting and said, “Last night I was reading from [[1 Nephi 1.1|1 Nephi, chapters 1, 2, and 3]][[1 Nephi 1.2|]][[1 Nephi 1.3|]][[1 Nephi 1.4|]][[1 Nephi 1.5|]][[1 Nephi 1.6|]][[1 Nephi 1.7|]][[1 Nephi 1.8|]][[1 Nephi 1.9|]][[1 Nephi 1.10|]][[1 Nephi 1.11|]][[1 Nephi 1.12|]][[1 Nephi 1.13|]][[1 Nephi 1.14|]][[1 Nephi 1.15|]][[1 Nephi 1.16|]][[1 Nephi 1.17|]][[1 Nephi 1.18|]][[1 Nephi 1.19|]][[1 Nephi 1.20|]]; and as I was reading I felt a great feeling of peace. I felt good inside. I’m thankful for the scriptures.”
 
 Charity told of an experience she had of attending a concert with her family and becoming separated from her parents. She said, “I found a corner and sat down and prayed to Heavenly Father. I asked Him to send the Holy Ghost to be with me until my parents could find me—and I wasn’t afraid.”
 
@@ -53,4 +51,3 @@ Brothers and sisters, we can touch the hearts of our children and bring them to 
 
 
 
-#Children #Example #Faith #Family #Home #Jesus_Christ #Love #Parenthood #Prayer #Scriptures #Spirituality #Teaching #Testimony

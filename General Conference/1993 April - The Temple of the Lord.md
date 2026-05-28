@@ -1,7 +1,5 @@
 # The Temple of the Lord
 
-Thomas S. Monson
-
 By President Thomas S. Monson - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 1993 General Conference*
@@ -41,7 +39,3 @@ I echo the feelings of one and all, President Benson, in saying we love you and 
 
 [^2]: “Temple Memories” (address given at the Denver Colorado Temple dedication, 25 Oct. 1986).
 
-
-
-
-#Peace #Temple_Work #Temples

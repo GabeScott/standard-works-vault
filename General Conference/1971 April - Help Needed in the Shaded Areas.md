@@ -1,7 +1,5 @@
 # Help Needed in the Shaded Areas
 
-Joseph Fielding Smith
-
 By Elder William H. Bennett - *Assistant to the Council of the Twelve*
 
 *Given in the April session of the 1971 General Conference*
@@ -73,4 +71,3 @@ I testify to you that God lives, that the gospel is true, that this is the true 
 
 
 
-#Holy_Ghost #Spirituality #Youth

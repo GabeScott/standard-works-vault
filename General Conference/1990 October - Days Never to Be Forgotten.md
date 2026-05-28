@@ -1,7 +1,5 @@
 # Days Never to Be Forgotten
 
-Gordon B. Hinckley
-
 By President Thomas S. Monson - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 1990 General Conference*
@@ -111,4 +109,3 @@ That all of us may travel safely to our eternal home is my humble prayer. In the
 
 
 
-#Faith #Temple_Work #Temples

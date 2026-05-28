@@ -1,7 +1,5 @@
 # The Law of Tithing
 
-Gordon B. Hinckley
-
 By Elder Earl C. Tingey - *Of the Presidency of the Seventy*
 
 *Given in the April session of the 2002 General Conference*
@@ -107,7 +105,3 @@ I am grateful that my parents taught me to pay tithing. I bear my humble testimo
 
 [^8]: *Gospel Doctrine,* 229.
 
-
-
-
-#Blessings #Obedience #Testimony #Tithing

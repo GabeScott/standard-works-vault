@@ -1,7 +1,5 @@
 # The Beatitudes and Our Perfection
 
-Spencer W. Kimball
-
 By Elder Royden G. Derrick - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1977 General Conference*
@@ -79,4 +77,3 @@ To all men everywhere we reiterate that invitation to come unto the Savior the w
 
 
 
-#New_Testament #Plan_Of_Salvation

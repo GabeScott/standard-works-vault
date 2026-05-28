@@ -1,7 +1,5 @@
 # In the Time of Old Age
 
-Spencer W. Kimball
-
 By Barbara B. Smith - *Relief Society General President*
 
 *Given in the April session of the 1978 General Conference*
@@ -75,4 +73,3 @@ I humbly pray, in the name of Jesus Christ. Amen.
 
 
 
-#Elderly

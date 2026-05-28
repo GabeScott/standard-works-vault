@@ -1,7 +1,5 @@
 # Be of a Good Courage
 
-Thomas S. Monson
-
 By Ann M. Dibb - *Second Counselor in the Young Women General Presidency*
 
 *Given in the April session of the 2010 General Conference*
@@ -65,4 +63,3 @@ I want to leave you with my testimony that Heavenly Father knows and loves each 
 
 
 
-#Courage #Faith #Obedience #Prayer #Prophets #Scriptures

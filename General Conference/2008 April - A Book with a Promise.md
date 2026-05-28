@@ -1,7 +1,5 @@
 # A Book with a Promise
 
-Dieter F. Uchtdorf
-
 By Elder Craig C. Christensen - *Of the Seventy*
 
 *Given in the April session of the 2008 General Conference*
@@ -32,7 +30,7 @@ Next we stated that the Book of Mormon is a book with a purpose. From the title 
 
 ## A Book That Teaches the Great Plan of Happiness
 
-Additionally, we explained that the Book of Mormon is a book that teaches “the great plan of happiness” ([[Alma 42.8|Alma 42:8]]; see also [[Alma 42.5|vv. 5, 13, 31]][[Alma 42.13|]][[Alma 42.31|]]; [[2 Nephi 9.1|2 Nephi 9]]). In profound yet understandable terms, the Book of Mormon teaches the purpose of life, from whence we came, and what happens when we die. We learn of faith in Jesus Christ and His atoning sacrifice, of repentance, of the importance of baptism by immersion, and of the gift and power of the Holy Ghost. By studying and feasting upon the doctrines of the Book of Mormon, we gain “a perfect brightness of hope, and a love of God and of all men,” with a desire to “endure to the end” that we may “have eternal life” ([[2 Nephi 31.20|2 Nephi 31:20]]).
+Additionally, we explained that the Book of Mormon is a book that teaches “the great plan of happiness” ([[Alma 42.8|Alma 42:8]]; see also [[Alma 42.5|vv. 5, 13, 31]][[Alma 42.13|]][[Alma 42.31|]]; [[2 Nephi 9.1|2 Nephi 9]][[2 Nephi 9.2|]][[2 Nephi 9.3|]][[2 Nephi 9.4|]][[2 Nephi 9.5|]][[2 Nephi 9.6|]][[2 Nephi 9.7|]][[2 Nephi 9.8|]][[2 Nephi 9.9|]][[2 Nephi 9.10|]][[2 Nephi 9.11|]][[2 Nephi 9.12|]][[2 Nephi 9.13|]][[2 Nephi 9.14|]][[2 Nephi 9.15|]][[2 Nephi 9.16|]][[2 Nephi 9.17|]][[2 Nephi 9.18|]][[2 Nephi 9.19|]][[2 Nephi 9.20|]][[2 Nephi 9.21|]][[2 Nephi 9.22|]][[2 Nephi 9.23|]][[2 Nephi 9.24|]][[2 Nephi 9.25|]][[2 Nephi 9.26|]][[2 Nephi 9.27|]][[2 Nephi 9.28|]][[2 Nephi 9.29|]][[2 Nephi 9.30|]][[2 Nephi 9.31|]][[2 Nephi 9.32|]][[2 Nephi 9.33|]][[2 Nephi 9.34|]][[2 Nephi 9.35|]][[2 Nephi 9.36|]][[2 Nephi 9.37|]][[2 Nephi 9.38|]][[2 Nephi 9.39|]][[2 Nephi 9.40|]][[2 Nephi 9.41|]][[2 Nephi 9.42|]][[2 Nephi 9.43|]][[2 Nephi 9.44|]][[2 Nephi 9.45|]][[2 Nephi 9.46|]][[2 Nephi 9.47|]][[2 Nephi 9.48|]][[2 Nephi 9.49|]][[2 Nephi 9.50|]][[2 Nephi 9.51|]][[2 Nephi 9.52|]][[2 Nephi 9.53|]][[2 Nephi 9.54|]]). In profound yet understandable terms, the Book of Mormon teaches the purpose of life, from whence we came, and what happens when we die. We learn of faith in Jesus Christ and His atoning sacrifice, of repentance, of the importance of baptism by immersion, and of the gift and power of the Holy Ghost. By studying and feasting upon the doctrines of the Book of Mormon, we gain “a perfect brightness of hope, and a love of God and of all men,” with a desire to “endure to the end” that we may “have eternal life” ([[2 Nephi 31.20|2 Nephi 31:20]]).
 
 ## A Book That Testifies That Jesus Is the Christ
 
@@ -49,4 +47,3 @@ I express my solemn witness that the Book of Mormon is true. It is a book that h
 
 
 
-#Book_Of_Mormon #Joseph_Smith #Missionary_Work

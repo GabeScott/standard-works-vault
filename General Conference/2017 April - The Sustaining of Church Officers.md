@@ -1,7 +1,5 @@
 # The Sustaining of Church Officers
 
-Bonnie H. Cordon
-
 By Presented by President Dieter F. Uchtdorf - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 2017 General Conference*

@@ -1,7 +1,5 @@
 # Sir, We Would Like to See Jesus
 
-David A. Bednar
-
 By Elder Robert M. Daines - *Of the Seventy*
 
 *Given in the October session of the 2023 General Conference*
@@ -177,7 +175,3 @@ May we seek His loving face and then be vessels of His mercy to His children.[^3
 
 [^32]: See [[Romans 9.23|Romans 9:23]].
 
-
-
-
-#Covenants #Jesus_Christ #Love #Service

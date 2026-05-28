@@ -1,7 +1,5 @@
 # God Will Do Something Unimaginable
 
-Russell M. Nelson
-
 By Elder Dieter F. Uchtdorf - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2020 General Conference*
@@ -163,7 +161,3 @@ As an Apostle of the Lord, I invite and bless you to “cheerfully do all things
 
 [^11]: [[D&C 123.17|Doctrine and Covenants 123:17]].
 
-
-
-
-#Adversity #Faith #Missionary_Work #Prophets

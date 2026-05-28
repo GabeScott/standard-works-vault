@@ -1,7 +1,5 @@
 # This Is Your Phone Call
 
-Thomas S. Monson
-
 By Bishop Richard C. Edgley - *First Counselor in the Presiding Bishopric*
 
 *Given in the April session of the 2009 General Conference*
@@ -71,7 +69,3 @@ Brethren, this is your phone call. This is our phone call. May the Lord bless us
 
 [^4]: Brigham Young, *Deseret News,* Oct. 15, 1856, 252.
 
-
-
-
-#Brotherhood #Employment #Priesthood #Service

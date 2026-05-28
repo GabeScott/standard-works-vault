@@ -1,7 +1,5 @@
 # Solemn Assembly and Sustaining of Church Officers
 
-Ezra Taft Benson
-
 By Presented by President Gordon B. Hinckley - *First Counselor in the First Presidency*
 
 *Given in the April session of the 1986 General Conference*

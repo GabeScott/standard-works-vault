@@ -1,7 +1,5 @@
 # Build Your Shield of Faith
 
-Spencer W. Kimball
-
 By Elder L. Tom Perry - *Of the Council of the Twelve*
 
 *Given in the April session of the 1974 General Conference*
@@ -53,4 +51,3 @@ And to all who hear my voice today, I declare my witness that God lives, that Je
 
 
 
-#Home #Spirituality

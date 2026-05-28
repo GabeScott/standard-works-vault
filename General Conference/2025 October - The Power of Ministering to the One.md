@@ -1,7 +1,5 @@
 # The Power of Ministering to the One
 
-Dallin H. Oaks
-
 By Elder Peter M. Johnson - *Of the Seventy*
 
 *Given in the October session of the 2025 General Conference*
@@ -109,7 +107,3 @@ My friends, I promise that as we *live* the doctrine of Christ and minister to t
 
 [^21]: Russell M. Nelson, “[[2024 October - The Lord Jesus Christ Will Come Again.md|The Lord Jesus Christ Will Come Again]],” 122.
 
-
-
-
-#Book_Of_Mormon #Church_Doctrine #Discipleship #Jesus_Christ #Love #Ministering #Temples

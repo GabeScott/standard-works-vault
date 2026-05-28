@@ -1,7 +1,5 @@
 # Looking Back and Moving Forward
 
-Dieter F. Uchtdorf
-
 By President Thomas S. Monson - *President of the Church*
 
 *Given in the April session of the 2008 General Conference*
@@ -91,7 +89,3 @@ I pledge my life, my strength—all that I have to offer—in serving Him and in
 
 [^6]: [[Jeremiah 8.22|Jeremiah 8:22]].
 
-
-
-
-#Church_History #Church_Leaders #Leadership #Prophets #Testimony #Unity

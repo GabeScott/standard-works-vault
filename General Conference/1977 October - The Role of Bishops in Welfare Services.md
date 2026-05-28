@@ -1,7 +1,5 @@
 # The Role of Bishops in Welfare Services
 
-Spencer W. Kimball
-
 By President Marion G. Romney - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 1977 General Conference*
@@ -117,4 +115,3 @@ It is my prayer that all bishops and stake presidents will thoroughly inform the
 
 
 
-#Bishops #Welfare

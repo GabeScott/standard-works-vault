@@ -1,7 +1,5 @@
 # Faith and Good Works
 
-Thomas S. Monson
-
 By Elder Stephen D. Nadauld - *Of the Seventy*
 
 *Given in the April session of the 1992 General Conference*
@@ -47,4 +45,3 @@ I add my witness to the many that have been borne from this pulpit: I know God l
 
 
 
-#Example #Faith #Service

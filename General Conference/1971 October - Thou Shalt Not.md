@@ -1,7 +1,5 @@
 # Thou Shalt Not
 
-Joseph Fielding Smith
-
 By Elder Sterling W. Sill - *Assistant to the Council of the Twelve*
 
 *Given in the October session of the 1971 General Conference*
@@ -67,4 +65,3 @@ Because of our birthright, our intelligence, our covenants, and our assignments,
 
 
 
-#Commandments

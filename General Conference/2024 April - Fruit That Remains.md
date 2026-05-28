@@ -1,7 +1,5 @@
 # Fruit That Remains
 
-Dallin H. Oaks
-
 By Elder Matthew L. Carpenter - *Of the Seventy*
 
 *Given in the April session of the 2024 General Conference*
@@ -99,7 +97,3 @@ These promised blessings appertaining to our covenants can be sealed upon us by 
 
 [^19]: See [[John 15.16|John 15:16]].
 
-
-
-
-#Covenants #Holy_Ghost #Marriage #Plan_Of_Salvation #Sealings

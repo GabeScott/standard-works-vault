@@ -1,7 +1,5 @@
 # Living Happily Ever After
 
-Gordon B. Hinckley
-
 By Coleen K. Menlove - *Primary General President*
 
 *Given in the April session of the 2000 General Conference*
@@ -63,4 +61,3 @@ As we come to understand the great plan of happiness, we will radiate, for all t
 
 
 
-#Adversity #Children #Environment #Jesus_Christ #Joy #Obedience #Peace #Plan_Of_Salvation #Trust

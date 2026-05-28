@@ -1,7 +1,5 @@
 # Let There Be No Misunderstanding
 
-Spencer W. Kimball
-
 By Elder Jacob de Jager - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1978 General Conference*
@@ -79,4 +77,3 @@ That we all may come to a perfect understanding of this divine purpose is my hum
 
 
 
-#Conversion #Teaching

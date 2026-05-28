@@ -1,7 +1,5 @@
 # Do Not Despair
 
-Spencer W. Kimball
-
 By President Ezra Taft Benson - *President of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1974 General Conference*
@@ -71,4 +69,3 @@ May we use them all in the difficult days ahead so that we Christian pilgrims wi
 
 
 
-#Attitude #Joy

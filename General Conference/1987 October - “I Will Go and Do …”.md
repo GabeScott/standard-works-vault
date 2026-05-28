@@ -1,7 +1,5 @@
 # “I Will Go and Do …”
 
-Ezra Taft Benson
-
 By Elder Lynn A. Sorensen - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1987 General Conference*
@@ -39,4 +37,3 @@ If I am to be remembered at all by the membership of the Church, I hope it will 
 
 
 
-#Testimony

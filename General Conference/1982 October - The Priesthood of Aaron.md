@@ -1,7 +1,5 @@
 # The Priesthood of Aaron
 
-Spencer W. Kimball
-
 By President Gordon B. Hinckley - *Counselor in the First Presidency*
 
 *Given in the October session of the 1982 General Conference*
@@ -95,4 +93,3 @@ It is not easy to keep oneself unspotted from the world. Each of us needs all th
 
 
 
-#Church_Meetings #Priesthood

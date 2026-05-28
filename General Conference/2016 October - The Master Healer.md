@@ -1,7 +1,5 @@
 # The Master Healer
 
-Jean B. Bingham
-
 By Carole M. Stephens - *First Counselor in the Relief Society General Presidency*
 
 *Given in the October session of the 2016 General Conference*
@@ -131,7 +129,3 @@ The Savior pleads:
 
 [^16]: [[3 Nephi 9.13|3 Nephi 9:13–14]][[3 Nephi 9.14|]].
 
-
-
-
-#Adversity #Atonement #Faith #Healing #Holy_Ghost #Jesus_Christ #Repentance

@@ -1,7 +1,5 @@
 # Pure Religion
 
-Spencer W. Kimball
-
 By Elder Marvin J. Ashton - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1982 General Conference*
@@ -97,4 +95,3 @@ May God help us to learn and live the principles of pure religion. The business 
 
 
 
-#Criticism #Religion

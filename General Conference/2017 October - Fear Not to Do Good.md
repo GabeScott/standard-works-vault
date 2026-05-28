@@ -1,7 +1,5 @@
 # Fear Not to Do Good
 
-Sharon Eubank
-
 By President Henry B. Eyring - *First Counselor in the First Presidency*
 
 *Given in the October session of the 2017 General Conference*
@@ -95,4 +93,3 @@ I so testify and leave you my blessing and my love. In the sacred name of Jesus 
 
 
 
-#Adversity #Book_Of_Mormon #Courage #Faith #Fear #Jesus_Christ #Love #Service #Testimony

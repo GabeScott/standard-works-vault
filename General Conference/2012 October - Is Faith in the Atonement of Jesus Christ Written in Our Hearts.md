@@ -1,7 +1,5 @@
 # Is Faith in the Atonement of Jesus Christ Written in Our Hearts?
 
-Thomas S. Monson
-
 By Linda K. Burton - *Relief Society General President*
 
 *Given in the October session of the 2012 General Conference*
@@ -135,7 +133,3 @@ May the Atonement of Jesus Christ cause a “mighty change” to be wrought in o
 
 [^23]: [[Jeremiah 31.33|Jeremiah 31:33]]; emphasis added.
 
-
-
-
-#Atonement #Faith #Jesus_Christ

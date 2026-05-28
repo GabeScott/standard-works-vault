@@ -1,7 +1,5 @@
 # “Run and Not Be Weary”
 
-Gordon B. Hinckley
-
 By Elder L. Tom Perry - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1996 General Conference*
@@ -83,4 +81,3 @@ God bless you that you will have the courage to live the way you should and be a
 
 
 
-#Priesthood #Word_Of_Wisdom

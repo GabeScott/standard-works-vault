@@ -1,7 +1,5 @@
 # The Time to Labor Is Now
 
-Spencer W. Kimball
-
 By President Spencer W. Kimball - *President of the Church*
 
 *Given in the October session of the 1975 General Conference*
@@ -137,4 +135,3 @@ As we enter into these sessions of this conference, may we invoke the blessings 
 
 
 
-#Abortion #Family #Loyalty #Missionary_Work #Morality #Work

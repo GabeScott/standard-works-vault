@@ -1,7 +1,5 @@
 # Stand Independent above All Other Creatures
 
-Spencer W. Kimball
-
 By Elder Bruce R. McConkie - *Of the Council of the Twelve*
 
 *Given in the April session of the 1979 General Conference*
@@ -95,4 +93,3 @@ In the name of the Lord Jesus Christ, amen.
 
 
 
-#Self-Reliance

@@ -1,7 +1,5 @@
 # Prepare Every Needful Thing
 
-Joseph Fielding Smith
-
 By Elder Howard W. Hunter - *Of the Council of the Twelve*
 
 *Given in the April session of the 1971 General Conference*
@@ -67,4 +65,3 @@ I testify to you that the meetinghouse library program is divinely inspired. It 
 
 
 
-#Preparation #Teaching

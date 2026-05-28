@@ -1,7 +1,5 @@
 # Cheering Each Other On
 
-Dallin H. Oaks
-
 By Sister J. Anette Dennis - *First Counselor in the Relief Society General Presidency*
 
 *Given in the October session of the 2025 General Conference*
@@ -143,7 +141,3 @@ May we all follow the Savior’s example and cheer *each other* on is my prayer 
 
 [^35]: See Jeffrey R. Holland, “[[2016 April - Tomorrow the Lord Will Do Wonders among You.md|Tomorrow the Lord Will Do Wonders Among You]],” *Ensign* or *Liahona*, May 2016, 127.
 
-
-
-
-#Belonging #Discipleship #Judging #Love #Unity

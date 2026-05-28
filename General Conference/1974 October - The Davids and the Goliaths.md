@@ -1,7 +1,5 @@
 # The Davids and the Goliaths
 
-Spencer W. Kimball
-
 By President Spencer W. Kimball - *President of the Church*
 
 *Given in the October session of the 1974 General Conference*
@@ -257,4 +255,3 @@ May God bless you, I pray, in the name of Jesus Christ. Amen.
 
 
 
-#Example #Faith #Honesty #Standards #Youth

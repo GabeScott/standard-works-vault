@@ -1,7 +1,5 @@
 # Blessings of the Temple
 
-Cheryl A. Esplin
-
 By President Thomas S. Monson - *President of the Church*
 
 *Given in the April session of the 2015 General Conference*
@@ -59,7 +57,3 @@ May our Heavenly Father bless us that we may have the spirit of temple worship, 
 
 [^2]: Correspondence in the possession of Thomas S. Monson.
 
-
-
-
-#Missionary_Work #Peace #Temple_Work #Temples

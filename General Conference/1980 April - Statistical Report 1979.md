@@ -1,7 +1,5 @@
 # Statistical Report 1979
 
-Spencer W. Kimball
-
 By Presented by Francis M. Gibbons - *Secretary to the First Presidency*
 
 *Given in the April session of the 1980 General Conference*

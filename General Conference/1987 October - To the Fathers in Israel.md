@@ -1,7 +1,5 @@
 # To the Fathers in Israel
 
-Ezra Taft Benson
-
 By President Ezra Taft Benson - *President of the Church*
 
 *Given in the October session of the 1987 General Conference*
@@ -119,4 +117,3 @@ To this end I pray, in the name of Jesus Christ, amen.
 
 
 
-#Children #Fatherhood #Marriage #Motherhood #Priesthood #Responsibility

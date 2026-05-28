@@ -1,7 +1,5 @@
 # Now Is the Time
 
-Russell M. Nelson
-
 By Elder Jack N. Gerard - *Of the Seventy*
 
 *Given in the October session of the 2018 General Conference*
@@ -73,7 +71,3 @@ As we step back from the world and assess our lives, now is the time to consider
 
 [^5]: Russell M. Nelson, “[[2018 April - Revelation for the Church, Revelation for Our Lives.md|Revelation for the Church, Revelation for Our Lives]],” *Ensign* or *Liahona,* May 2018, 96.
 
-
-
-
-#Perspective #Priorities #Revelation #Truth

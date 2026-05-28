@@ -1,7 +1,5 @@
 # Building a Life Resistant to the Adversary
 
-Dallin H. Oaks
-
 By Elder Jorge F. Zeballos - *Of the Seventy*
 
 *Given in the October session of the 2022 General Conference*
@@ -79,7 +77,3 @@ I pray that we may continue to build our lives following the plans and technical
 
 [^11]: [[D&C 61.36|Doctrine and Covenants 61:36]].
 
-
-
-
-#Adversity #Joy #Preparation #Satan #Temptation

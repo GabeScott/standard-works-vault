@@ -1,7 +1,5 @@
 # Home Teaching—a Divine Service
 
-Gordon B. Hinckley
-
 By President Thomas S. Monson - *First Counselor in the First Presidency*
 
 *Given in the October session of the 1997 General Conference*
@@ -141,7 +139,3 @@ In the name of Jesus Christ, amen.
 
 [^10]: [[Acts 10.38|Acts 10:38]].
 
-
-
-
-#Home_Teaching #Jesus_Christ #Teaching

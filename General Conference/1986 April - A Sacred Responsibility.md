@@ -1,7 +1,5 @@
 # A Sacred Responsibility
 
-Ezra Taft Benson
-
 By President Ezra Taft Benson - *President of the Church*
 
 *Given in the April session of the 1986 General Conference*
@@ -89,4 +87,3 @@ I testify that the Book of Mormon is the word of God. Jesus is the Christ. Josep
 
 
 
-#Book_Of_Mormon #Mission_Of_The_Church

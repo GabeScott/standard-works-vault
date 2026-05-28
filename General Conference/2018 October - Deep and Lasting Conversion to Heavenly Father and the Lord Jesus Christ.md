@@ -1,7 +1,5 @@
 # Deep and Lasting Conversion to Heavenly Father and the Lord Jesus Christ
 
-Russell M. Nelson
-
 By Elder Quentin L. Cook - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2018 General Conference*
@@ -131,7 +129,3 @@ I testify to you that in the deliberations of the Council of the First Presidenc
 
 [^16]: See Russell M. Nelson, “[As We Go Forward Together](https://www.churchofjesuschrist.org/study/liahona/2018/04/as-we-go-forward-together?lang=eng),” 7.
 
-
-
-
-#Conversion #Curriculum #Family #Home #Sabbath

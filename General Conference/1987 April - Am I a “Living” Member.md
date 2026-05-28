@@ -1,7 +1,5 @@
 # Am I a “Living” Member?
 
-Ezra Taft Benson
-
 By President Howard W. Hunter - *Acting President of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1987 General Conference*
@@ -65,4 +63,3 @@ May we stand firm and be true and living members of the Church and receive the p
 
 
 
-#Faith #Testimony

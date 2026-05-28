@@ -1,7 +1,5 @@
 # Preparation in the Priesthood: “I Need Your Help”
 
-Richard G. Scott
-
 By President Henry B. Eyring - *First Counselor in the First Presidency*
 
 *Given in the October session of the 2011 General Conference*
@@ -109,7 +107,3 @@ I leave you my blessing that you will be able to recognize the glorious opportun
 
 [^3]: [[D&C 84.39|Doctrine and Covenants 84:39]].
 
-
-
-
-#Duty #Preparation #Priesthood #Service #Work

@@ -1,7 +1,5 @@
 # A Disciple, a Friend
 
-Gordon B. Hinckley
-
 By Bishop Richard C. Edgley - *First Counselor in the Presiding Bishopric*
 
 *Given in the April session of the 1998 General Conference*
@@ -81,4 +79,3 @@ It is my testimony that He lived, He died, and He lives. He atoned for our sins.
 
 
 
-#Atonement #Book_Of_Mormon #Commandments #Conversion #Covenants #Discipleship #Jesus_Christ #Ordinances #Prayer #Sacrament

@@ -1,7 +1,5 @@
 # Commitment to God
 
-Spencer W. Kimball
-
 By Elder Howard W. Hunter - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1982 General Conference*
@@ -71,4 +69,3 @@ I pray that we will have the strength to decide now to do what we ought to do. I
 
 
 
-#Commitment #Obedience

@@ -1,7 +1,5 @@
 # To Be Healed
 
-James E. Faust
-
 By Elder Richard G. Scott - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1994 General Conference*
@@ -117,7 +115,3 @@ If you are caught on a plateau of spiritual healing and don’t seem to be makin
 
 [^27]: [[Mosiah 24.15|Mosiah 24:15]].
 
-
-
-
-#Adversity #Atonement #Charity #Faith #Forgiveness #Healing #Jesus_Christ #Love #Miracles #Patience #Satan

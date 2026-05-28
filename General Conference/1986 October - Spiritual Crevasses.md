@@ -1,7 +1,5 @@
 # Spiritual Crevasses
 
-Ezra Taft Benson
-
 By Elder David B. Haight - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1986 General Conference*
@@ -62,7 +60,7 @@ You are the Lord’s special resource for teaching the gospel to all his other c
 
 You are one of his spirit sons, singled out with a special calling. And we know that he loves you. You have the gift of the Holy Ghost. You can discern good from evil. And with the power of the priesthood, you have the authority to represent your Heavenly Father.
 
-Now, my brethren, let us who have been given this most precious responsibility of the holy priesthood “arise,” as father Lehi declared, and “put on the armor of righteousness” ([[2 Nephi 21.1|2 Ne. 21–23]]).
+Now, my brethren, let us who have been given this most precious responsibility of the holy priesthood “arise,” as father Lehi declared, and “put on the armor of righteousness” ([[2 Nephi 21.1|2 Ne. 21–23]][[2 Nephi 21.2|]][[2 Nephi 21.3|]][[2 Nephi 21.4|]][[2 Nephi 21.5|]][[2 Nephi 21.6|]][[2 Nephi 21.7|]][[2 Nephi 21.8|]][[2 Nephi 21.9|]][[2 Nephi 21.10|]][[2 Nephi 21.11|]][[2 Nephi 21.12|]][[2 Nephi 21.13|]][[2 Nephi 21.14|]][[2 Nephi 21.15|]][[2 Nephi 21.16|]]).
 
 To help each of us avoid the pitfalls and crevasses in life, the Lord has provided the lifeline of the precious truths in the scriptures, which, if held on to, will allow us to escape both physical and spiritual danger.
 
@@ -101,4 +99,3 @@ May the Lord bless each of you with your life’s opportunities. Put your trust 
 
 
 
-#Adversity #Priesthood #Satan #Word_Of_Wisdom #Youth

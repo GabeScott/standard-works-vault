@@ -1,7 +1,5 @@
 # Young Men—Holders of Keys
 
-Gordon B. Hinckley
-
 By Elder Monte J. Brough - *Of the Seventy*
 
 *Given in the October session of the 2003 General Conference*
@@ -97,7 +95,3 @@ I testify that these Aaronic Priesthood quorums hold the holy priesthood of God.
 
 [^6]: [[Mormon 2.1|Mormon 2:1–2]][[Mormon 2.2|]].
 
-
-
-
-#Missionary_Work #Priesthood #Service #Youth

@@ -1,7 +1,5 @@
 # How Choice a Seer!
 
-Gordon B. Hinckley
-
 By Elder Neal A. Maxwell - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2003 General Conference*
@@ -77,4 +75,3 @@ Brothers and sisters, given all of the foregoing, “what can I say more” exce
 
 
 
-#Atonement #Book_Of_Mormon #Jesus_Christ #Joseph_Smith #Restoration

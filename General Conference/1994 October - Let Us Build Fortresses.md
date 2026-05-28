@@ -1,7 +1,5 @@
 # Let Us Build Fortresses
 
-Gordon B. Hinckley
-
 By Elder Horacio A. Tenorio - *Recently Released Member of the Seventy*
 
 *Given in the October session of the 1994 General Conference*
@@ -49,4 +47,3 @@ I know we have a loving Father who is waiting for us. I know that he instructs u
 
 
 
-#Adversity #Councils #Example #Family #Family_Home_Evening #Home #Media #Parenthood #Prayer #Satan #Youth

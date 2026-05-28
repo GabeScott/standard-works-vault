@@ -1,7 +1,5 @@
 # Staying Unspotted from the World
 
-Spencer W. Kimball
-
 By Elder George P. Lee - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1978 General Conference*
@@ -43,4 +41,3 @@ God loves you. I love you. I thank God every day for young people like you. And 
 
 
 
-#Youth

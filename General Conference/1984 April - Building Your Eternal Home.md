@@ -1,7 +1,5 @@
 # Building Your Eternal Home
 
-Gordon B. Hinckley
-
 By Elder Thomas S. Monson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1984 General Conference*
@@ -125,4 +123,3 @@ May we follow this divinely provided blueprint. May we be successful builders of
 
 
 
-#Spirituality

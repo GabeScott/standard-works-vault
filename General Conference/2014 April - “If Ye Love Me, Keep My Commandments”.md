@@ -1,7 +1,5 @@
 # “If Ye Love Me, Keep My Commandments”
 
-Thomas S. Monson
-
 By Elder Robert D. Hales - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2014 General Conference*
@@ -129,7 +127,3 @@ I bear my special witness that our Savior lives. Because He obeyed, “every kne
 
 [^22]: [[Mosiah 27.31|Mosiah 27:31]].
 
-
-
-
-#Agency #Jesus_Christ #Obedience

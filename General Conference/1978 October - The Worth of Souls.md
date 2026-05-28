@@ -1,7 +1,5 @@
 # The Worth of Souls
 
-Spencer W. Kimball
-
 By President Marion G. Romney - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 1978 General Conference*
@@ -143,4 +141,3 @@ I give you my personal witness to the truth of these things. If you can understa
 
 
 
-#Plan_Of_Salvation

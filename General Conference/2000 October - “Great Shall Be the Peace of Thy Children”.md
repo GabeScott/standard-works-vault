@@ -1,7 +1,5 @@
 # “Great Shall Be the Peace of Thy Children”
 
-Gordon B. Hinckley
-
 By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the October session of the 2000 General Conference*
@@ -115,4 +113,3 @@ God bless you, dear fathers. May He bless you with wisdom and judgment, with und
 
 
 
-#Adversity #Children #Conscience #Divorce #Education #Family #Fatherhood #Friendship #Home #Honesty #Marriage #Media #Morality #Parenthood #Peace #Prayer #Standards #Temptation #Word_Of_Wisdom #Youth

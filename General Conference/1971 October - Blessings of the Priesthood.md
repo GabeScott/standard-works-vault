@@ -1,7 +1,5 @@
 # Blessings of the Priesthood
 
-Joseph Fielding Smith
-
 By President Joseph Fielding Smith - *President of the Church*
 
 *Given in the October session of the 1971 General Conference*
@@ -45,4 +43,3 @@ I wish to express my appreciation and my willingness to join with you, my good b
 
 
 
-#Plan_Of_Salvation #Priesthood

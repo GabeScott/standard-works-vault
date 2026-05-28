@@ -1,7 +1,5 @@
 # Statistical Report, 2016
 
-Bonnie H. Cordon
-
 By Presented by Brook P. Hales - *Secretary to the First Presidency*
 
 *Given in the April session of the 2017 General Conference*

@@ -1,7 +1,5 @@
 # Ministering to the Needs of Members
 
-Spencer W. Kimball
-
 By President Spencer W. Kimball - *President of the Church*
 
 *Given in the October session of the 1980 General Conference*
@@ -35,4 +33,3 @@ I love you, my brethren, my beloved brethren, and I am grateful for your faith, 
 
 
 
-#Leadership

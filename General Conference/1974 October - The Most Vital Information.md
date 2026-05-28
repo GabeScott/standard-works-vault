@@ -1,7 +1,5 @@
 # The Most Vital Information
 
-Spencer W. Kimball
-
 By Elder Robert L. Simpson - *Assistant to the Council of the Twelve*
 
 *Given in the October session of the 1974 General Conference*
@@ -69,4 +67,3 @@ I declare in all kindness and sincerity that your eternal life and the salvation
 
 
 
-#Example

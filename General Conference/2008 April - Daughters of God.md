@@ -1,7 +1,5 @@
 # Daughters of God
 
-Dieter F. Uchtdorf
-
 By Elder M. Russell Ballard - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2008 General Conference*
@@ -75,4 +73,3 @@ Now, in closing, I want to add my witness of President Monson’s prophetic call
 
 
 
-#Family #Motherhood #Women

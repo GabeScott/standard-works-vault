@@ -1,7 +1,5 @@
 # Stand as a Witness
 
-Dieter F. Uchtdorf
-
 By Susan W. Tanner - *Young Women General President*
 
 *Given in the April session of the 2008 General Conference*
@@ -87,7 +85,3 @@ May we press forward with steadfast faith in Christ, standing as witnesses of Hi
 
 [^12]: “How Firm a Foundation,” *Hymns,* no. 85.
 
-
-
-
-#Example #Holy_Ghost #Jesus_Christ #Testimony

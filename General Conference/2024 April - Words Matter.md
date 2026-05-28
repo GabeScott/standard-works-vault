@@ -1,7 +1,5 @@
 # Words Matter
 
-Dallin H. Oaks
-
 By Elder Ronald A. Rasband - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2024 General Conference*
@@ -165,7 +163,3 @@ Of this I testify as an Apostle called to the Lord’s divine service—to decla
 
 [^36]: [[John 1.1|John 1:1]].
 
-
-
-
-#Communication #Love #Prophets

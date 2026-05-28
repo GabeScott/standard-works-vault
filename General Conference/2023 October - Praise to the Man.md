@@ -1,7 +1,5 @@
 # Praise to the Man
 
-David A. Bednar
-
 By President M. Russell Ballard - *Acting President of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2023 General Conference*
@@ -59,4 +57,3 @@ I leave you my witness and testimony that I know that Jesus is the Christ. He is
 
 
 
-#Book_Of_Mormon #First_Vision #Jesus_Christ #Joseph_Smith #Restoration

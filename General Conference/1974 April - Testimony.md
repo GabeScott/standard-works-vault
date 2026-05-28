@@ -1,7 +1,5 @@
 # Testimony
 
-Spencer W. Kimball
-
 By Elder Franklin D. Richards - *Assistant to the Council of the Twelve*
 
 *Given in the April session of the 1974 General Conference*
@@ -89,4 +87,3 @@ I bear this witness to you in the name of Jesus Christ. Amen.
 
 
 
-#Testimony

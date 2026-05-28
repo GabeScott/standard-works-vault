@@ -1,7 +1,5 @@
 # Free Forever, to Act for Themselves
 
-Thomas S. Monson
-
 By Elder D. Todd Christofferson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2014 General Conference*
@@ -119,7 +117,3 @@ I bear witness that God the Father lives, that His Son, Jesus Christ, is our Red
 
 [^25]: [[Moroni 10.31|Moroni 10:31]].
 
-
-
-
-#Accountability #Agency #Jesus_Christ #Justice #Mercy #Plan_Of_Salvation #Repentance #Responsibility #Truth

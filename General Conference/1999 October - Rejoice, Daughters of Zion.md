@@ -1,7 +1,5 @@
 # Rejoice, Daughters of Zion
 
-Gordon B. Hinckley
-
 By Mary Ellen Smoot - *Relief Society General President*
 
 *Given in the October session of the 1999 General Conference*
@@ -117,4 +115,3 @@ It is my humble prayer that each of us will leave this meeting determined to dev
 
 
 
-#Family #Family_Home_Evening #Home #Joy #Literacy #Love #Marriage #Plan_Of_Salvation #Priesthood #Relief_Society #Temptation #Testimony #Women

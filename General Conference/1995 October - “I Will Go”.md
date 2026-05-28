@@ -1,7 +1,5 @@
 # “I Will Go”
 
-Gordon B. Hinckley
-
 By Bishop H. David Burton - *First Counselor in the Presiding Bishopric*
 
 *Given in the October session of the 1995 General Conference*
@@ -47,4 +45,3 @@ Brethren, I pray we may often recall, and perhaps even hum and sing, that simple
 
 
 
-#Attitude #Commandments #Family #Obedience #Parenthood #Priesthood #Prophets #Sabbath #Teaching

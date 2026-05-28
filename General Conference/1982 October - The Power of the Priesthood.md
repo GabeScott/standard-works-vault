@@ -1,7 +1,5 @@
 # The Power of the Priesthood
 
-Spencer W. Kimball
-
 By President Marion G. Romney - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 1982 General Conference*
@@ -25,4 +23,3 @@ I leave my blessings with you and pray that you will be given an understanding t
 
 
 
-#Priesthood

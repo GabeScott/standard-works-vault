@@ -1,7 +1,5 @@
 # Steadfast in Our Covenants
 
-Gordon B. Hinckley
-
 By Susan W. Tanner - *Young Women General President*
 
 *Given in the April session of the 2003 General Conference*
@@ -65,4 +63,3 @@ I testify to you that when I remember my covenants each day, I do feel hope and 
 
 
 
-#Adversity #Covenants #Endurance #Hope

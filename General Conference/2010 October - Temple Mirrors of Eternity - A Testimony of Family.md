@@ -1,7 +1,5 @@
 # Temple Mirrors of Eternity: A Testimony of Family
 
-Thomas S. Monson
-
 By Elder Gerrit W. Gong - *Of the Seventy*
 
 *Given in the October session of the 2010 General Conference*
@@ -91,7 +89,3 @@ I humbly witness: God lives. He â€œshall wipe away all tears from \[our\] eyesâ€
 
 [^19]: [[Revelation 21.4|Revelation 21:4]].
 
-
-
-
-#Atonement #Family #Temples

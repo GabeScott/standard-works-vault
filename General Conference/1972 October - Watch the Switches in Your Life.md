@@ -1,7 +1,5 @@
 # Watch the Switches in Your Life
 
-N. Eldon Tanner
-
 By Elder Gordon B. Hinckley - *Of the Council of the Twelve*
 
 *Given in the October session of the 1972 General Conference*
@@ -89,4 +87,3 @@ And so, watch the switches in your life, the small but important day-to-day deci
 
 
 
-#Morality #Obedience #Prayer #Priesthood #Youth

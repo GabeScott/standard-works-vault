@@ -1,7 +1,5 @@
 # Accessing God’s Power through Covenants
 
-Gary E. Stevenson
-
 By Elder Dale G. Renlund - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2023 General Conference*
@@ -109,7 +107,3 @@ As you come to Christ and are connected to Him and our Heavenly Father by covena
 
 [^28]: See [[D&C 132.19|Doctrine and Covenants 132:19–20]][[D&C 132.20|]].
 
-
-
-
-#Covenants #Discipleship #Jesus_Christ #Ordinances #Temples

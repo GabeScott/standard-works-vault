@@ -1,7 +1,5 @@
 # “Ye May Know”
 
-James E. Faust
-
 By Bishop Keith B. McMullin - *Second Counselor in the Presiding Bishopric*
 
 *Given in the April session of the 1996 General Conference*
@@ -89,4 +87,3 @@ This is my witness—all of this is true! In the name of Jesus Christ, amen.
 
 
 
-#Holy_Ghost #Jesus_Christ #Restoration #Testimony

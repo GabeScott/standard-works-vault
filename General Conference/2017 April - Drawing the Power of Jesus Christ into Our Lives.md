@@ -1,7 +1,5 @@
 # Drawing the Power of Jesus Christ into Our Lives
 
-Bonnie H. Cordon
-
 By President Russell M. Nelson - *President of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2017 General Conference*
@@ -126,7 +124,3 @@ As one of His special witnesses, I declare that God lives! Jesus is the Christ! 
 
 [^24]: See [[3 Nephi 17.20|3 Nephi 17:20]].
 
-
-
-
-#Atonement #Covenants #Faith #Jesus_Christ #Scripture_Study

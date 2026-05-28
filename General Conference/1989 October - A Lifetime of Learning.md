@@ -1,7 +1,5 @@
 # A Lifetime of Learning
 
-Ezra Taft Benson
-
 By Elder Victor L. Brown - *Emeritus member of the First Quorum of the Seventy*
 
 *Given in the October session of the 1989 General Conference*
@@ -55,4 +53,3 @@ I bear witness that He lives, that He loves each one of His children—and that 
 
 
 
-#Faith #Service #Youth

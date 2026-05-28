@@ -1,7 +1,5 @@
 # The Gospel—The Foundation for Our Career
 
-Spencer W. Kimball
-
 By Elder Boyd K. Packer - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1982 General Conference*
@@ -151,4 +149,3 @@ God bless the members of this Church, that you can be happy with who you are and
 
 
 
-#Employment #Work

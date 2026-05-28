@@ -1,7 +1,5 @@
 # We All Have a Father in Whom We Can Trust
 
-James E. Faust
-
 By Elder Kenneth Johnson - *Of the Seventy*
 
 *Given in the April session of the 1994 General Conference*
@@ -51,4 +49,3 @@ I know that he lives; I know that he loves us, for we are his children. His son 
 
 
 
-#Church_Organization #Family #Fatherhood #God_The_Father #Motherhood #Service

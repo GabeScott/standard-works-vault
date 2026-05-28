@@ -1,7 +1,5 @@
 # The Power of Preach My Gospel
 
-Gordon B. Hinckley
-
 By Elder Richard G. Scott - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2005 General Conference*
@@ -57,7 +55,3 @@ On behalf of our missionaries worldwide, we express profound gratitude to all wh
 
 [^2]: *Preach My Gospel* (2004), v.
 
-
-
-
-#Missionary_Work #Plan_Of_Salvation #Scripture_Study #Teaching

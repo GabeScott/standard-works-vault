@@ -1,7 +1,5 @@
 # Out of Small Things
 
-Gordon B. Hinckley
-
 By Kathleen H. Hughes - *First Counselor in the Relief Society General Presidency*
 
 *Given in the October session of the 2004 General Conference*
@@ -39,4 +37,3 @@ I bear witness to you of the reality of the promises of the Father to us, His be
 
 
 
-#Family #Prayer #Preparation #Scripture_Study #Service

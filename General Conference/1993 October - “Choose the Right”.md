@@ -1,7 +1,5 @@
 # “Choose the Right”
 
-Gordon B. Hinckley
-
 By Elder L. Tom Perry - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1993 General Conference*
@@ -117,4 +115,3 @@ God lives! Jesus is the Christ! Obedience to His laws will lead us to life etern
 
 
 
-#Agency #Joy #Obedience

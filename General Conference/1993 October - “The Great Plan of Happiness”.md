@@ -1,7 +1,5 @@
 # “The Great Plan of Happiness”
 
-Gordon B. Hinckley
-
 By Elder Dallin H. Oaks - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1993 General Conference*
@@ -93,4 +91,3 @@ When we have done all that we are able, we can rely on God’s promised mercy. W
 
 
 
-#Marriage #Morality #Plan_Of_Salvation

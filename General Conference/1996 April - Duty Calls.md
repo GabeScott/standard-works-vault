@@ -1,7 +1,5 @@
 # Duty Calls
 
-James E. Faust
-
 By President Thomas S. Monson - *First Counselor in the First Presidency*
 
 *Given in the April session of the 1996 General Conference*
@@ -188,7 +186,3 @@ Brethren of the priesthood, may all of us remember our duty to prepare and our d
 
 [^19]: [[Matthew 25.21|Matt. 25:21]].
 
-
-
-
-#Church_Callings #Duty #Evil #Home_Teaching #Jesus_Christ #Priesthood #Teaching #Worldliness

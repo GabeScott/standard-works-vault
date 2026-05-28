@@ -1,7 +1,5 @@
 # Your Own Personal Testimony
 
-Gordon B. Hinckley
-
 By Elder Angel Abrea - *Of the Seventy*
 
 *Given in the April session of the 2000 General Conference*
@@ -69,4 +67,3 @@ Yes, these and many other characteristics and actions model a testimony. And thi
 
 
 
-#Commandments #Education #Faith #Holy_Ghost #Humility #Joseph_Smith #Spirituality #Testimony #Truth

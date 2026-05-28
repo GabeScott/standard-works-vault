@@ -1,7 +1,5 @@
 # Touchstone of Truth
 
-Spencer W. Kimball
-
 By Elder John H. Vandenberg - *Assistant to the Council of the Twelve*
 
 *Given in the April session of the 1974 General Conference*
@@ -77,4 +75,3 @@ May we ponder the privilege of being members of the Church of Jesus Christ and l
 
 
 
-#Book_Of_Mormon #Godhead #Joseph_Smith #Truth

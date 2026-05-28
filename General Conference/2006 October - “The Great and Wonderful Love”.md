@@ -1,7 +1,5 @@
 # “The Great and Wonderful Love”
 
-Gordon B. Hinckley
-
 By Elder Anthony D. Perkins - *Of the Seventy*
 
 *Given in the October session of the 2006 General Conference*
@@ -115,7 +113,3 @@ I testify of Heavenly Father, who in great and wonderful love reaches out to eac
 
 [^31]: [[Alma 33.23|Alma 33:23]].
 
-
-
-
-#Divine_Nature #Forgiveness #Hope #Individual_Worth #Jesus_Christ

@@ -1,7 +1,5 @@
 # “Yagottawanna”
 
-Thomas S. Monson
-
 By Elder Jack H Goaslind - *Of the Seventy*
 
 *Given in the April session of the 1991 General Conference*
@@ -53,4 +51,3 @@ I promise you that the Lord will bless you with right attitudes and desires as y
 
 
 
-#Faith #Spirituality #Worship

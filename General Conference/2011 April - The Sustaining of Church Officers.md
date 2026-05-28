@@ -1,7 +1,5 @@
 # The Sustaining of Church Officers
 
-Thomas S. Monson
-
 By Presented by President Dieter F. Uchtdorf - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 2011 General Conference*

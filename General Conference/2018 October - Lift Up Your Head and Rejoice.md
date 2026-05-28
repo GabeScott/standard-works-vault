@@ -1,7 +1,5 @@
 # Lift Up Your Head and Rejoice
 
-Russell M. Nelson
-
 By M. Joseph Brough - *Second Counselor in the Young Men General Presidency*
 
 *Given in the October session of the 2018 General Conference*
@@ -109,7 +107,3 @@ As we face hard things in the Lord’s way, may we lift up our heads and rejoice
 
 [^15]: [[John 16.33|John 16:33]].
 
-
-
-
-#Adversity #Discipleship #Forgiveness #Joy

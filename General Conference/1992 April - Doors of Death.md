@@ -1,7 +1,5 @@
 # Doors of Death
 
-Thomas S. Monson
-
 By Elder Russell M. Nelson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1992 General Conference*
@@ -120,4 +118,3 @@ With that assurance, brothers and sisters, love life! Cherish each moment as a b
 
 
 
-#Death #Plan_Of_Salvation #Resurrection

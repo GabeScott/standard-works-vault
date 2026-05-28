@@ -1,7 +1,5 @@
 # Identity of a Young Woman
 
-Ezra Taft Benson
-
 By Elaine L. Jack - *Second Counselor in the Young Women General Presidency*
 
 *Given in the October session of the 1989 General Conference*
@@ -89,4 +87,3 @@ This I believe, in the name of Jesus Christ, amen.
 
 
 
-#Faith #Self-Esteem #Youth

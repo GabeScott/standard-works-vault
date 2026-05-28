@@ -1,7 +1,5 @@
 # The Restoration of All Things
 
-Robert D. Hales
-
 By President James E. Faust - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 2006 General Conference*
@@ -105,7 +103,3 @@ I have a personal witness of the truth of the covenants, teachings, and authorit
 
 [^25]: First Presidency statement, Feb. 15, 1978.
 
-
-
-
-#Apostasy #Covenants #Restoration

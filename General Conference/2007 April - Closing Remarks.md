@@ -1,7 +1,5 @@
 # Closing Remarks
 
-Thomas S. Monson
-
 By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the April session of the 2007 General Conference*
@@ -23,4 +21,3 @@ Now, as we separate for a season, God bless you, my beloved associates. I so pra
 
 
 
-#Family_Home_Evening #General_Conference #Kindness #Marriage

@@ -1,7 +1,5 @@
 # This Is the Work of the Master
 
-Thomas S. Monson
-
 By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the April session of the 1995 General Conference*
@@ -97,4 +95,3 @@ I repeat, this, my brethren and sisters, is the work of the Almighty. He lives, 
 
 
 
-#Children #Elderly #Howard_W._Hunter #Jesus_Christ #Parenthood #Respect #Tolerance #Unity #Youth

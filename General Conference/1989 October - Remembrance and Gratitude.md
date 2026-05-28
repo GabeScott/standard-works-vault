@@ -1,7 +1,5 @@
 # Remembrance and Gratitude
 
-Ezra Taft Benson
-
 By Bishop Henry B. Eyring - *First Counselor in the Presiding Bishopric*
 
 *Given in the October session of the 1989 General Conference*
@@ -95,4 +93,3 @@ In the name of Jesus Christ, amen.
 
 
 
-#Blessings #Church_History #Consecration #Gratitude #Prayer #Sacrifice

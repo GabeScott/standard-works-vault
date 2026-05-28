@@ -1,7 +1,5 @@
 # A Pattern for Peace
 
-Cheryl A. Esplin
-
 By Bishop W. Christopher Waddell - *Second Counselor in the Presiding Bishopric*
 
 *Given in the April session of the 2016 General Conference*
@@ -50,7 +48,7 @@ Each time we attend the temple—in all that we hear, do, and say; in every ordi
 
 In the Doctrine and Covenants we read, “Whether by mine own voice or by the voice of my servants, it is the same.”[^9] From the days of Adam and down through the ages to our current prophet, Thomas Spencer Monson, the Lord has spoken through His authorized representatives. Those who choose to listen and give heed to the words of the Lord, as delivered through His prophets, will find safety and peace.
 
-In the Book of Mormon we find many examples of the importance of following prophetic counsel and standing with the prophet, including a lesson learned from Lehi’s vision of the tree of life, found in [[1 Nephi 8.1|1 Nephi chapter 8]]. Never has the great and spacious building been more crowded or the noise coming from its open windows more misguided, mocking, and confusing than in our day. In this passage we read of two groups of people and their responses to the shouts from the building.
+In the Book of Mormon we find many examples of the importance of following prophetic counsel and standing with the prophet, including a lesson learned from Lehi’s vision of the tree of life, found in [[1 Nephi 8.1|1 Nephi chapter 8]][[1 Nephi 8.2|]][[1 Nephi 8.3|]][[1 Nephi 8.4|]][[1 Nephi 8.5|]][[1 Nephi 8.6|]][[1 Nephi 8.7|]][[1 Nephi 8.8|]][[1 Nephi 8.9|]][[1 Nephi 8.10|]][[1 Nephi 8.11|]][[1 Nephi 8.12|]][[1 Nephi 8.13|]][[1 Nephi 8.14|]][[1 Nephi 8.15|]][[1 Nephi 8.16|]][[1 Nephi 8.17|]][[1 Nephi 8.18|]][[1 Nephi 8.19|]][[1 Nephi 8.20|]][[1 Nephi 8.21|]][[1 Nephi 8.22|]][[1 Nephi 8.23|]][[1 Nephi 8.24|]][[1 Nephi 8.25|]][[1 Nephi 8.26|]][[1 Nephi 8.27|]][[1 Nephi 8.28|]][[1 Nephi 8.29|]][[1 Nephi 8.30|]][[1 Nephi 8.31|]][[1 Nephi 8.32|]][[1 Nephi 8.33|]][[1 Nephi 8.34|]][[1 Nephi 8.35|]][[1 Nephi 8.36|]][[1 Nephi 8.37|]][[1 Nephi 8.38|]]. Never has the great and spacious building been more crowded or the noise coming from its open windows more misguided, mocking, and confusing than in our day. In this passage we read of two groups of people and their responses to the shouts from the building.
 
 Beginning in [[1 Nephi 8.26|verse 26]], we read:
 
@@ -137,7 +135,3 @@ I testify that Jesus Christ is “the way, the truth, and the life”[^18] and t
 
 [^18]: [[John 14.6|John 14:6]].
 
-
-
-
-#Adversity #Atonement #Covenants #Jesus_Christ #Peace #Prophets #Repentance #Temples

@@ -1,7 +1,5 @@
 # Welcome to Conference
 
-Thomas S. Monson
-
 By President Thomas S. Monson - *President of the Church*
 
 *Given in the April session of the 2014 General Conference*
@@ -29,4 +27,3 @@ May we—all of us, here and elsewhere—be filled with the Spirit of the Lord a
 
 
 
-#General_Conference #Temples

@@ -1,7 +1,5 @@
 # Within the Clasp of Your Arms
 
-Ezra Taft Benson
-
 By Jeffrey R. Holland - *President of Brigham Young University*
 
 *Given in the April session of the 1983 General Conference*
@@ -63,4 +61,3 @@ Brethren, we all know fatherhood is not an easy assignment, but it ranks among t
 
 
 
-#Family #Parenthood

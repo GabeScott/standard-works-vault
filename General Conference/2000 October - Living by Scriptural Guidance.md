@@ -1,7 +1,5 @@
 # Living by Scriptural Guidance
 
-Gordon B. Hinckley
-
 By Elder Russell M. Nelson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2000 General Conference*
@@ -141,7 +139,3 @@ We all *need* guidance through life. We *obtain* it best from the standard works
 
 [^28]: Personal and family scripture study can employ books, recordings, or other material. Those who will establish a time for scripture study and endure in that endeavor will maintain a positive spirit throughout their days.
 
-
-
-
-#Endurance #Gratitude #Holy_Ghost #Honesty #Jesus_Christ #Obedience #Peace #Plan_Of_Salvation #Prayer #Repentance #Scripture_Study #Scriptures #Spirituality #Truth

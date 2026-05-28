@@ -1,7 +1,5 @@
 # It’s Conference Once Again
 
-Thomas S. Monson
-
 By President Thomas S. Monson - *President of the Church*
 
 *Given in the April session of the 2011 General Conference*
@@ -33,4 +31,3 @@ Now, brothers and sisters, we are anxious to listen to the messages which will b
 
 
 
-#Missionary_Work #Temples

@@ -1,7 +1,5 @@
 # The Lord’s Wind
 
-Gordon B. Hinckley
-
 By Elder John H. Groberg - *Of the Seventy*
 
 *Given in the October session of the 1993 General Conference*
@@ -75,4 +73,3 @@ In the name of Jesus Christ, amen.
 
 
 
-#Faith #Missionary_Work #Prayer

@@ -1,7 +1,5 @@
 # Testimony
 
-Spencer W. Kimball
-
 By Elder O. Leslie Stone - *Assistant to the Council of the Twelve*
 
 *Given in the April session of the 1975 General Conference*
@@ -81,4 +79,3 @@ Now, in conclusion, brothers and sisters, I would like to bear my testimony: I k
 
 
 
-#Testimony

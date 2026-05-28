@@ -1,7 +1,5 @@
 # His Yoke Is Easy and His Burden Is Light
 
-Dallin H. Oaks
-
 By Sister J. Anette Dennis - *First Counselor in the Relief Society General Presidency*
 
 *Given in the October session of the 2022 General Conference*
@@ -121,7 +119,3 @@ Friends, let us remember that each person on this earth is a child of God[^23] a
 
 [^27]: See [[Matthew 11.28|Matthew 11:28–30]][[Matthew 11.29|]][[Matthew 11.30|]].
 
-
-
-
-#Adversity #Charity #Jesus_Christ #Judging #Love

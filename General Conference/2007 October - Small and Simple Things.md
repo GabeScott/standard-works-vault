@@ -1,7 +1,5 @@
 # Small and Simple Things
 
-Gordon B. Hinckley
-
 By Elder Christoffel Golden Jr. - *Of the Seventy*
 
 *Given in the October session of the 2007 General Conference*
@@ -65,9 +63,5 @@ Finally, as to these sacred things, may I add my personal witness and assurance 
 
 [^10]: See [[Matthew 19.3|Matthew 19:3–6]][[Matthew 19.4|]][[Matthew 19.5|]][[Matthew 19.6|]]; [[D&C 131.1|D&C 131:1–4]][[D&C 131.2|]][[D&C 131.3|]][[D&C 131.4|]].
 
-[^11]: See [[Moroni 6.1|Moroni 6]].
+[^11]: See [[Moroni 6.1|Moroni 6]][[Moroni 6.2|]][[Moroni 6.3|]][[Moroni 6.4|]][[Moroni 6.5|]][[Moroni 6.6|]][[Moroni 6.7|]][[Moroni 6.8|]][[Moroni 6.9|]].
 
-
-
-
-#Book_Of_Mormon #Conversion #Testimony

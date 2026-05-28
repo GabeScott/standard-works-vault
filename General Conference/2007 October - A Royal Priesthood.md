@@ -1,7 +1,5 @@
 # A Royal Priesthood
 
-Gordon B. Hinckley
-
 By President Thomas S. Monson - *First Counselor in the First Presidency*
 
 *Given in the October session of the 2007 General Conference*
@@ -96,7 +94,3 @@ In conclusion, may we have *vision.* May we put forth *effort.* May we exemplify
 
 [^9]: “Prayer Is the Soul’s Sincere Desire,” *Hymns,* no. 145.
 
-
-
-
-#Faith #Prayer #Priesthood #Service

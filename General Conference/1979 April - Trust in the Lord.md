@@ -1,7 +1,5 @@
 # Trust in the Lord
 
-Spencer W. Kimball
-
 By President Marion G. Romney - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 1979 General Conference*
@@ -105,4 +103,3 @@ That it may be so with all of you and all of us, I humbly pray. In the name of J
 
 
 
-#Tithing

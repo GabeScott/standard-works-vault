@@ -1,7 +1,5 @@
 # The Book of Mormon—Keystone of Our Religion
 
-Ezra Taft Benson
-
 By President Ezra Taft Benson - *President of the Church*
 
 *Given in the October session of the 1986 General Conference*
@@ -97,4 +95,3 @@ This is my prayer, that the Book of Mormon may become the keystone of our lives,
 
 
 
-#Book_Of_Mormon #Scriptures #Testimony

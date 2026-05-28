@@ -1,7 +1,5 @@
 # “Called and Prepared from the Foundation of the World”
 
-Ezra Taft Benson
-
 By Elder Neal A. Maxwell - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1986 General Conference*
@@ -85,4 +83,3 @@ In the holy name of Jesus Christ, amen.
 
 
 
-#Joseph_Smith #Priesthood #Restoration

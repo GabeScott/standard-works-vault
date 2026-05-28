@@ -1,7 +1,5 @@
 # Certain Women
 
-Bonnie H. Cordon
-
 By Linda K. Burton - *Relief Society General President*
 
 *Given in the April session of the 2017 General Conference*
@@ -97,7 +95,3 @@ Sisters, I testify of loving Heavenly Parents; of our Savior, Jesus Christ; and 
 
 [^9]: Used with permission of the author, Jennifer Reeder, a specialist in 19th-century women’s history in the Church History Department.
 
-
-
-
-#Confidence #Covenants #Discipleship #Jesus_Christ #Sacrifice #Women

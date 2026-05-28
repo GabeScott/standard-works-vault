@@ -1,7 +1,5 @@
 # The Dawning of a New Day in Africa
 
-Ezra Taft Benson
-
 By Elder Alexander B. Morrison - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1987 General Conference*
@@ -53,4 +51,3 @@ The gleaning and gathering of the children of God in Africa is just beginning. I
 
 
 
-#Church_Growth #Missionary_Work #Service

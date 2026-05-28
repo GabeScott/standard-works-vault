@@ -1,7 +1,5 @@
 # The Honored Place of Woman
 
-Gordon B. Hinckley
-
 By President Ezra Taft Benson - *President of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1981 General Conference*
@@ -161,4 +159,3 @@ May God bless and crown each of you with joy and happiness in this life and thro
 
 
 
-#Family #Women

@@ -1,7 +1,5 @@
 # Earthly Debts, Heavenly Debts
 
-Gordon B. Hinckley
-
 By Elder Joseph B. Wirthlin - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2004 General Conference*
@@ -137,7 +135,3 @@ Know within your hearts that Jesus the Christ lives. Be at peace, for as you dra
 
 [^11]: [[Matthew 6.19|Matthew 6:19–20]][[Matthew 6.20|]].
 
-
-
-
-#Financial_Management #Honesty #Tithing

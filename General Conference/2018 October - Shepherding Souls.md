@@ -1,7 +1,5 @@
 # Shepherding Souls
 
-Russell M. Nelson
-
 By Elder Gary E. Stevenson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2018 General Conference*
@@ -115,7 +113,3 @@ May we raise our sights to this prophetic vision so we can shepherd souls to the
 
 [^19]: [[1 Peter 5.4|1 Peter 5:4]].
 
-
-
-
-#Activation #Jesus_Christ #Ministering

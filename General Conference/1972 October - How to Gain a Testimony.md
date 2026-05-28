@@ -1,7 +1,5 @@
 # How to Gain a Testimony
 
-N. Eldon Tanner
-
 By President Loren C. Dunn - *Of the First Council of the Seventy*
 
 *Given in the October session of the 1972 General Conference*
@@ -65,4 +63,3 @@ What greater inheritance can parents give their children than the spiritual heri
 
 
 
-#Testimony

@@ -1,7 +1,5 @@
 # Presidents of the Church
 
-Ezra Taft Benson
-
 By Elder Joseph Anderson - *Emeritus Member of the First Quorum of the Seventy*
 
 *Given in the October session of the 1986 General Conference*
@@ -45,4 +43,3 @@ I know that God lives, that Jesus is the Christ, that these Brethren whom I have
 
 
 
-#Church_Leaders #Prophets #Testimony

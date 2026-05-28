@@ -1,7 +1,5 @@
 # A Pattern in All Things
 
-Gordon B. Hinckley
-
 By Elder Marvin J. Ashton - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1990 General Conference*
@@ -81,4 +79,3 @@ Instead of our being commanded in all things, we are given a pattern in all thin
 
 
 
-#Agency #Faith #Temptation

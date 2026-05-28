@@ -1,7 +1,5 @@
 # “Never Be Weary of Good Works”
 
-Spencer W. Kimball
-
 By Elder Jack H Goaslind, Jr. - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1978 General Conference*
@@ -23,4 +21,3 @@ I bear to you today, my brothers and sisters, my testimony—for which I am grat
 
 
 
-#Testimony

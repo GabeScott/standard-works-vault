@@ -1,7 +1,5 @@
 # The Blessing of Keeping the Sabbath Day Holy
 
-Gordon B. Hinckley
-
 By Elder H. Aldridge Gillespie - *Of the Seventy*
 
 *Given in the October session of the 2000 General Conference*
@@ -109,7 +107,3 @@ I love our Lord and Savior. I know He lives and that this is His Church and king
 
 [^24]: [[D&C 59.8|D&C 59:8]].
 
-
-
-
-#Faith #General_Conference #Joy #Peace #Repentance #Sabbath #Success #Worldliness

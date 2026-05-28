@@ -1,7 +1,5 @@
 # Adam, the Archangel
 
-Spencer W. Kimball
-
 By Elder Mark E. Petersen - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1980 General Conference*
@@ -139,4 +137,3 @@ I bear you my solemn testimony that this—The Church of Jesus Christ of Latter-
 
 
 
-#Adam_And_Eve

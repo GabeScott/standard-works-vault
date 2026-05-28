@@ -1,7 +1,5 @@
 # As Jesus Sees Us
 
-Thomas S. Monson
-
 By Elder Cecil O. Samuelson, Jr. - *Of the Seventy*
 
 *Given in the April session of the 1995 General Conference*
@@ -14,7 +12,7 @@ During this recent process of self-examination, I confess I have wondered what o
 
 And how are we to know how we are perceived by Jesus Christ? By how closely we conform to the standards that he has established for us and by the purity of the intents of our hearts. He is the one who has provided the perfect pattern and the perfect standard for all mankind not only by all that he is and did but with his compellingly clear question and invitation: “What manner of men ought ye to be? Verily I say unto you, even as I am” ([[3 Nephi 27.27|3 Ne. 27:27]]). To do as he asks and to be what we should assures us of his approval. But to do otherwise invites his disappointment.
 
-He who not only knows us best but loves us most has provided through the grandeur of his atonement all that we need to compensate for our failings, mistakes, sins, and disappointments if only we accept his invitation to come to him by way of the narrow gate and the strait path identified by his prophets (see [[2 Nephi 31.1|2 Ne. 31]]) and obtain the blessings made available to all who seek them through his authorized agents.
+He who not only knows us best but loves us most has provided through the grandeur of his atonement all that we need to compensate for our failings, mistakes, sins, and disappointments if only we accept his invitation to come to him by way of the narrow gate and the strait path identified by his prophets (see [[2 Nephi 31.1|2 Ne. 31]][[2 Nephi 31.2|]][[2 Nephi 31.3|]][[2 Nephi 31.4|]][[2 Nephi 31.5|]][[2 Nephi 31.6|]][[2 Nephi 31.7|]][[2 Nephi 31.8|]][[2 Nephi 31.9|]][[2 Nephi 31.10|]][[2 Nephi 31.11|]][[2 Nephi 31.12|]][[2 Nephi 31.13|]][[2 Nephi 31.14|]][[2 Nephi 31.15|]][[2 Nephi 31.16|]][[2 Nephi 31.17|]][[2 Nephi 31.18|]][[2 Nephi 31.19|]][[2 Nephi 31.20|]][[2 Nephi 31.21|]]) and obtain the blessings made available to all who seek them through his authorized agents.
 
 For those of us who love the Savior and strive to please him, President Gordon B. Hinckley in an earlier day has reminded us: “As his followers, we cannot do a mean or shoddy or ungracious thing without tarnishing his image. Nor can we do a good and gracious and generous act without burnishing more brightly the symbol of him whose name we have taken upon ourselves” (*Be Thou an Example* \[Salt Lake City: Deseret Book Co., 1981\], p. 90).
 
@@ -29,4 +27,3 @@ As we strive to better understand how Jesus sees us and contemplate our own atte
 
 
 
-#Atonement #Covenants #Jesus_Christ #Standards

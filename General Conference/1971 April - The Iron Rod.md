@@ -1,7 +1,5 @@
 # The Iron Rod
 
-Joseph Fielding Smith
-
 By President Harold B. Lee - *First Counselor in the First Presidency*
 
 *Given in the April session of the 1971 General Conference*
@@ -30,7 +28,7 @@ As with many other ancient prophets in biblical history, dreams or visions of th
 
 The rod of iron as seen in the vision interpreted was the word of God, or the gospel of Jesus Christ, which led to the tree of life that the Master explained to the woman at the well in Samaria was as “a well of \[living\] water springing up into everlasting life.” ([[John 4.14|John 4:14]].)
 
-Those, as seen in the vision, who were across the river pointing fingers of scorn represented the multitudes of the earth which are gathered together to fight against the apostles of the Lamb of God. The scorners, so the Lord revealed, represented the so-called wisdom of the world, and the building itself in which they were gathered was the “pride of the world.” (See [[1 Nephi 11.1|1 Ne. 11–12]].)
+Those, as seen in the vision, who were across the river pointing fingers of scorn represented the multitudes of the earth which are gathered together to fight against the apostles of the Lamb of God. The scorners, so the Lord revealed, represented the so-called wisdom of the world, and the building itself in which they were gathered was the “pride of the world.” (See [[1 Nephi 11.1|1 Ne. 11–12]][[1 Nephi 11.2|]][[1 Nephi 11.3|]][[1 Nephi 11.4|]][[1 Nephi 11.5|]][[1 Nephi 11.6|]][[1 Nephi 11.7|]][[1 Nephi 11.8|]][[1 Nephi 11.9|]][[1 Nephi 11.10|]][[1 Nephi 11.11|]][[1 Nephi 11.12|]][[1 Nephi 11.13|]][[1 Nephi 11.14|]][[1 Nephi 11.15|]][[1 Nephi 11.16|]][[1 Nephi 11.17|]][[1 Nephi 11.18|]][[1 Nephi 11.19|]][[1 Nephi 11.20|]][[1 Nephi 11.21|]][[1 Nephi 11.22|]][[1 Nephi 11.23|]][[1 Nephi 11.24|]][[1 Nephi 11.25|]][[1 Nephi 11.26|]][[1 Nephi 11.27|]][[1 Nephi 11.28|]][[1 Nephi 11.29|]][[1 Nephi 11.30|]][[1 Nephi 11.31|]][[1 Nephi 11.32|]][[1 Nephi 11.33|]][[1 Nephi 11.34|]][[1 Nephi 11.35|]][[1 Nephi 11.36|]].)
 
 If there is any one thing most needed in this time of tumult and frustration, when men and women and youth and young adults are desperately seeking for answers to the problems which afflict mankind, it is an “iron rod” as a safe guide along the straight path on the way to eternal life, amidst the strange and devious roadways that would eventually lead to destruction and to the ruin of all that is “virtuous, lovely, or of good report.”
 
@@ -126,7 +124,7 @@ Then he counsels as to the wide sweep of learning about which we should seek. Hi
 
 And then the Lord addressed his revelation to all others who may not have faith: “… seek learning, even by study and also by faith.” ([[D&C 88.118|D&C 88:118]].)
 
-One might well ask: How does one get “learning by faith”? One prophet explains the process: First, one must arouse his faculties and experiment on the words of the Lord and desire to believe. Let this desire work in you until ye believe in a manner that you can give place even to a portion of the word of the Lord; then, like a planted seed, it must be cultivated and not resist the Spirit of the Lord, which is that which lighteneth everyone born into the world; you can then begin to feel within yourselves that it must be good, for it enlarges your soul and enlightens your understanding and, like the fruit of the tree in Lehi’s vision, it becomes delicious to the taste. (See [[Alma 32.1|Alma 32]].)
+One might well ask: How does one get “learning by faith”? One prophet explains the process: First, one must arouse his faculties and experiment on the words of the Lord and desire to believe. Let this desire work in you until ye believe in a manner that you can give place even to a portion of the word of the Lord; then, like a planted seed, it must be cultivated and not resist the Spirit of the Lord, which is that which lighteneth everyone born into the world; you can then begin to feel within yourselves that it must be good, for it enlarges your soul and enlightens your understanding and, like the fruit of the tree in Lehi’s vision, it becomes delicious to the taste. (See [[Alma 32.1|Alma 32]][[Alma 32.2|]][[Alma 32.3|]][[Alma 32.4|]][[Alma 32.5|]][[Alma 32.6|]][[Alma 32.7|]][[Alma 32.8|]][[Alma 32.9|]][[Alma 32.10|]][[Alma 32.11|]][[Alma 32.12|]][[Alma 32.13|]][[Alma 32.14|]][[Alma 32.15|]][[Alma 32.16|]][[Alma 32.17|]][[Alma 32.18|]][[Alma 32.19|]][[Alma 32.20|]][[Alma 32.21|]][[Alma 32.22|]][[Alma 32.23|]][[Alma 32.24|]][[Alma 32.25|]][[Alma 32.26|]][[Alma 32.27|]][[Alma 32.28|]][[Alma 32.29|]][[Alma 32.30|]][[Alma 32.31|]][[Alma 32.32|]][[Alma 32.33|]][[Alma 32.34|]][[Alma 32.35|]][[Alma 32.36|]][[Alma 32.37|]][[Alma 32.38|]][[Alma 32.39|]][[Alma 32.40|]][[Alma 32.41|]][[Alma 32.42|]][[Alma 32.43|]].)
 
 It was an English novelist who was quoted as saying: “He who seeks God has already found him.”
 
@@ -149,4 +147,3 @@ To this I do bear my solemn witness, in the sacred name of our Lord and Master, 
 
 
 
-#Conversion #Education #Evil #Faith #Obedience #Plan_Of_Salvation #Testimony

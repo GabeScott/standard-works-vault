@@ -1,7 +1,5 @@
 # Tender Hearts and Helping Hands
 
-Robert D. Hales
-
 By Bishop H. David Burton - *Presiding Bishop*
 
 *Given in the April session of the 2006 General Conference*
@@ -89,7 +87,3 @@ It is impossible for me to find the words to adequately express the sacred feeli
 
 [^6]: [[Luke 6.38|Luke 6:38]].
 
-
-
-
-#Charity #Service

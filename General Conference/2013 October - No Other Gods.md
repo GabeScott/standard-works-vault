@@ -1,7 +1,5 @@
 # No Other Gods
 
-Thomas S. Monson
-
 By Elder Dallin H. Oaks - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2013 General Conference*
@@ -103,7 +101,3 @@ May God help us to understand this priority and to be understood by others as we
 
 [^12]: See Dallin H. Oaks, [“Desire,”](https://www.churchofjesuschrist.org/study/ensign/2011/05/saturday-afternoon-session/desire?lang=eng) *Ensign* or *Liahona,* May 2011, 42–45.
 
-
-
-
-#Commandments #Marriage #Morality #Plan_Of_Salvation

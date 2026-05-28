@@ -1,7 +1,5 @@
 # And a Little Child Shall Lead Them
 
-Thomas S. Monson
-
 By President Boyd K. Packer - *President of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2012 General Conference*
@@ -139,7 +137,3 @@ Fathers and mothers, next time you cradle a newborn child in your arms, you can 
 
 [^9]: [[3 Nephi 17.24|3 Nephi 17:24]].
 
-
-
-
-#Children #Family #Parenthood

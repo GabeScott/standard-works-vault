@@ -1,7 +1,5 @@
 # Home and Family: A Divine Eternal Pattern
 
-Gordon B. Hinckley
-
 By Elder Gene R. Cook - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1984 General Conference*
@@ -114,4 +112,3 @@ In the name of Jesus Christ, amen.
 
 
 
-#Family #Parenthood

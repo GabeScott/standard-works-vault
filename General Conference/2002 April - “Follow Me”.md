@@ -1,7 +1,5 @@
 # “Follow Me”
 
-Gordon B. Hinckley
-
 By Elder Joseph B. Wirthlin - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2002 General Conference*
@@ -131,7 +129,3 @@ That each of us may hear the call of the Master and straightway leave our entang
 
 [^9]: [[John 14.6|John 14:6]].
 
-
-
-
-#Discipleship #Jesus_Christ #Obedience #Sacrifice #Temptation

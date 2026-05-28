@@ -1,7 +1,5 @@
 # Priesthood Authority in the Family and the Church
 
-Gordon B. Hinckley
-
 By Elder Dallin H. Oaks - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2005 General Conference*
@@ -91,4 +89,3 @@ I anticipate that glorious future day when the separated will be reunited and al
 
 
 
-#Abuse #Authority #Family #Leadership #Marriage #Priesthood #Single_Members #Womanhood

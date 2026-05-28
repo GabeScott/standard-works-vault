@@ -1,7 +1,5 @@
 # God Will Not Be Mocked
 
-Spencer W. Kimball
-
 By President Spencer W. Kimball - *President of the Church*
 
 *Given in the October session of the 1974 General Conference*
@@ -177,4 +175,3 @@ Our counsel then to you is to live strictly the laws of your Heavenly Father. In
 
 
 
-#Commandments #Obedience #Plan_Of_Salvation

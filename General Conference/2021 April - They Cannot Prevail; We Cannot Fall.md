@@ -1,7 +1,5 @@
 # They Cannot Prevail; We Cannot Fall
 
-Russell M. Nelson
-
 By Elder Chi Hong (Sam) Wong - *Of the Seventy*
 
 *Given in the April session of the 2021 General Conference*
@@ -43,7 +41,3 @@ I testify to you that Christ will come again a second time as He did the first t
 
 [^2]: “The Wise Man and the Foolish Man,” *Children’s Songbook*, 281.
 
-
-
-
-#Gospel #Hope #Jesus_Christ

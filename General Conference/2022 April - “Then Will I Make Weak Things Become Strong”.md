@@ -1,7 +1,5 @@
 # “Then Will I Make Weak Things Become Strong”
 
-Russell M. Nelson
-
 By Elder Kevin S. Hamilton - *Of the Seventy*
 
 *Given in the April session of the 2022 General Conference*
@@ -82,7 +80,7 @@ In 1943, following the difficult years of the Great Depression and during World 
 
 With the love and influence of his sister and brother-in-law, he started to revive his interest in the Church and began to read the Book of Mormon each night before going to sleep.
 
-One night, while he was reading in [[Alma 34.1|Alma chapter 34]], his heart was touched as he read the following words:
+One night, while he was reading in [[Alma 34.1|Alma chapter 34]][[Alma 34.2|]][[Alma 34.3|]][[Alma 34.4|]][[Alma 34.5|]][[Alma 34.6|]][[Alma 34.7|]][[Alma 34.8|]][[Alma 34.9|]][[Alma 34.10|]][[Alma 34.11|]][[Alma 34.12|]][[Alma 34.13|]][[Alma 34.14|]][[Alma 34.15|]][[Alma 34.16|]][[Alma 34.17|]][[Alma 34.18|]][[Alma 34.19|]][[Alma 34.20|]][[Alma 34.21|]][[Alma 34.22|]][[Alma 34.23|]][[Alma 34.24|]][[Alma 34.25|]][[Alma 34.26|]][[Alma 34.27|]][[Alma 34.28|]][[Alma 34.29|]][[Alma 34.30|]][[Alma 34.31|]][[Alma 34.32|]][[Alma 34.33|]][[Alma 34.34|]][[Alma 34.35|]][[Alma 34.36|]][[Alma 34.37|]][[Alma 34.38|]][[Alma 34.39|]][[Alma 34.40|]][[Alma 34.41|]], his heart was touched as he read the following words:
 
 “Yea, I would that ye would come forth and harden not your hearts any longer. …
 
@@ -149,7 +147,3 @@ I witness and testify that Jesus Christ is in reality our Savior and Redeemer. H
 
 [^25]: [[John 14.6|John 14:6]].
 
-
-
-
-#Atonement #Faith #Grace #Humility #Jesus_Christ #Repentance

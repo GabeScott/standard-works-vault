@@ -1,7 +1,5 @@
 # Be Ready
 
-Thomas S. Monson
-
 By President Henry B. Eyring - *First Counselor in the First Presidency*
 
 *Given in the October session of the 2009 General Conference*
@@ -91,7 +89,3 @@ I bear you my witness that God the Father lives and that Jesus Christ lives and 
 
 [^4]: [[D&C 121.46|D&C 121:46]].
 
-
-
-
-#Faith #Preparation #Priesthood

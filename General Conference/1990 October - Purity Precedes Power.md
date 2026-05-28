@@ -1,7 +1,5 @@
 # Purity Precedes Power
 
-Gordon B. Hinckley
-
 By Elder M. Russell Ballard - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1990 General Conference*
@@ -75,4 +73,3 @@ Brethren, we need not fear the future if we will keep the Lord’s commandments 
 
 
 
-#Morality #Priesthood #Repentance #Youth

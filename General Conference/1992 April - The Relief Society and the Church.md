@@ -1,7 +1,5 @@
 # The Relief Society and the Church
 
-Thomas S. Monson
-
 By Elder Dallin H. Oaks - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1992 General Conference*
@@ -85,4 +83,3 @@ We give thanks for the Savior, who made this great goal attainable, for His prie
 
 
 
-#Church_Organization #Priesthood #Relief_Society #Women

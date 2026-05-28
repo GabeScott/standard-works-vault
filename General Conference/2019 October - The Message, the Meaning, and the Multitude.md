@@ -1,7 +1,5 @@
 # The Message, the Meaning, and the Multitude
 
-Jeffrey R. Holland
-
 By Elder Jeffrey R. Holland - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2019 General Conference*
@@ -79,7 +77,3 @@ Sisters and brothers, through the incessant din and drumbeat of our day, may we 
 
 [^13]: [[Luke 18.42|Luke 18:42]].
 
-
-
-
-#First_Vision #General_Conference #Jesus_Christ #Temple_Work

@@ -1,7 +1,5 @@
 # “Behold Your Little Ones”
 
-Gordon B. Hinckley
-
 By Michaelene P. Grassli - *Primary General President*
 
 *Given in the October session of the 1992 General Conference*
@@ -16,7 +14,7 @@ Then, interestingly, the bishop said, “Sister Breinholt, the Savior cannot per
 
 When I heard that extraordinary experience, I wanted to study those verses again to understand better what the Savior did with the Nephite children and what he would do for our children if he were here. The Savior’s example and the bishop’s admonition apply to all of us—whether we love and serve children in our families, as neighbors or friends, or at church. Children belong to all of us.
 
-With that in mind, let us examine together some verses in the seventeenth chapter of 3 Nephi \[[[3 Nephi 17.1|3 Ne. 17]]\]. Let us discover together the pattern the Savior gave us.
+With that in mind, let us examine together some verses in the seventeenth chapter of 3 Nephi \[[[3 Nephi 17.1|3 Ne. 17]][[3 Nephi 17.2|]][[3 Nephi 17.3|]][[3 Nephi 17.4|]][[3 Nephi 17.5|]][[3 Nephi 17.6|]][[3 Nephi 17.7|]][[3 Nephi 17.8|]][[3 Nephi 17.9|]][[3 Nephi 17.10|]][[3 Nephi 17.11|]][[3 Nephi 17.12|]][[3 Nephi 17.13|]][[3 Nephi 17.14|]][[3 Nephi 17.15|]][[3 Nephi 17.16|]][[3 Nephi 17.17|]][[3 Nephi 17.18|]][[3 Nephi 17.19|]][[3 Nephi 17.20|]][[3 Nephi 17.21|]][[3 Nephi 17.22|]][[3 Nephi 17.23|]][[3 Nephi 17.24|]][[3 Nephi 17.25|]]\]. Let us discover together the pattern the Savior gave us.
 
 His invitation in verse 11 \[[[3 Nephi 17.11|3 Ne. 17:11]]\] was neither casual nor inconsequential. “He *commanded* that their little children should be brought.” (Emphasis added.) And notice what verse 11 *doesn’t* say. It doesn’t say never mind the little ones because they aren’t accountable yet. It doesn’t say the children were to be taken elsewhere so they wouldn’t disrupt the proceedings. And it doesn’t imply that the children won’t understand. But it *does* teach that children need to learn the significant things of the kingdom.
 
@@ -67,4 +65,3 @@ Sisters, by ministering to children we too can help the gospel live for many gen
 
 
 
-#Children #Jesus_Christ #Teaching

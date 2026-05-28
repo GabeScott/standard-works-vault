@@ -1,7 +1,5 @@
 # Sailing Safely the Seas of Life
 
-Spencer W. Kimball
-
 By Elder Thomas S. Monson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1982 General Conference*

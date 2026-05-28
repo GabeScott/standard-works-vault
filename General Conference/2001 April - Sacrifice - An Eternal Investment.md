@@ -1,7 +1,5 @@
 # Sacrifice: An Eternal Investment
 
-Gordon B. Hinckley
-
 By Carol B. Thomas - *First Counselor in the Young Women General Presidency*
 
 *Given in the April session of the 2001 General Conference*
@@ -59,4 +57,3 @@ How comforting to know that we are not expected to make this investment alone. L
 
 
 
-#Children #Couple_Missionaries #Family #Generosity #Jesus_Christ #Joy #Love #Missionary_Work #Obedience #Sacrifice #Worship

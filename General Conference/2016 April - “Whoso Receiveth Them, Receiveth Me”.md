@@ -1,7 +1,5 @@
 # “Whoso Receiveth Them, Receiveth Me”
 
-Cheryl A. Esplin
-
 By Elder Neil L. Andersen - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2016 General Conference*
@@ -133,7 +131,3 @@ I was deeply moved by this experience and saw it as symbolic of our need to reac
 
 [^14]: [[Matthew 18.5|Matthew 18:5]].
 
-
-
-
-#Children #Family #Fellowshipping #Parenthood #Youth

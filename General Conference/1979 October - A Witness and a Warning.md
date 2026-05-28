@@ -1,7 +1,5 @@
 # A Witness and a Warning
 
-Spencer W. Kimball
-
 By President Ezra Taft Benson - *Of the Council of the Twelve*
 
 *Given in the October session of the 1979 General Conference*
@@ -89,4 +87,3 @@ May God bless us that, with His help, we will not fail to bring to pass His purp
 
 
 
-#Freedom #Testimony

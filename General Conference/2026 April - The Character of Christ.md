@@ -1,7 +1,5 @@
 # The Character of Christ
 
-Dallin H. Oaks
-
 By President D. Todd Christofferson - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 2026 General Conference*
@@ -129,5 +127,3 @@ On this joyful Easter Sunday, I bear testimony of the resurrected, living Jesus 
 
 [^29]: [[Moroni 7.48|Moroni 7:48]]; see also [[1 John 3.2|1 John 3:2–3]][[1 John 3.3|]].
 
-
-#Character #Jesus_Christ #Ministering #Repentance #Second_Coming

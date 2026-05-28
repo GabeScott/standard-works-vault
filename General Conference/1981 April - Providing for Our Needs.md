@@ -1,7 +1,5 @@
 # Providing for Our Needs
 
-Marion G. Romney
-
 By Elder M. Russell Ballard - *Of the Presidency of the First Quorum of the Seventy*
 
 *Given in the April session of the 1981 General Conference*
@@ -83,4 +81,3 @@ May the Lord bless all of us to this end, I pray humbly, in the name of Jesus Ch
 
 
 
-#Financial_Management #Preparation #Self-Reliance

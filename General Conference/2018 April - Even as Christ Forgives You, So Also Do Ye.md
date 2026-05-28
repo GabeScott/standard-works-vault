@@ -1,7 +1,5 @@
 # Even as Christ Forgives You, So Also Do Ye
 
-Henry B. Eyring
-
 By Elder Larry J. Echo Hawk - *Of the Seventy*
 
 *Given in the April session of the 2018 General Conference*
@@ -99,7 +97,3 @@ The tomb is empty. Christ lives. I know Him. I love Him. I am grateful for His g
 
 [^9]: [[John 14.27|John 14:27]].
 
-
-
-
-#Forgiveness #Jesus_Christ

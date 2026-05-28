@@ -1,7 +1,5 @@
 # Every Woman Needs Relief Society
 
-Thomas S. Monson
-
 By Silvia H. Allred - *First Counselor in the Relief Society General Presidency*
 
 *Given in the October session of the 2009 General Conference*
@@ -101,7 +99,3 @@ I testify to you that Relief Society was divinely organized to assist the priest
 
 [^4]: Personal correspondence.
 
-
-
-
-#Relief_Society #Service #Women

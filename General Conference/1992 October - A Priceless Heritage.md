@@ -1,7 +1,5 @@
 # A Priceless Heritage
 
-Gordon B. Hinckley
-
 By Elder James E. Faust - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1992 General Conference*
@@ -61,4 +59,3 @@ At the close of this great conference, and on behalf of my Brethren, I sincerely
 
 
 
-#Commitment #Endurance #Pioneers #Sacrifice

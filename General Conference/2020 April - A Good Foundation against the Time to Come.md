@@ -1,7 +1,5 @@
 # A Good Foundation against the Time to Come
 
-Russell M. Nelson
-
 By Elder Gary E. Stevenson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2020 General Conference*
@@ -133,7 +131,3 @@ We will do so as we fulfill the charge of the Apostle Paul to “\[lay\] up in s
 
 [^14]: [[1 Timothy 6.19|1 Timothy 6:19]]; emphasis added.
 
-
-
-
-#Spirituality #Testimony

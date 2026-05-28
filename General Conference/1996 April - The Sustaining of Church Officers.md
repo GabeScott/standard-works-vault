@@ -1,7 +1,5 @@
 # The Sustaining of Church Officers
 
-James E. Faust
-
 By President James E. Faust - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 1996 General Conference*

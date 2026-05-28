@@ -1,7 +1,5 @@
 # “You Are My Hands”
 
-Thomas S. Monson
-
 By President Dieter F. Uchtdorf - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 2010 General Conference*
@@ -133,7 +131,3 @@ On this Easter Sunday, and every day, as we contemplate with reverence and awe h
 
 [^14]: See [[Jude 1.12|Jude 1:12]].
 
-
-
-
-#Jesus_Christ #Love #Service

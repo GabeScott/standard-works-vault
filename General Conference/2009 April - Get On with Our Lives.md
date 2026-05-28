@@ -1,7 +1,5 @@
 # Get On with Our Lives
 
-Thomas S. Monson
-
 By Elder Steven E. Snow - *Of the Presidency of the Seventy*
 
 *Given in the April session of the 2009 General Conference*
@@ -63,4 +61,3 @@ Robert Gardner knew what it meant to deal with change in his life. He followed t
 
 
 
-#Adversity #Faith #Hope #Perspective #Prophets

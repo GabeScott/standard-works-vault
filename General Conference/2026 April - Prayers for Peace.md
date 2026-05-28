@@ -1,7 +1,5 @@
 # Prayers for Peace
 
-Dallin H. Oaks
-
 By President Henry B. Eyring - *First Counselor in the First Presidency*
 
 *Given in the April session of the 2026 General Conference*
@@ -89,5 +87,3 @@ I testify that I know that Jesus Christ lives. He loves us and blesses us. He co
 
 [^11]: [[John 14.27|John 14:27]].
 
-
-#Adversity #Peace #Prayer

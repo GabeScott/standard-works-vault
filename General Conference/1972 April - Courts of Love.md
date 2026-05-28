@@ -1,7 +1,5 @@
 # Courts of Love
 
-Wilford G. Edling
-
 By Elder Robert L. Simpson - *Assistant to the Council of the Twelve*
 
 *Given in the April session of the 1972 General Conference*
@@ -87,4 +85,3 @@ God bless us to accept eternal law and understand that there can be no other way
 
 
 
-#Bishops #Disciplinary_Councils #Repentance

@@ -1,7 +1,5 @@
 # The Clarion Call of Prophets
 
-Gordon B. Hinckley
-
 By Elder Shirley D. Christensen - *Of the Seventy*
 
 *Given in the October session of the 2003 General Conference*
@@ -69,4 +67,3 @@ At their very core, the doctrines of The Church of Jesus Christ of Latter-day Sa
 
 
 
-#Jesus_Christ #Prophets #Teaching #Testimony

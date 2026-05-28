@@ -1,7 +1,5 @@
 # The Sabbath and the Sacrament
 
-Thomas S. Monson
-
 By Elder L. Tom Perry - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2011 General Conference*
@@ -123,7 +121,3 @@ On this day before the Sabbath, as we begin this great conference, let us rememb
 
 [^18]: [[Psalms 23.5|Psalm 23:5]].
 
-
-
-
-#Jesus_Christ #Sabbath #Sacrament #Worship

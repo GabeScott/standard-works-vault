@@ -1,7 +1,5 @@
 # Joseph, the Seer
 
-Gordon B. Hinckley
-
 By Elder Neal A. Maxwell - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1983 General Conference*
@@ -16,7 +14,7 @@ We have no hesitancy, however, in stipulating that Joseph was, by the standards 
 
 Emma Smith reportedly said that Joseph, at the time of the translation of the Book of Mormon, could not compose a “well-worded letter, let alone dictate a book like the Book of Mormon … \[which was\] marvelous to me—a marvel and a wonder—as much as to anyone else.” (Preston Nibley, *The Witnesses of the Book of Mormon,* Salt Lake City: Deseret Book Co., 1968, p. 28.)
 
-This obscure young man apparently paused while translating and dictating to Emma—probably from the [[1 Nephi 4.1|fourth chapter of 1 Nephi]]—concerning the “wall of Jerusalem”—and said, in effect, “Emma, I didn’t know there was a wall around Jerusalem.”
+This obscure young man apparently paused while translating and dictating to Emma—probably from the [[1 Nephi 4.1|fourth chapter of 1 Nephi]][[1 Nephi 4.2|]][[1 Nephi 4.3|]][[1 Nephi 4.4|]][[1 Nephi 4.5|]][[1 Nephi 4.6|]][[1 Nephi 4.7|]][[1 Nephi 4.8|]][[1 Nephi 4.9|]][[1 Nephi 4.10|]][[1 Nephi 4.11|]][[1 Nephi 4.12|]][[1 Nephi 4.13|]][[1 Nephi 4.14|]][[1 Nephi 4.15|]][[1 Nephi 4.16|]][[1 Nephi 4.17|]][[1 Nephi 4.18|]][[1 Nephi 4.19|]][[1 Nephi 4.20|]][[1 Nephi 4.21|]][[1 Nephi 4.22|]][[1 Nephi 4.23|]][[1 Nephi 4.24|]][[1 Nephi 4.25|]][[1 Nephi 4.26|]][[1 Nephi 4.27|]][[1 Nephi 4.28|]][[1 Nephi 4.29|]][[1 Nephi 4.30|]][[1 Nephi 4.31|]][[1 Nephi 4.32|]][[1 Nephi 4.33|]][[1 Nephi 4.34|]][[1 Nephi 4.35|]][[1 Nephi 4.36|]][[1 Nephi 4.37|]][[1 Nephi 4.38|]]—concerning the “wall of Jerusalem”—and said, in effect, “Emma, I didn’t know there was a wall around Jerusalem.”
 
 But Joseph’s keen mind was being awakened and expanded as the tutoring words of the Lord and of past prophets flowed through his quickened consciousness. In fact, he was the very seer foreseen anciently by the earlier Joseph in Egypt! (See [[2 Nephi 3.6|2 Ne. 3:6–7, 16–18]][[2 Nephi 3.7|]][[2 Nephi 3.16|]][[2 Nephi 3.17|]][[2 Nephi 3.18|]].)
 
@@ -131,4 +129,3 @@ Humbly, I give apostolic “praise to the man who communed with Jehovah,” in t
 
 
 
-#Joseph_Smith

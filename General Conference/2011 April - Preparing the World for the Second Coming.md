@@ -1,7 +1,5 @@
 # Preparing the World for the Second Coming
 
-Thomas S. Monson
-
 By Elder Neil L. Andersen - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2011 General Conference*
@@ -135,7 +133,3 @@ My young brethren of the priesthood, I testify of the majesty but, most of all, 
 
 [^29]: [[D&C 45.49|Doctrine and Covenants 45:49]].
 
-
-
-
-#Aaronic_Priesthood #Missionary_Work #Priesthood #Second_Coming

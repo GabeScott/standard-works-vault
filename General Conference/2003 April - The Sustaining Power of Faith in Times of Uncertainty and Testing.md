@@ -1,7 +1,5 @@
 # The Sustaining Power of Faith in Times of Uncertainty and Testing
 
-Gordon B. Hinckley
-
 By Elder Richard G. Scott - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2003 General Conference*
@@ -69,7 +67,3 @@ There are many around you who are confused and are seeking solutions to life’s
 
 [^6]: [[James 1.3|James 1:3–4]][[James 1.4|]].
 
-
-
-
-#Adversity #Character #Faith #Obedience #Peace #Prayer

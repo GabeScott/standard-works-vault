@@ -1,7 +1,5 @@
 # When I Read, I Am There
 
-Harold B. Lee
-
 By President S. Dilworth Young - *Of the First Council of the Seventy*
 
 *Given in the April session of the 1973 General Conference*
@@ -57,4 +55,3 @@ We look forward to his return to reign a thousand years. Let us worship him in s
 
 
 
-#Jesus_Christ

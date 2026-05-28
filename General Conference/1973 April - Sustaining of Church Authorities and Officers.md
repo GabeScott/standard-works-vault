@@ -1,7 +1,5 @@
 # Sustaining of Church Authorities and Officers
 
-Harold B. Lee
-
 By 
 
 *Given in the April session of the 1973 General Conference*

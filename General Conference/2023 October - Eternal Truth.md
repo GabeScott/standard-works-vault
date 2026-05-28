@@ -1,7 +1,5 @@
 # Eternal Truth
 
-David A. Bednar
-
 By Elder John C. Pingree Jr. - *Of the Seventy*
 
 *Given in the October session of the 2023 General Conference*
@@ -233,7 +231,7 @@ I know that as we come unto Christ, we can eventually “be perfected in him” 
 
 [^49]: See [[Jeremiah 31.3|Jeremiah 31:3]]; [[1 John 4.7|1 John 4:7–10]][[1 John 4.8|]][[1 John 4.9|]][[1 John 4.10|]]; [[Alma 26.37|Alma 26:37]].
 
-[^50]: See [[2 Nephi 9.1|2 Nephi 9]]; [[D&C 20.17|Doctrine and Covenants 20:17–31]][[D&C 20.18|]][[D&C 20.19|]][[D&C 20.20|]][[D&C 20.21|]][[D&C 20.22|]][[D&C 20.23|]][[D&C 20.24|]][[D&C 20.25|]][[D&C 20.26|]][[D&C 20.27|]][[D&C 20.28|]][[D&C 20.29|]][[D&C 20.30|]][[D&C 20.31|]]; [[Moses 6.52|Moses 6:52–62]][[Moses 6.53|]][[Moses 6.54|]][[Moses 6.55|]][[Moses 6.56|]][[Moses 6.57|]][[Moses 6.58|]][[Moses 6.59|]][[Moses 6.60|]][[Moses 6.61|]][[Moses 6.62|]].
+[^50]: See [[2 Nephi 9.1|2 Nephi 9]][[2 Nephi 9.2|]][[2 Nephi 9.3|]][[2 Nephi 9.4|]][[2 Nephi 9.5|]][[2 Nephi 9.6|]][[2 Nephi 9.7|]][[2 Nephi 9.8|]][[2 Nephi 9.9|]][[2 Nephi 9.10|]][[2 Nephi 9.11|]][[2 Nephi 9.12|]][[2 Nephi 9.13|]][[2 Nephi 9.14|]][[2 Nephi 9.15|]][[2 Nephi 9.16|]][[2 Nephi 9.17|]][[2 Nephi 9.18|]][[2 Nephi 9.19|]][[2 Nephi 9.20|]][[2 Nephi 9.21|]][[2 Nephi 9.22|]][[2 Nephi 9.23|]][[2 Nephi 9.24|]][[2 Nephi 9.25|]][[2 Nephi 9.26|]][[2 Nephi 9.27|]][[2 Nephi 9.28|]][[2 Nephi 9.29|]][[2 Nephi 9.30|]][[2 Nephi 9.31|]][[2 Nephi 9.32|]][[2 Nephi 9.33|]][[2 Nephi 9.34|]][[2 Nephi 9.35|]][[2 Nephi 9.36|]][[2 Nephi 9.37|]][[2 Nephi 9.38|]][[2 Nephi 9.39|]][[2 Nephi 9.40|]][[2 Nephi 9.41|]][[2 Nephi 9.42|]][[2 Nephi 9.43|]][[2 Nephi 9.44|]][[2 Nephi 9.45|]][[2 Nephi 9.46|]][[2 Nephi 9.47|]][[2 Nephi 9.48|]][[2 Nephi 9.49|]][[2 Nephi 9.50|]][[2 Nephi 9.51|]][[2 Nephi 9.52|]][[2 Nephi 9.53|]][[2 Nephi 9.54|]]; [[D&C 20.17|Doctrine and Covenants 20:17–31]][[D&C 20.18|]][[D&C 20.19|]][[D&C 20.20|]][[D&C 20.21|]][[D&C 20.22|]][[D&C 20.23|]][[D&C 20.24|]][[D&C 20.25|]][[D&C 20.26|]][[D&C 20.27|]][[D&C 20.28|]][[D&C 20.29|]][[D&C 20.30|]][[D&C 20.31|]]; [[Moses 6.52|Moses 6:52–62]][[Moses 6.53|]][[Moses 6.54|]][[Moses 6.55|]][[Moses 6.56|]][[Moses 6.57|]][[Moses 6.58|]][[Moses 6.59|]][[Moses 6.60|]][[Moses 6.61|]][[Moses 6.62|]].
 
 [^51]: See [[John 3.16|John 3:16]]; [[1 John 4.9|1 John 4:9–10]][[1 John 4.10|]].
 
@@ -261,7 +259,3 @@ I know that as we come unto Christ, we can eventually “be perfected in him” 
 
 [^63]: See [[D&C 1.14|Doctrine and Covenants 1:14, 38]][[D&C 1.38|]]; [[D&C 43.1|43:1–7]][[D&C 43.2|]][[D&C 43.3|]][[D&C 43.4|]][[D&C 43.5|]][[D&C 43.6|]][[D&C 43.7|]]; [[D&C 107.91|107:91–92]][[D&C 107.92|]].
 
-
-
-
-#Church_Doctrine #Holy_Ghost #Love #Prophets #Revelation #Teaching #Truth

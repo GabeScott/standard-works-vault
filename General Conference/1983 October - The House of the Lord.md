@@ -1,7 +1,5 @@
 # The House of the Lord
 
-Gordon B. Hinckley
-
 By Elder Adney Y. Komatsu - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1983 General Conference*
@@ -69,4 +67,3 @@ I have a firm and abiding testimony of the importance of this work and the bless
 
 
 
-#Temples

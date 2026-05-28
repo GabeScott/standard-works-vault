@@ -1,7 +1,5 @@
 # My Love for the Savior Is My “Why”
 
-Dallin H. Oaks
-
 By Elder Ricardo P. Giménez - *Of the Seventy*
 
 *Given in the April session of the 2025 General Conference*
@@ -67,7 +65,3 @@ I love the Savior, and my love for Him is my “why.” In the name of Jesus Chr
 
 [^6]: [[Matthew 11.28|Matthew 11:28]].
 
-
-
-
-#Goals #Jesus_Christ #Love #Traditions

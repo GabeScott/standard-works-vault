@@ -1,7 +1,5 @@
 # Your Mission Preparation
 
-Spencer W. Kimball
-
 By President A. Theodore Tuttle - *Of the First Council of the Seventy*
 
 *Given in the October session of the 1974 General Conference*
@@ -59,4 +57,3 @@ I know that God lives. I know that Jesus is the Christ. I know that Joseph Smith
 
 
 
-#Missionary_Work #Preparation

@@ -1,7 +1,5 @@
 # Faith in Every Footstep
 
-Gordon B. Hinckley
-
 By Elder M. Russell Ballard - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1996 General Conference*
@@ -95,7 +93,3 @@ Brothers and sisters, join with us and begin now to prepare for a spiritual jour
 
 [^18]: In Conference Report, Oct. 1919, 7.
 
-
-
-
-#Faith #Pioneers #Prophecy

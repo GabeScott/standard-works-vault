@@ -1,7 +1,5 @@
 # The Tongue of Angels
 
-Thomas S. Monson
-
 By Elder Jeffrey R. Holland - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2007 General Conference*
@@ -93,7 +91,3 @@ So, brothers and sisters, in this long eternal quest to be more like our Savior,
 
 [^14]: See [[Matthew 25.40|Matthew 25:40]].
 
-
-
-
-#Abuse #Attitude #Family #Marriage #Respect

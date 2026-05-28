@@ -1,7 +1,5 @@
 # Personal Revelation and Testimony
 
-Richard G. Scott
-
 By Barbara Thompson - *Second Counselor in the Relief Society General Presidency*
 
 *Given in the October session of the 2011 General Conference*
@@ -103,7 +101,3 @@ The Lord desires to bless us with guidance, wisdom, and direction in our lives. 
 
 [^16]: David A. Bednar, in Conference Report, Apr. 2011, [[2011 April - The Spirit of Revelation.md|84]]; or *Ensign,* May 2011, 90.
 
-
-
-
-#Holy_Ghost #Testimony

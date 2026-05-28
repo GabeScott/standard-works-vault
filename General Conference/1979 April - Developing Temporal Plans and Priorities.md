@@ -1,7 +1,5 @@
 # Developing Temporal Plans and Priorities
 
-Spencer W. Kimball
-
 By Bishop Victor L. Brown - *Presiding Bishop*
 
 *Given in the April session of the 1979 General Conference*
@@ -103,4 +101,3 @@ As we witness what takes place when priesthood and temporal leaders first catch 
 
 
 
-#Councils #Welfare

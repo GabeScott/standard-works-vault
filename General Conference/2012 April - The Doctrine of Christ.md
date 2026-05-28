@@ -1,7 +1,5 @@
 # The Doctrine of Christ
 
-Thomas S. Monson
-
 By Elder D. Todd Christofferson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2012 General Conference*
@@ -95,7 +93,3 @@ As our Easter celebration approaches, I express my own witness that Jesus of Naz
 
 [^7]: *Teachings of Presidents of the Church: Joseph Smith* (2007), 49.
 
-
-
-
-#Church_Doctrine #Jesus_Christ #Prophets

@@ -1,7 +1,5 @@
 # Principles and Programs
 
-Ezra Taft Benson
-
 By Bishop Glenn L. Pace - *Second Counselor in the Presiding Bishopric*
 
 *Given in the April session of the 1986 General Conference*
@@ -77,4 +75,3 @@ In 1936 we had a depression in the United States. Based on principles, a program
 
 
 
-#Financial_Management #Welfare

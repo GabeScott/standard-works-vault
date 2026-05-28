@@ -1,7 +1,5 @@
 # He Is Risen
 
-Dallin H. Oaks
-
 By Elder Ronald A. Rasband - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2026 General Conference*
@@ -149,5 +147,3 @@ As a special witness of the name of Jesus Christ[^45]—the King of glory, the M
 
 [^45]: See [[D&C 107.23|Doctrine and Covenants 107:23]].
 
-
-#Jesus_Christ #Resurrection

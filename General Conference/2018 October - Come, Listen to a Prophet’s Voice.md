@@ -1,7 +1,5 @@
 # Come, Listen to a Prophet’s Voice
 
-Russell M. Nelson
-
 By Bishop Dean M. Davies - *First Counselor in the Presiding Bishopric*
 
 *Given in the October session of the 2018 General Conference*
@@ -81,4 +79,3 @@ I love and sustain President Russell M. Nelson and the others who have been call
 
 
 
-#Book_Of_Mormon #Prophets #Revelation #Testimony

@@ -1,7 +1,5 @@
 # “Having Been Born of Goodly Parents”
 
-N. Eldon Tanner
-
 By President S. Dilworth Young - *Of the First Council of the Seventy*
 
 *Given in the October session of the 1972 General Conference*
@@ -140,4 +138,3 @@ God our Father, through his Son, Jesus Christ, directs the work of this the true
 
 
 
-#Family_History #Harold_B._Lee

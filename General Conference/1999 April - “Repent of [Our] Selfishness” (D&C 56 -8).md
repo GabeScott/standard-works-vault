@@ -1,7 +1,5 @@
 # “Repent of [Our] Selfishness” (D&C 56:8)
 
-Gordon B. Hinckley
-
 By Elder Neal A. Maxwell - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1999 General Conference*
@@ -28,7 +26,7 @@ In daily discipleship, the many ways to express selfishness are matched by many 
 
 We can also meekly let our ideas have a life of their own without oversponsoring them. Rather, let the Spirit impel our worthy ideas.
 
-Alas, gross, individual selfishness is finally acculturated. Then societies can eventually become without order, without mercy, without love, perverted, and past feeling (see [[Moroni 9.1|Moro. 9]]). Society thereby reflects a grim, cumulative tally which signals a major cultural decline. This happened anciently when a people actually became “weak, because of their transgression” ([[Helaman 4.26|Hel. 4:26]]). Speaking behaviorally, when what was once the lesser voice of the people becomes more dominant, then the judgments of God and the consequences of foolish selfishness follow (see [[Mosiah 29.26|Mosiah 29:26–27]][[Mosiah 29.27|]]).
+Alas, gross, individual selfishness is finally acculturated. Then societies can eventually become without order, without mercy, without love, perverted, and past feeling (see [[Moroni 9.1|Moro. 9]][[Moroni 9.2|]][[Moroni 9.3|]][[Moroni 9.4|]][[Moroni 9.5|]][[Moroni 9.6|]][[Moroni 9.7|]][[Moroni 9.8|]][[Moroni 9.9|]][[Moroni 9.10|]][[Moroni 9.11|]][[Moroni 9.12|]][[Moroni 9.13|]][[Moroni 9.14|]][[Moroni 9.15|]][[Moroni 9.16|]][[Moroni 9.17|]][[Moroni 9.18|]][[Moroni 9.19|]][[Moroni 9.20|]][[Moroni 9.21|]][[Moroni 9.22|]][[Moroni 9.23|]][[Moroni 9.24|]][[Moroni 9.25|]][[Moroni 9.26|]]). Society thereby reflects a grim, cumulative tally which signals a major cultural decline. This happened anciently when a people actually became “weak, because of their transgression” ([[Helaman 4.26|Hel. 4:26]]). Speaking behaviorally, when what was once the lesser voice of the people becomes more dominant, then the judgments of God and the consequences of foolish selfishness follow (see [[Mosiah 29.26|Mosiah 29:26–27]][[Mosiah 29.27|]]).
 
 Cultural decline is accelerated when single-interest segments of society become indifferent to general values once widely shared. This drift is facilitated by the indifferent or the indulgent as society is led carefully down to hell (see [[2 Nephi 28.21|2 Ne. 28:21]]). Some may not join in this drift, but instead they step aside, whereas once they might have constrained, as is their representative right. Of such circumstances Yeats lamented, “The best lack all conviction, while the worst are full of passionate intensity” (W. B. Yeats, “The Second Coming,” lines 7–8).
 

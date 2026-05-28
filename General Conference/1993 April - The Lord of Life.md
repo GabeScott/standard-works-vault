@@ -1,7 +1,5 @@
 # The Lord of Life
 
-Thomas S. Monson
-
 By Elder J. Richard Clarke - *Of the Presidency of the Seventy*
 
 *Given in the April session of the 1993 General Conference*
@@ -77,4 +75,3 @@ I bear my solemn witness that full acceptance of the Atonement, with the saving 
 
 
 
-#Atonement #Conversion #Jesus_Christ #Repentance

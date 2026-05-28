@@ -1,7 +1,5 @@
 # Adversity and the Divine Purpose of Mortality
 
-Ezra Taft Benson
-
 By Elder Ronald E. Poelman - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1989 General Conference*
@@ -79,4 +77,3 @@ In the final days of the Nephite civilization, the prophet Mormon wrote a letter
 
 
 
-#Adversity #Plan_Of_Salvation

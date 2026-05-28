@@ -1,7 +1,5 @@
 # “Give with Wisdom That They May Receive with Dignity”
 
-Gordon B. Hinckley
-
 By Elder Marvin J. Ashton - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1981 General Conference*
@@ -109,4 +107,3 @@ May God help us to give of ourselves with wisdom that they may receive with dign
 
 
 
-#Charity #Self-Esteem

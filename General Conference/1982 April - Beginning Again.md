@@ -1,7 +1,5 @@
 # Beginning Again
 
-Spencer W. Kimball
-
 By Elder Hugh W. Pinnock - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1982 General Conference*
@@ -99,4 +97,3 @@ May each of us, where necessary, Begin Again. I testify that the gospel of Jesus
 
 
 
-#Repentance

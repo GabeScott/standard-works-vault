@@ -1,7 +1,5 @@
 # Celestial Marriages and Eternal Families
 
-Spencer W. Kimball
-
 By President N. Eldon Tanner - *First Counselor in the First Presidency*
 
 *Given in the April session of the 1980 General Conference*
@@ -135,4 +133,3 @@ I know that through the gospel of Jesus Christ, and through keeping the commandm
 
 
 
-#Family #Marriage

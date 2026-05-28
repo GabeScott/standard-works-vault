@@ -1,7 +1,5 @@
 # “That I Might Draw All Men unto Me”
 
-Cheryl A. Esplin
-
 By Elder Dale G. Renlund - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2016 General Conference*
@@ -127,7 +125,3 @@ As you do, I promise that you will feel nearer to God. Natural tendencies to chi
 
 [^15]: [[Revelation 21.4|Revelation 21:4]].
 
-
-
-
-#Jesus_Christ #Sacrament #Spirituality #Welfare

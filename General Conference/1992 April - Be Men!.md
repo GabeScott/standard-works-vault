@@ -1,7 +1,5 @@
 # Be Men!
 
-Thomas S. Monson
-
 By Elder Carlos E. Asay - *Of the Presidency of the Seventy*
 
 *Given in the April session of the 1992 General Conference*
@@ -104,4 +102,3 @@ King David instructed his son Solomon, “Be thou strong … and shew thyself *a
 
 
 
-#Character #Example #Priesthood

@@ -1,7 +1,5 @@
 # Life Is Eternal
 
-Joseph Fielding Smith
-
 By Elder Ezra Taft Benson - *Of the Council of the Twelve*
 
 *Given in the April session of the 1971 General Conference*
@@ -131,4 +129,3 @@ Today I testify to the truth of the message which they bear and add my solemn wi
 
 
 
-#Plan_Of_Salvation #Resurrection

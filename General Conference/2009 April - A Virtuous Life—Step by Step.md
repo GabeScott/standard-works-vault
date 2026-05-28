@@ -1,7 +1,5 @@
 # A Virtuous Life—Step by Step
 
-Thomas S. Monson
-
 By Mary N. Cook - *First Counselor in the Young Women General Presidency*
 
 *Given in the April session of the 2009 General Conference*
@@ -79,4 +77,3 @@ I bear testimony that we *are* daughters of our Heavenly Father. He loves us and
 
 
 
-#Atonement #Example #Virtue

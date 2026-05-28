@@ -1,7 +1,5 @@
 # A Temple for West Africa
 
-Gordon B. Hinckley
-
 By Elder Glenn L. Pace - *Of the Seventy*
 
 *Given in the April session of the 2000 General Conference*
@@ -55,4 +53,3 @@ I testify to the divinity of this work. Jesus is the Christ. He stands at the he
 
 
 
-#Covenants #Faith #Miracles #Ordinances #Peace #Preparation #Satan #Temple_Work #Temples

@@ -1,7 +1,5 @@
 # The Continuing Power of the Holy Ghost
 
-Harold B. Lee
-
 By Elder Franklin D. Richards - *Assistant to the Council of the Twelve*
 
 *Given in the April session of the 1973 General Conference*
@@ -95,4 +93,3 @@ Yes, one of the great differences between The Church of Jesus Christ of Latter-d
 
 
 
-#Holy_Ghost

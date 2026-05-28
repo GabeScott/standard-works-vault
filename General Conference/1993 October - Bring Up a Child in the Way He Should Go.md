@@ -1,7 +1,5 @@
 # Bring Up a Child in the Way He Should Go
 
-Gordon B. Hinckley
-
 By President Gordon B. Hinckley - *First Counselor in the First Presidency*
 
 *Given in the October session of the 1993 General Conference*
@@ -107,4 +105,3 @@ O God, our Eternal Father, bless the parents to teach with love and patience and
 
 
 
-#Courage #Family #Morality #Motherhood #Parenthood #Priesthood

@@ -1,7 +1,5 @@
 # The Responsibility for Welfare Rests with Me and My Family
 
-Ezra Taft Benson
-
 By Elder James E. Faust - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1986 General Conference*
@@ -65,4 +63,3 @@ The parable of the ten virgins, five wise and five foolish, has both a spiritual
 
 
 
-#Self-Reliance #Welfare

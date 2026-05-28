@@ -1,7 +1,5 @@
 # We Love You—Please Come Back
 
-Ezra Taft Benson
-
 By Elder Richard G. Scott - *Of the Presidency of the Seventy*
 
 *Given in the April session of the 1986 General Conference*
@@ -87,4 +85,3 @@ We love you; we need you. Please come back. Don’t wait until all is in perfect
 
 
 
-#Activation #Repentance

@@ -1,7 +1,5 @@
 # Models to Follow
 
-Gordon B. Hinckley
-
 By President Thomas S. Monson - *First Counselor in the First Presidency*
 
 *Given in the October session of the 2002 General Conference*
@@ -143,7 +141,3 @@ My prayer today is that we shall do so. In the sacred name of Jesus Christ, amen
 
 [^23]: [[Luke 5.27|Luke 5:27]].
 
-
-
-
-#Attitude #Courage #Dedication #Example #Faith #Humility #Loyalty #Obedience #Patience

@@ -1,7 +1,5 @@
 # The Lighthouse of the Lord
 
-Gordon B. Hinckley
-
 By President Thomas S. Monson - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 1990 General Conference*
@@ -127,4 +125,3 @@ That this same spirit, even the Christ spirit, may ever be ours is my humble pra
 
 
 
-#Morality #Obedience #Repentance #Sabbath #Temptation #Women #Word_Of_Wisdom #Youth

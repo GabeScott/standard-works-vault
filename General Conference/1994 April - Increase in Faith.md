@@ -1,7 +1,5 @@
 # Increase in Faith
 
-James E. Faust
-
 By Patricia P. Pinegar - *Second Counselor in the Young Women General Presidency*
 
 *Given in the April session of the 1994 General Conference*
@@ -81,4 +79,3 @@ I sense the tender feelings in your hearts. I feel that too. I believe we want t
 
 
 
-#Faith #Jesus_Christ #Prayer

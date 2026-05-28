@@ -1,7 +1,5 @@
 # Why Do Latter-day Saints Build Temples?
 
-N. Eldon Tanner
-
 By Elder Eldred G. Smith - *Patriarch to the Church*
 
 *Given in the October session of the 1972 General Conference*
@@ -93,4 +91,3 @@ I pray the Lord to bless us to do this work, in the name of Jesus Christ. Amen.
 
 
 
-#Family_History #Temple_Work

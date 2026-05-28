@@ -1,7 +1,5 @@
 # The Law of the Fast
 
-Ezra Taft Benson
-
 By Elder L. Tom Perry - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1986 General Conference*
@@ -99,4 +97,3 @@ May the Lord continue to bless us with the faith to follow the inspired leadersh
 
 
 
-#Fasting #Welfare

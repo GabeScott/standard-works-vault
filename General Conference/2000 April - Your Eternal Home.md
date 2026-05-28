@@ -1,7 +1,5 @@
 # Your Eternal Home
 
-Gordon B. Hinckley
-
 By President Thomas S. Monson - *First Counselor in the First Presidency*
 
 *Given in the April session of the 2000 General Conference*
@@ -176,7 +174,3 @@ That each of us may do so is my humble prayer, in the name of Jesus Christ, amen
 
 [^26]: “True to the Faith,” *Hymns,* no. 254.
 
-
-
-
-#Charity #Communication #Faith #Home #Jesus_Christ #Morality #Prayer #Profanity

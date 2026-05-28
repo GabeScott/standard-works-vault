@@ -1,7 +1,5 @@
 # The Savior’s Program for the Care of the Aged
 
-Spencer W. Kimball
-
 By Bishop Vaughn J. Featherstone - *Second Counselor in the Presiding Bishopric*
 
 *Given in the October session of the 1974 General Conference*
@@ -129,4 +127,3 @@ Life can be so full and rich for our beloved senior Saints with snowy crowns. We
 
 
 
-#Elderly #Welfare

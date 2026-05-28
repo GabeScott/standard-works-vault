@@ -1,7 +1,5 @@
 # Living in the Fulness of Times
 
-Gordon B. Hinckley
-
 By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the October session of the 2001 General Conference*
@@ -67,4 +65,3 @@ I invoke the blessings of heaven upon you as I express my love for you and comme
 
 
 
-#Contention #Evil #Faith #Love #Neighbors

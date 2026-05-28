@@ -1,7 +1,5 @@
 # The Eternal Family
 
-Gordon B. Hinckley
-
 By Elder Robert D. Hales - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1996 General Conference*
@@ -75,4 +73,3 @@ God lives. Jesus is the Christ. Through His Atonement we will all have the oppor
 
 
 
-#Atonement #Covenants #Family #Fatherhood #God_The_Father #Hope #Motherhood #Obedience #Parenthood #Plan_Of_Salvation #Temples

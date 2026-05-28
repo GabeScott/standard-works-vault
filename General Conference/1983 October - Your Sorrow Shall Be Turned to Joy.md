@@ -1,7 +1,5 @@
 # Your Sorrow Shall Be Turned to Joy
 
-Gordon B. Hinckley
-
 By Elder Robert D. Hales - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1983 General Conference*
@@ -125,4 +123,3 @@ It is my prayer that our sorrow and suffering will strengthen our faith in the L
 
 
 
-#Forgiveness

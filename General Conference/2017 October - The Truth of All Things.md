@@ -1,7 +1,5 @@
 # The Truth of All Things
 
-Sharon Eubank
-
 By Elder David F. Evans - *Of the Seventy*
 
 *Given in the October session of the 2017 General Conference*
@@ -69,7 +67,7 @@ All of this I know to be true and bear my witness in the name of Jesus Christ, a
 
 [^7]: [[2 Nephi 2.14|2 Nephi 2:14]]; see also David A. Bednar, “[Seek Learning by Faith](https://www.churchofjesuschrist.org/study/liahona/2007/09/seek-learning-by-faith?lang=eng),” *Ensign,* Sept. 2007, 63–65; *Liahona,* Sept. 2007, 19–21.
 
-[^8]: See, for example, [[John 7.17|John 7:17]], in which the Lord promised, “If any man will do his will, he shall know of the doctrine, whether it be of God, or whether I speak of myself.” See also [[Alma 32.1|Alma 32]].
+[^8]: See, for example, [[John 7.17|John 7:17]], in which the Lord promised, “If any man will do his will, he shall know of the doctrine, whether it be of God, or whether I speak of myself.” See also [[Alma 32.1|Alma 32]][[Alma 32.2|]][[Alma 32.3|]][[Alma 32.4|]][[Alma 32.5|]][[Alma 32.6|]][[Alma 32.7|]][[Alma 32.8|]][[Alma 32.9|]][[Alma 32.10|]][[Alma 32.11|]][[Alma 32.12|]][[Alma 32.13|]][[Alma 32.14|]][[Alma 32.15|]][[Alma 32.16|]][[Alma 32.17|]][[Alma 32.18|]][[Alma 32.19|]][[Alma 32.20|]][[Alma 32.21|]][[Alma 32.22|]][[Alma 32.23|]][[Alma 32.24|]][[Alma 32.25|]][[Alma 32.26|]][[Alma 32.27|]][[Alma 32.28|]][[Alma 32.29|]][[Alma 32.30|]][[Alma 32.31|]][[Alma 32.32|]][[Alma 32.33|]][[Alma 32.34|]][[Alma 32.35|]][[Alma 32.36|]][[Alma 32.37|]][[Alma 32.38|]][[Alma 32.39|]][[Alma 32.40|]][[Alma 32.41|]][[Alma 32.42|]][[Alma 32.43|]].
 
 [^9]: See [[Alma 32.27|Alma 32:27]].
 
@@ -93,7 +91,3 @@ All of this I know to be true and bear my witness in the name of Jesus Christ, a
 
 [^19]: Russell M. Nelson, “[[2017 October - The Book of Mormon - What Would Your Life Be Like without It.md|The Book of Mormon: What Would Your Life Be Like without It?]]” *Ensign* or *Liahona,* Nov. 2017, 63.
 
-
-
-
-#Book_Of_Mormon #Covenants #Faith #Patience #Testimony #Truth

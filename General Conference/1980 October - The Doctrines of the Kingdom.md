@@ -1,7 +1,5 @@
 # The Doctrines of the Kingdom
 
-Spencer W. Kimball
-
 By Shirley W. Thomas - *Second Counselor in the Relief Society General Presidency*
 
 *Given in the October session of the 1980 General Conference*
@@ -49,4 +47,3 @@ There is joy and fulfillment in this work, I testify, in the name of Jesus Chris
 
 
 
-#Education #Teaching

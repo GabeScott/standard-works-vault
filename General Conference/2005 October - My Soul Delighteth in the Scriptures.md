@@ -1,7 +1,5 @@
 # My Soul Delighteth in the Scriptures
 
-Gordon B. Hinckley
-
 By Cheryl C. Lant - *Primary General President*
 
 *Given in the October session of the 2005 General Conference*
@@ -59,7 +57,3 @@ May I bear my testimony that I know that Heavenly Father lives and loves us. I k
 
 [^2]: “A Testimony Vibrant and True,” *Liahona* and *Ensign,* Aug. 2005, 6.
 
-
-
-
-#Book_Of_Mormon #Children #Obedience #Scripture_Study

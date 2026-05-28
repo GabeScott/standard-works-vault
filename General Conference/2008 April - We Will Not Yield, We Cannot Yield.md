@@ -1,7 +1,5 @@
 # We Will Not Yield, We Cannot Yield
 
-Dieter F. Uchtdorf
-
 By Elder W. Craig Zwick - *Of the Seventy*
 
 *Given in the April session of the 2008 General Conference*
@@ -83,7 +81,3 @@ We must fortify ourselves. That sure spiritual fortification is found in two wor
 
 [^10]: [[D&C 6.34|D&C 6:34, 36]][[D&C 6.36|]].
 
-
-
-
-#Courage #Standards #Temptation

@@ -1,7 +1,5 @@
 # Trust in the Lord
 
-Gordon B. Hinckley
-
 By Elder Richard G. Scott - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1995 General Conference*
@@ -51,4 +49,3 @@ I testify that you have a Heavenly Father who loves you. I witness that the Savi
 
 
 
-#Adversity #Agency #Example #Jesus_Christ #Joy #Peace #Prayer #Repentance #Sin #Trust

@@ -1,7 +1,5 @@
 # “I Know That My Redeemer Liveth”
 
-Joseph Fielding Smith
-
 By President Joseph Fielding Smith - *President of the Church*
 
 *Given in the October session of the 1971 General Conference*
@@ -67,4 +65,3 @@ This is my prayer in the name of the Lord Jesus Christ. Amen.
 
 
 
-#Plan_Of_Salvation #Worship

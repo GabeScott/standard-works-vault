@@ -1,7 +1,5 @@
 # A Pattern for All
 
-Gordon B. Hinckley
-
 By Elder Merrill J. Bateman - *Of the Presidency of the Seventy*
 
 *Given in the October session of the 2005 General Conference*
@@ -53,4 +51,3 @@ I testify that the restored gospel of Jesus Christ is a pattern for all. It is n
 
 
 
-#Atonement #Book_Of_Mormon #Jesus_Christ #Plan_Of_Salvation #Restoration

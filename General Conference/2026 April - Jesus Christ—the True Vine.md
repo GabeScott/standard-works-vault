@@ -1,7 +1,5 @@
 # Jesus Christ—the True Vine
 
-Dallin H. Oaks
-
 By Elder Ulisses Soares - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2026 General Conference*
@@ -73,5 +71,3 @@ In this sacred Easter season, I solemnly testify that Jesus Christ is the True V
 
 [^18]: See [[1 John 2.5|1 John 2:5]].
 
-
-#Discipleship #Jesus_Christ #Truth

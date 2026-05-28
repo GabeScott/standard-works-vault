@@ -1,7 +1,5 @@
 # Let God Prevail
 
-Russell M. Nelson
-
 By President Russell M. Nelson - *President of The Church of Jesus Christ of Latter-day Saints*
 
 *Given in the October session of the 2020 General Conference*
@@ -127,7 +125,3 @@ My dear brothers and sisters, as you choose to let God prevail in your lives, yo
 
 [^23]: [[Mormon 9.11|Mormon 9:11]].
 
-
-
-
-#Agency #House_Of_Israel #Humility #Prejudice

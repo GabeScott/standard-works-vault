@@ -1,7 +1,5 @@
 # The Perfect Law of Liberty
 
-Gordon B. Hinckley
-
 By President Marion G. Romney - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 1981 General Conference*
@@ -42,7 +40,7 @@ Free agency, however, precious as it is, is not of itself the perfect liberty we
 
 The Nephites, for example, at one time, by the exercise of their agency, brought themselves to such a state of affairs that their only course led to political bondage. This they did while living under a government providing for the freest exercise of agency. “Their laws and their governments,” says the record, “were established by the voice of the people, and they who chose evil were more numerous than they who chose good.” Therefore, “they could not be governed by the law nor justice, save it were to their destruction.” ([[Helaman 5.2|Hel. 5:2–3]][[Helaman 5.3|]].) Under these circumstances, they chose as rulers wicked men, who would certainly destroy their political liberties, to replace righteous men who had in the past protected and preserved those liberties and would have continued to do so in the future.
 
-The freewill choosing of a king by the Jaredites led directly to their captivity. (See [[Ether 6.1|Ether 6:21–7:5]].)
+The freewill choosing of a king by the Jaredites led directly to their captivity. (See [[Ether 6.1|Ether 6:21–7:5]][[Ether 6.2|]][[Ether 6.3|]][[Ether 6.4|]][[Ether 6.5|]][[Ether 6.6|]][[Ether 6.7|]][[Ether 6.8|]][[Ether 6.9|]][[Ether 6.10|]][[Ether 6.11|]][[Ether 6.12|]][[Ether 6.13|]][[Ether 6.14|]][[Ether 6.15|]][[Ether 6.16|]][[Ether 6.17|]][[Ether 6.18|]][[Ether 6.19|]][[Ether 6.20|]][[Ether 6.21|]][[Ether 6.22|]][[Ether 6.23|]][[Ether 6.24|]][[Ether 6.25|]][[Ether 6.26|]][[Ether 6.27|]][[Ether 6.28|]][[Ether 6.29|]][[Ether 6.30|]].)
 
 This sequence was repeated in the days of Israel. The people—rejecting government by judges, which God had established—clamored for Samuel to give them a king. Notwithstanding Samuel’s warning that a king would make servants of their children, lay heavy taxes and services upon their backs, and send them to war, “the people refused to obey the voice of Samuel, \[saying,\] Nay; but we will have a king over us;
 
@@ -109,4 +107,3 @@ That God may attend and prosper each of us on our way to perfect liberty, I humb
 
 
 
-#Freedom #Obedience

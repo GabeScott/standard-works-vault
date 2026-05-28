@@ -1,7 +1,5 @@
 # Healing Soul and Body
 
-Gordon B. Hinckley
-
 By Elder Robert D. Hales - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1998 General Conference*
@@ -89,4 +87,3 @@ Our Savior waits for us to come to Him through our scripture study, pondering, a
 
 
 
-#Adversity #Death #Faith #Healing #Jesus_Christ #Love #Prayer #Repentance #Resurrection #Spirituality

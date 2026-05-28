@@ -1,7 +1,5 @@
 # Filling the Whole Earth
 
-Thomas S. Monson
-
 By Elder David B. Haight - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1990 General Conference*
@@ -89,4 +87,3 @@ I testify we are witnessing the fulfillment of this promise, and that this work,
 
 
 
-#Church_Growth #Freedom #Missionary_Work #Obedience #Plan_Of_Salvation #Service

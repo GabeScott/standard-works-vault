@@ -1,7 +1,5 @@
 # The Eternal Blessings of Marriage
 
-Thomas S. Monson
-
 By Elder Richard G. Scott - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2011 General Conference*
@@ -77,4 +75,3 @@ I know what it is to love a daughter of Father in Heaven who with grace and devo
 
 
 
-#Covenants #Family #Love #Marriage #Parenthood

@@ -1,7 +1,5 @@
 # Jesus Christ—the Master Healer
 
-Gordon B. Hinckley
-
 By Elder Russell M. Nelson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2005 General Conference*
@@ -186,7 +184,3 @@ I testify that God lives, that Jesus is the Christ—the Master Healer—in the 
 
 [^35]: See [[Alma 11.43|Alma 11:43]]; [[Alma 40.23|40:23]].
 
-
-
-
-#Atonement #Conversion #Healing #Jesus_Christ #Repentance

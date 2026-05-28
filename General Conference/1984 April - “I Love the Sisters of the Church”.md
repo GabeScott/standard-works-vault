@@ -1,7 +1,5 @@
 # “I Love the Sisters of the Church”
 
-Gordon B. Hinckley
-
 By Barbara W. Winder - *Relief Society General President*
 
 *Given in the April session of the 1984 General Conference*
@@ -27,4 +25,3 @@ And so it is that I feel for the sisters of the Church this love, and sense the 
 
 
 
-#Relief_Society

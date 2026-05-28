@@ -1,7 +1,5 @@
 # “What Hath God Wrought through His Servant Joseph!”
 
-Spencer W. Kimball
-
 By Elder Gordon B. Hinckley - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1980 General Conference*
@@ -69,4 +67,3 @@ I give you my testimony of him. He was the ordained servant of God, this Joseph 
 
 
 
-#Joseph_Smith #Restoration

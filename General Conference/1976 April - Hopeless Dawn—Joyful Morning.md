@@ -1,7 +1,5 @@
 # Hopeless Dawn—Joyful Morning
 
-Spencer W. Kimball
-
 By Elder Thomas S. Monson - *Of the Council of the Twelve*
 
 *Given in the April session of the 1976 General Conference*
@@ -107,4 +105,3 @@ In the name of Jesus Christ. Amen.
 
 
 
-#Death #Hope #Resurrection

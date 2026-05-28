@@ -1,7 +1,5 @@
 # Choices
 
-Gordon B. Hinckley
-
 By Elder Russell M. Nelson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1990 General Conference*
@@ -131,4 +129,3 @@ May each of us choose wisely and with faith in Him who created us, I pray in the
 
 
 
-#Agency #Faith #Plan_Of_Salvation

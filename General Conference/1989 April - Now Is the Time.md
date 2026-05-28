@@ -1,7 +1,5 @@
 # Now Is the Time
 
-Ezra Taft Benson
-
 By Elder Hugh W. Pinnock - *Of the Presidency of the Seventy*
 
 *Given in the April session of the 1989 General Conference*
@@ -111,4 +109,3 @@ To these things I testify, in the name of Jesus Christ, our Savior, amen.
 
 
 
-#Courage #Obedience #Repentance #Responsibility #Self-Reliance

@@ -1,7 +1,5 @@
 # The Strength of the Priesthood
 
-Wilford G. Edling
-
 By President Harold B. Lee - *First Counselor in the First Presidency*
 
 *Given in the April session of the 1972 General Conference*
@@ -59,4 +57,3 @@ I have lived long enough now in these thirty-one years as a member of the Genera
 
 
 
-#Agency #Family #Fatherhood #Morality #Priesthood #Testimony

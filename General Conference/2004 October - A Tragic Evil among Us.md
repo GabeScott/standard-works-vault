@@ -1,7 +1,5 @@
 # A Tragic Evil among Us
 
-Gordon B. Hinckley
-
 By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the October session of the 2004 General Conference*
@@ -115,4 +113,3 @@ May heaven’s blessings attend you, my dear brethren. May all of us reach out t
 
 
 
-#Media #Morality #Repentance #Temptation

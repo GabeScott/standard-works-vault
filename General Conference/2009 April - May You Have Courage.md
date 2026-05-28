@@ -1,7 +1,5 @@
 # May You Have Courage
 
-Thomas S. Monson
-
 By President Thomas S. Monson - *President of the Church*
 
 *Given in the April session of the 2009 General Conference*
@@ -175,7 +173,3 @@ My earnest prayer is that you will have the courage required to refrain from jud
 
 [^21]: [[1 Timothy 4.12|1 Timothy 4:12]].
 
-
-
-
-#Courage #Judging #Standards #Virtue

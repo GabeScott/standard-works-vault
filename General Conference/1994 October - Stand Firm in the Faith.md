@@ -1,7 +1,5 @@
 # Stand Firm in the Faith
 
-Gordon B. Hinckley
-
 By President Howard W. Hunter - *President of the Church*
 
 *Given in the October session of the 1994 General Conference*
@@ -53,4 +51,3 @@ May the Lord bless you as you stand firm in the faith, I humbly pray in the name
 
 
 
-#Church_Membership #Holy_Ghost #Jesus_Christ #Scriptures #Service #Women

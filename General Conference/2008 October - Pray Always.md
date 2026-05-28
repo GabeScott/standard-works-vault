@@ -1,7 +1,5 @@
 # Pray Always
 
-Thomas S. Monson
-
 By Elder David A. Bednar - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2008 General Conference*
@@ -95,4 +93,3 @@ I witness Heavenly Father lives and that He hears and answers every earnest pray
 
 
 
-#Faith #Gratitude #Prayer

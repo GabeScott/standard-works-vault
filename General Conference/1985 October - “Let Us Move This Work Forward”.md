@@ -1,7 +1,5 @@
 # “Let Us Move This Work Forward”
 
-Gordon B. Hinckley
-
 By President Gordon B. Hinckley - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 1985 General Conference*
@@ -69,4 +67,3 @@ For these great blessings I humbly pray as I express unto you my appreciation, m
 
 
 
-#Faith

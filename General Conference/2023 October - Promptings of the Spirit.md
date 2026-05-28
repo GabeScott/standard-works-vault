@@ -1,7 +1,5 @@
 # Promptings of the Spirit
 
-David A. Bednar
-
 By Elder Gary E. Stevenson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2023 General Conference*
@@ -135,7 +133,3 @@ I add my testimony to you, gifted Latter-day Saints, of God the Father, Jesus Ch
 
 [^13]: *Preach My Gospel*, [106](https://www.churchofjesuschrist.org/study/manual/preach-my-gospel-2023/12-chapter-4?lang=eng&id=p43#p43).
 
-
-
-
-#Gifts_Of_The_Spirit #Holy_Ghost #Promptings #Testimony

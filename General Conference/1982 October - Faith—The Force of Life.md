@@ -1,7 +1,5 @@
 # Faith—The Force of Life
 
-Spencer W. Kimball
-
 By Elder Rex D. Pinegar - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1982 General Conference*
@@ -54,7 +52,7 @@ When I was teaching an early-morning seminary class a number of years ago, we pa
 
 Now, I don’t know that the young men in the days of the Book of Mormon were built the way Arnold Friberg depicts them, but her question gave me the opportunity to ask, “Where did the *strength* of these young men come from?”
 
-Those of you who have read the Book of Mormon are familiar with the story of the sons of Helaman. (See [[Alma 53.1|Alma 53]]; [[Alma 56.1|56–58]].) When their fathers were converted to the gospel, the fathers covenanted with the Lord that they would never again take up arms. But eventually their homes were threatened by hostile armies to the extent that the fathers would have to choose to fight or die. It was then that the two thousand young men, not bound by the same covenant, volunteered to defend their parents and their homes.
+Those of you who have read the Book of Mormon are familiar with the story of the sons of Helaman. (See [[Alma 53.1|Alma 53]][[Alma 53.2|]][[Alma 53.3|]][[Alma 53.4|]][[Alma 53.5|]][[Alma 53.6|]][[Alma 53.7|]][[Alma 53.8|]][[Alma 53.9|]][[Alma 53.10|]][[Alma 53.11|]][[Alma 53.12|]][[Alma 53.13|]][[Alma 53.14|]][[Alma 53.15|]][[Alma 53.16|]][[Alma 53.17|]][[Alma 53.18|]][[Alma 53.19|]][[Alma 53.20|]][[Alma 53.21|]][[Alma 53.22|]][[Alma 53.23|]]; [[Alma 56.1|56–58]][[Alma 56.2|]][[Alma 56.3|]][[Alma 56.4|]][[Alma 56.5|]][[Alma 56.6|]][[Alma 56.7|]][[Alma 56.8|]][[Alma 56.9|]][[Alma 56.10|]][[Alma 56.11|]][[Alma 56.12|]][[Alma 56.13|]][[Alma 56.14|]][[Alma 56.15|]][[Alma 56.16|]][[Alma 56.17|]][[Alma 56.18|]][[Alma 56.19|]][[Alma 56.20|]][[Alma 56.21|]][[Alma 56.22|]][[Alma 56.23|]][[Alma 56.24|]][[Alma 56.25|]][[Alma 56.26|]][[Alma 56.27|]][[Alma 56.28|]][[Alma 56.29|]][[Alma 56.30|]][[Alma 56.31|]][[Alma 56.32|]][[Alma 56.33|]][[Alma 56.34|]][[Alma 56.35|]][[Alma 56.36|]][[Alma 56.37|]][[Alma 56.38|]][[Alma 56.39|]][[Alma 56.40|]][[Alma 56.41|]][[Alma 56.42|]][[Alma 56.43|]][[Alma 56.44|]][[Alma 56.45|]][[Alma 56.46|]][[Alma 56.47|]][[Alma 56.48|]][[Alma 56.49|]][[Alma 56.50|]][[Alma 56.51|]][[Alma 56.52|]][[Alma 56.53|]][[Alma 56.54|]][[Alma 56.55|]][[Alma 56.56|]][[Alma 56.57|]].) When their fathers were converted to the gospel, the fathers covenanted with the Lord that they would never again take up arms. But eventually their homes were threatened by hostile armies to the extent that the fathers would have to choose to fight or die. It was then that the two thousand young men, not bound by the same covenant, volunteered to defend their parents and their homes.
 
 A prophet-general described these young men by saying, “They were exceedingly valiant for courage, and also for strength and activity; but behold, this was not all—they were men who were *true at all times in whatsoever thing they were entrusted. …*
 
@@ -91,4 +89,3 @@ May each of us develop faith in God sufficient to fight the battles of life vict
 
 
 
-#Adversity #Faith

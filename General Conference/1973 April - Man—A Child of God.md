@@ -1,7 +1,5 @@
 # Man—A Child of God
 
-Harold B. Lee
-
 By President Marion G. Romney - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 1973 General Conference*
@@ -169,4 +167,3 @@ I add my personal testimony that I know that I am a son of God, and that you, my
 
 
 
-#Plan_Of_Salvation

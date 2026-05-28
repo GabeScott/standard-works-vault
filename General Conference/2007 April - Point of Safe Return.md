@@ -1,7 +1,5 @@
 # Point of Safe Return
 
-Thomas S. Monson
-
 By Elder Dieter F. Uchtdorf - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2007 General Conference*
@@ -95,4 +93,3 @@ For this I give thanks to our Heavenly Father, and of this I bear testimony with
 
 
 
-#Atonement #Forgiveness #Repentance

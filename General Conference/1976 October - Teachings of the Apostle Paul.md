@@ -1,7 +1,5 @@
 # Teachings of the Apostle Paul
 
-Spencer W. Kimball
-
 By Elder Delbert L. Stapley - *Of the Council of the Twelve*
 
 *Given in the October session of the 1976 General Conference*
@@ -225,4 +223,3 @@ I bear solemn witness to the sacredness of the apostle Paul’s teachings. To ac
 
 
 
-#New_Testament

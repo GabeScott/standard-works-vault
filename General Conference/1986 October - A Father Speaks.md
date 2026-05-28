@@ -1,7 +1,5 @@
 # A Father Speaks
 
-Ezra Taft Benson
-
 By Elder George I. Cannon - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1986 General Conference*
@@ -59,4 +57,3 @@ I bear my testimony that God lives, that Jesus is the Savior, and that the gospe
 
 
 
-#Elderly #Joy #Parenthood #Youth

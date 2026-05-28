@@ -1,7 +1,5 @@
 # The Army of the Lord
 
-Spencer W. Kimball
-
 By Elder Thomas S. Monson - *Of the Council of the Twelve*
 
 *Given in the April session of the 1979 General Conference*
@@ -119,4 +117,3 @@ This is my earnest and sincere prayer. I ask it humbly and in the name of Jesus 
 
 
 
-#Missionary_Work #Priesthood

@@ -1,7 +1,5 @@
 # “As a Man Soweth”
 
-Spencer W. Kimball
-
 By Elder L. Tom Perry - *Of the Council of the Twelve*
 
 *Given in the April session of the 1976 General Conference*
@@ -71,4 +69,3 @@ May God bless us that we may sow to the Spirit in order that our harvest will be
 
 
 
-#Commandments #Laws #Obedience

@@ -1,7 +1,5 @@
 # The Message of the Restoration
 
-Gordon B. Hinckley
-
 By Elder Charles Didier - *Of the Presidency of the Seventy*
 
 *Given in the October session of the 2003 General Conference*
@@ -45,4 +43,3 @@ Of this I testify, in the name of Jesus Christ, amen.
 
 
 
-#Missionary_Work #Prophets #Restoration

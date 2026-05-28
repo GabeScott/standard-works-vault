@@ -1,7 +1,5 @@
 # Your Divine Nature and Eternal Destiny
 
-Russell M. Nelson
-
 By Elder Dale G. Renlund - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2022 General Conference*
@@ -133,7 +131,3 @@ I invite you to center your life on Jesus Christ and remember the foundational t
 
 [^40]: See [[D&C 84.36|Doctrine and Covenants 84:36–38]][[D&C 84.37|]][[D&C 84.38|]].
 
-
-
-
-#Agency #Divine_Nature #Heavenly_Mother #Heavenly_Parents #Love #Prophets #Repentance #Revelation #Young_Women

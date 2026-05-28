@@ -1,7 +1,5 @@
 # The Blessing of Continuing Revelation to Prophets and Personal Revelation to Guide Our Lives
 
-Russell M. Nelson
-
 By Elder Quentin L. Cook - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2020 General Conference*
@@ -137,7 +135,7 @@ My humble plea today is that each of us will seek continuing revelation to guide
 
 [^20]: The Holy Ghost is a member of the Godhead (see [[1 John 5.7|1 John 5:7]]; [[D&C 20.28|Doctrine and Covenants 20:28]]). He has a body of spirit in the form and likeness of man (see [[D&C 130.22|Doctrine and Covenants 130:22]]). His influence can be everywhere. He is unified in purpose with our Heavenly Father and Jesus Christ, our Savior.
 
-[^21]: For a comprehensive understanding of the Light of Christ and the difference between the Light of Christ and the Holy Ghost, see [[2 Nephi 32.1|2 Nephi 32]]; [[D&C 88.7|Doctrine and Covenants 88:7, 11–13]][[D&C 88.11|]][[D&C 88.12|]][[D&C 88.13|]]; “[[BD Light Of Christ|Light of Christ]],” Bible Dictionary. See also Boyd K. Packer, “[The Light of Christ](https://www.churchofjesuschrist.org/study/liahona/2005/04/the-light-of-christ?lang=eng),” *Ensign* or *Liahona,* Apr. 2005, 8–14.
+[^21]: For a comprehensive understanding of the Light of Christ and the difference between the Light of Christ and the Holy Ghost, see [[2 Nephi 32.1|2 Nephi 32]][[2 Nephi 32.2|]][[2 Nephi 32.3|]][[2 Nephi 32.4|]][[2 Nephi 32.5|]][[2 Nephi 32.6|]][[2 Nephi 32.7|]][[2 Nephi 32.8|]][[2 Nephi 32.9|]]; [[D&C 88.7|Doctrine and Covenants 88:7, 11–13]][[D&C 88.11|]][[D&C 88.12|]][[D&C 88.13|]]; “[[BD Light Of Christ|Light of Christ]],” Bible Dictionary. See also Boyd K. Packer, “[The Light of Christ](https://www.churchofjesuschrist.org/study/liahona/2005/04/the-light-of-christ?lang=eng),” *Ensign* or *Liahona,* Apr. 2005, 8–14.
 
 [^22]: [[D&C 8.2|Doctrine and Covenants 8:2–3]][[D&C 8.3|]].
 
@@ -161,7 +159,3 @@ My humble plea today is that each of us will seek continuing revelation to guide
 
 [^32]: Wilford Woodruff, in *[Teachings of Presidents of the Church: Joseph Smith](https://www.churchofjesuschrist.org/study/manual/teachings-joseph-smith/chapter-24?lang=eng)* (2007), 283.
 
-
-
-
-#Prophets #Revelation

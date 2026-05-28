@@ -1,7 +1,5 @@
 # “Reach with a Rescuing Hand”
 
-Gordon B. Hinckley
-
 By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the October session of the 1996 General Conference*
@@ -63,4 +61,3 @@ I leave with you my beloved friends, my coworkers in this wonderful cause, my te
 
 
 
-#Activation #General_Conference #Pioneers #Youth

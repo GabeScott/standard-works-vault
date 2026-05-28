@@ -1,7 +1,5 @@
 # Peace through Prayer
 
-Thomas S. Monson
-
 By Elder Rex D. Pinegar - *Of the Presidency of the Seventy*
 
 *Given in the April session of the 1993 General Conference*
@@ -85,4 +83,3 @@ With this testimony of peace through prayer, I bear witness of the reality of Je
 
 
 
-#Faith #Peace #Prayer

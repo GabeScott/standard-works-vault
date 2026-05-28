@@ -1,7 +1,5 @@
 # The Returned Missionary
 
-Gordon B. Hinckley
-
 By Elder L. Tom Perry - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2001 General Conference*
@@ -71,4 +69,3 @@ I wish all of you could have an experience similar to the one I had with my firs
 
 
 
-#Faith #Marriage #Missionary_Work #Morality #Prayer #Scripture_Study #Scriptures #Teaching

@@ -1,7 +1,5 @@
 # Covenant Belonging
 
-Jeffrey R. Holland
-
 By Elder Gerrit W. Gong - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2019 General Conference*
@@ -127,7 +125,3 @@ With us at the beginning, He is with us, in all our covenant belonging, to the e
 
 [^28]: [[D&C 19.1|Doctrine and Covenants 19:1]].
 
-
-
-
-#Covenants #Ordinances

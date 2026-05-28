@@ -1,7 +1,5 @@
 # Be True to God and His Work
 
-Dallin H. Oaks
-
 By Elder Quentin L. Cook - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2022 General Conference*
@@ -125,7 +123,3 @@ As an Apostle of the Lord Jesus Christ, I bear my sure witness of the Savior’s
 
 [^24]: Russell M. Nelson, Facebook, Aug. 1, 2022, facebook.com/russell.m.nelson; Twitter, Aug. 1, 2022, twitter.com/nelsonrussellm; Instagram, Aug. 1, 2022, instagram.com/russellmnelson; see also “[Choices for Eternity](https://www.churchofjesuschrist.org/study/broadcasts/worldwide-devotional-for-young-adults/2022/05/12nelson?lang=eng)” (worldwide devotional for young adults, May 15, 2022), broadcasts.ChurchofJesusChrist.org.
 
-
-
-
-#Abuse #Anger #Atonement #Repentance #Testimony

@@ -1,7 +1,5 @@
 # Making Points for Righteousness
 
-Ezra Taft Benson
-
 By Elder Russell C. Taylor - *Of the Second Quorum of the Seventy*
 
 *Given in the April session of the 1989 General Conference*
@@ -107,4 +105,3 @@ You priesthood leaders and fathers, you are the home-field coaches. Review these
 
 
 
-#Missionary_Work #Morality #Service #Spirituality #Word_Of_Wisdom

@@ -1,7 +1,5 @@
 # Gratitude and Service
 
-Gordon B. Hinckley
-
 By Elder David B. Haight - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2001 General Conference*
@@ -89,4 +87,3 @@ May you be so blessed. May you have a burning feeling in your heart. May you fee
 
 
 
-#Couple_Missionaries #Gratitude #Jesus_Christ #Miracles #Parents #Pioneers

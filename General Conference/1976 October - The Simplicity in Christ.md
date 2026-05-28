@@ -1,7 +1,5 @@
 # The Simplicity in Christ
 
-Spencer W. Kimball
-
 By Elder LeGrand Richards - *Of the Council of the Twelve*
 
 *Given in the October session of the 1976 General Conference*
@@ -75,4 +73,3 @@ God bless you all, I pray, and leave you my blessing and witness in the name of 
 
 
 
-#Testimony

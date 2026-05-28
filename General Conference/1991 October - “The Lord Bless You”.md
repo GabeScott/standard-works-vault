@@ -1,7 +1,5 @@
 # “The Lord Bless You”
 
-Gordon B. Hinckley
-
 By President Thomas S. Monson - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 1991 General Conference*
@@ -41,4 +39,3 @@ In the name of Jesus Christ, amen.
 
 
 
-#Family #Obedience #Prophets #Youth

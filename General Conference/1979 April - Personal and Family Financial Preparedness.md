@@ -1,7 +1,5 @@
 # Personal and Family Financial Preparedness
 
-Spencer W. Kimball
-
 By Elder Franklin D. Richards - *Of the Presidency of the First Quorum of the Seventy*
 
 *Given in the April session of the 1979 General Conference*
@@ -109,4 +107,3 @@ Brethren, how glorious it is to know that God lives and that Jesus is the Christ
 
 
 
-#Self-Reliance

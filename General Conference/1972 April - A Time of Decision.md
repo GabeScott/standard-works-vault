@@ -1,7 +1,5 @@
 # A Time of Decision
 
-Wilford G. Edling
-
 By President Harold B. Lee - *First Counselor in the First Presidency*
 
 *Given in the April session of the 1972 General Conference*
@@ -141,4 +139,3 @@ But through the lights and shadows of my life, I also have the assurance that ai
 
 
 
-#Agency #Conscience #Standards

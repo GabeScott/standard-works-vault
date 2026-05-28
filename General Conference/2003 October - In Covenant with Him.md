@@ -1,7 +1,5 @@
 # In Covenant with Him
 
-Gordon B. Hinckley
-
 By Kathleen H. Hughes - *First Counselor in the Relief Society General Presidency*
 
 *Given in the October session of the 2003 General Conference*
@@ -49,7 +47,3 @@ Tonight, my dear sisters, I invite you to recommit yourselves as covenant women 
 
 [^6]: [[D&C 82.3|D&C 82:3]].
 
-
-
-
-#Covenants #Love #Relief_Society #Sisterhood

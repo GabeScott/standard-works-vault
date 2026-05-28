@@ -1,7 +1,5 @@
 # Prepare Ye
 
-Harold B. Lee
-
 By Elder Ezra Taft Benson - *Of the Council of the Twelve*
 
 *Given in the October session of the 1973 General Conference*
@@ -105,4 +103,3 @@ Let us live the gospel fully, and may we recognize the infallibility of God’s 
 
 
 
-#Obedience #Prophecy #Welfare

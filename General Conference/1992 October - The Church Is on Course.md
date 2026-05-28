@@ -1,7 +1,5 @@
 # The Church Is on Course
 
-Gordon B. Hinckley
-
 By President Gordon B. Hinckley - *First Counselor in the First Presidency*
 
 *Given in the October session of the 1992 General Conference*
@@ -117,4 +115,3 @@ I make a promise to all who uphold and sustain it, and who strive with faith and
 
 
 
-#Church_Leaders #Church_Organization #Prophets

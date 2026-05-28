@@ -1,7 +1,5 @@
 # An Invitation with Promise
 
-Gordon B. Hinckley
-
 By Bishop Keith B. McMullin - *Second Counselor in the Presiding Bishopric*
 
 *Given in the April session of the 2001 General Conference*
@@ -93,7 +91,3 @@ And so, fear not. The things deemed weak by the world overthrow evils that appea
 
 [^11]: See [[D&C 1.19|D&C 1:19–23]][[D&C 1.20|]][[D&C 1.21|]][[D&C 1.22|]][[D&C 1.23|]].
 
-
-
-
-#Covenants #Evil #Family #Fasting #Greed #Home #Morality #Sacrament #Sacrifice #Safety #Satan #Spirituality #Temples #Temptation #Tithing #Worldliness

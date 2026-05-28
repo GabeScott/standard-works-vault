@@ -1,7 +1,5 @@
 # The Power of a Personal Testimony
 
-Gordon B. Hinckley
-
 By Elder Dieter F. Uchtdorf - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2006 General Conference*
@@ -103,4 +101,3 @@ Just as the Lord knew Nephi, God knows us and loves us. This is our time; these 
 
 
 
-#Holy_Ghost #Testimony

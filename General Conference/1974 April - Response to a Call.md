@@ -1,7 +1,5 @@
 # Response to a Call
 
-Spencer W. Kimball
-
 By Elder Neal A. Maxwell - *Assistant to the Council of the Twelve*
 
 *Given in the April session of the 1974 General Conference*
@@ -43,4 +41,3 @@ Finally I testify that what a wise man wrote is true: “If you have not chosen 
 
 
 
-#Gratitude #Testimony

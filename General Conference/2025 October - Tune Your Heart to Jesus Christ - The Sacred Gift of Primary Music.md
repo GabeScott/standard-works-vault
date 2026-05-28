@@ -1,7 +1,5 @@
 # Tune Your Heart to Jesus Christ: The Sacred Gift of Primary Music
 
-Dallin H. Oaks
-
 By Sister Tracy Y. Browning - *Second Counselor in the Primary General Presidency*
 
 *Given in the October session of the 2025 General Conference*
@@ -133,7 +131,3 @@ I testify that the efforts we make to teach and sing these Primary songs to our 
 
 [^24]: See “Jesus Wants Me for a Sunbeam,” *Children’s Songbook*, 60.
 
-
-
-
-#Children #Church_Doctrine #Music #Primary

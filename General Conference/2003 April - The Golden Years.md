@@ -1,7 +1,5 @@
 # The Golden Years
 
-Gordon B. Hinckley
-
 By President Boyd K. Packer - *Acting President of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2003 General Conference*
@@ -131,4 +129,3 @@ Keep the fire of your testimony of the restored gospel and your witness of our R
 
 
 
-#Elderly #Example #Family #Wisdom

@@ -1,7 +1,5 @@
 # Raising the Bar
 
-Gordon B. Hinckley
-
 By Elder L. Tom Perry - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2007 General Conference*
@@ -77,4 +75,3 @@ May God bless you that this will be your desire as you leave this priesthood ses
 
 
 
-#Missionary_Work #Preparation #Standards #Worthiness

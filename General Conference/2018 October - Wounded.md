@@ -1,7 +1,5 @@
 # Wounded
 
-Russell M. Nelson
-
 By Elder Neil L. Andersen - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2018 General Conference*
@@ -175,7 +173,3 @@ My brothers and sisters, it is my promise to you that increasing your faith in t
 
 [^34]: See [[Revelation 7.13|Revelation 7:13, 15, 17]][[Revelation 7.15|]][[Revelation 7.17|]].
 
-
-
-
-#Adversity #Healing #Jesus_Christ

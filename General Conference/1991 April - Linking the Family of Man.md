@@ -1,7 +1,5 @@
 # Linking the Family of Man
 
-Thomas S. Monson
-
 By Elder David B. Haight - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1991 General Conference*
@@ -93,4 +91,3 @@ This I pray in the name of Jesus Christ, amen.
 
 
 
-#Family_History #Temple_Work

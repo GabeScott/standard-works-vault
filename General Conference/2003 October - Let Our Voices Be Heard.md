@@ -1,7 +1,5 @@
 # Let Our Voices Be Heard
 
-Gordon B. Hinckley
-
 By Elder M. Russell Ballard - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2003 General Conference*
@@ -93,7 +91,3 @@ May God bless us with courage and wisdom in doing what each one of us can to hel
 
 [^7]: *For the Strength of Youth* (2001), 17, 19.
 
-
-
-
-#Agency #Family #Media #Morality

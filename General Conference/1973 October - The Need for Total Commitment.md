@@ -1,7 +1,5 @@
 # The Need for Total Commitment
 
-Harold B. Lee
-
 By Elder Theodore M. Burton - *Assistant to the Council of the Twelve*
 
 *Given in the October session of the 1973 General Conference*
@@ -59,4 +57,3 @@ As the coming of the Lord approaches, Satan’s pressure on us will increase. We
 
 
 
-#Attitude #Commitment

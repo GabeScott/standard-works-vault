@@ -1,7 +1,5 @@
 # Walking towards the Light of His Love
 
-Gordon B. Hinckley
-
 By Anne C. Pingree - *Second Counselor in the Relief Society General Presidency*
 
 *Given in the October session of the 2004 General Conference*
@@ -51,4 +49,3 @@ I bear testimony of our Savior, who said of Himself: “Behold, I am Jesus Chris
 
 
 
-#Faith #Peace #Preparation #Relief_Society #Testimony

@@ -1,7 +1,5 @@
 # The Joy of Redeeming the Dead
 
-Thomas S. Monson
-
 By Elder Richard G. Scott - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2012 General Conference*
@@ -81,7 +79,3 @@ This work is a spiritual work, a monumental effort of cooperation on both sides 
 
 [^9]: Jeanene Watkins Scott, personal journal, Sept. 23, 1989.
 
-
-
-
-#Family_History #Temple_Work

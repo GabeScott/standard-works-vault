@@ -1,7 +1,5 @@
 # The Atonement Covers All Pain
 
-Thomas S. Monson
-
 By Elder Kent F. Richards - *Of the Seventy*
 
 *Given in the April session of the 2011 General Conference*
@@ -131,7 +129,3 @@ I bear testimony that He is our Redeemer, our Friend, our Advocate, the Great Ph
 
 [^25]: [[2 Corinthians 12.9|2 Corinthians 12:9]]; see also [[Ether 12.26|Ether 12:26–27]][[Ether 12.27|]]; [[D&C 18.31|Doctrine and Covenants 18:31]].
 
-
-
-
-#Adversity #Atonement #Healing #Humility #Jesus_Christ #Opposition #Patience

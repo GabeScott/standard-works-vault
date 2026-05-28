@@ -1,7 +1,5 @@
 # The Trek Continues!
 
-Sharon Eubank
-
 By Elder M. Russell Ballard - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2017 General Conference*
@@ -109,7 +107,3 @@ I testify that “the trek continues,” and I invite you to stay on the gospel 
 
 [^12]: *Handbook 2,* 21.3.6.
 
-
-
-
-#Dedication #Faith #Pioneers #Wisdom

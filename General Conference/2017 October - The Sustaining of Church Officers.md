@@ -1,7 +1,5 @@
 # The Sustaining of Church Officers
 
-Sharon Eubank
-
 By Presented by President Henry B. Eyring - *First Counselor in the First Presidency*
 
 *Given in the October session of the 2017 General Conference*

@@ -1,7 +1,5 @@
 # That They May See
 
-Russell M. Nelson
-
 By Bonnie H. Cordon - *Young Women General President*
 
 *Given in the April session of the 2020 General Conference*
@@ -97,7 +95,3 @@ I invite all of us to follow the example of Jesus Christ and be compassionately 
 
 [^12]: [[John 8.12|John 8:12]].
 
-
-
-
-#Example #Jesus_Christ

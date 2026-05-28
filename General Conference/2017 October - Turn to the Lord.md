@@ -1,7 +1,5 @@
 # Turn to the Lord
 
-Sharon Eubank
-
 By Bishop W. Christopher Waddell - *Second Counselor in the Presiding Bishopric*
 
 *Given in the October session of the 2017 General Conference*
@@ -127,7 +125,3 @@ To these truths I share my witness. In the name of Jesus Christ, amen.
 
 [^14]: Richard G. Scott, “[[1995 October - Trust in the Lord.md|Trust in the Lord]],” *Ensign,* Nov. 1995, 17.
 
-
-
-
-#Adversity #Agency #Atonement #Healing #Jesus_Christ #Trust

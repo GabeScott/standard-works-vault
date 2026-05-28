@@ -1,7 +1,5 @@
 # His Servants, the Prophets
 
-Thomas S. Monson
-
 By Elder F. Michael Watson - *Of the Seventy*
 
 *Given in the April session of the 2009 General Conference*
@@ -97,7 +95,3 @@ Of these truths and that God is in the heavens, that Jesus is the Christ, and of
 
 [^13]: [[Amos 3.7|Amos 3:7]].
 
-
-
-
-#Obedience #Prophets

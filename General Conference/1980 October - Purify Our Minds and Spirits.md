@@ -1,7 +1,5 @@
 # Purify Our Minds and Spirits
 
-Spencer W. Kimball
-
 By Bishop H. Burke Peterson - *First Counselor in the Presiding Bishopric*
 
 *Given in the October session of the 1980 General Conference*
@@ -67,4 +65,3 @@ My brethren, as your friend and brother, I plead with you to prepare as you have
 
 
 
-#Morality

@@ -1,7 +1,5 @@
 # A Voice of Gladness for Our Children
 
-Gordon B. Hinckley
-
 By Coleen K. Menlove - *Primary General President*
 
 *Given in the October session of the 2002 General Conference*
@@ -95,7 +93,3 @@ I know—with an exclamation mark—that children can receive a witness by the S
 
 [^12]: In Conference Report, Oct. 1994, [[1994 October - Save the Children.md|74]]; or *Ensign,* Nov. 1994, 54.
 
-
-
-
-#Children #Jesus_Christ #Joy #Teaching

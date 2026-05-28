@@ -1,7 +1,5 @@
 # We Believe in Being Chaste
 
-Thomas S. Monson
-
 By Elder David A. Bednar - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2013 General Conference*
@@ -83,4 +81,3 @@ The doctrine I have described will seem to be archaic and outdated to many peopl
 
 
 
-#Morality #Plan_Of_Salvation #Repentance

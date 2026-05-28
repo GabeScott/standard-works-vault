@@ -1,7 +1,5 @@
 # Humble Souls at Altars Kneel
 
-Dallin H. Oaks
-
 By Elder Jeremy R. Jaggi - *Of the Seventy*
 
 *Given in the October session of the 2025 General Conference*
@@ -91,7 +89,7 @@ In his October 2022 general conference talk, President Russell M. Nelson describ
 
 [^2]: “[Bread of Life, Living Water](https://www.churchofjesuschrist.org/study/music/hymns-for-home-and-church/bread-of-life-living-water?lang=eng&id=figure1_p21-figure1_p22#figure1_p21),” *Hymns—For Home and Church*, Gospel Library.
 
-[^3]: See [[Moroni 4.1|Moroni 4]]; [[Moroni 5.1|5.]]
+[^3]: See [[Moroni 4.1|Moroni 4]][[Moroni 4.2|]][[Moroni 4.3|]]; [[Moroni 5.1|5.]][[Moroni 5.2|]]
 
 [^4]: [[Genesis 22.11|Genesis 22:11]].
 
@@ -163,7 +161,3 @@ In his October 2022 general conference talk, President Russell M. Nelson describ
 
 [^38]: “[Welcome Home](https://www.churchofjesuschrist.org/study/music/hymns-for-home-and-church/welcome-home?lang=eng&id=figure1_p12#figure1_p12),” *Hymns—For Home and Church*.
 
-
-
-
-#Atonement #Covenants #Healing #Humility #Jesus_Christ #Sacrament #Worship

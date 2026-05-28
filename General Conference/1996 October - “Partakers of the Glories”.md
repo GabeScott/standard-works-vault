@@ -1,7 +1,5 @@
 # “Partakers of the Glories”
 
-Gordon B. Hinckley
-
 By Elaine L. Jack - *Relief Society General President*
 
 *Given in the October session of the 1996 General Conference*
@@ -77,4 +75,3 @@ That we may all be “partakers of the glories” in our Father’s kingdom is m
 
 
 
-#Covenants #Gratitude #Holy_Ghost #Ordinances #Patriarchal_Blessings #Plan_Of_Salvation #Priesthood #Relief_Society #Temples

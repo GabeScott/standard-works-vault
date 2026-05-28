@@ -1,7 +1,5 @@
 # Anchored in Testimony
 
-Spencer W. Kimball
-
 By Elder Joseph B. Wirthlin - *Assistant to the Council of the Twelve*
 
 *Given in the April session of the 1975 General Conference*
@@ -37,4 +35,3 @@ President Kimball, in the love that I bear for you and all these Brethren who si
 
 
 
-#Testimony

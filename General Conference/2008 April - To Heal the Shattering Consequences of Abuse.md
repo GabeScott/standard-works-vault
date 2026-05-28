@@ -1,7 +1,5 @@
 # To Heal the Shattering Consequences of Abuse
 
-Dieter F. Uchtdorf
-
 By Elder Richard G. Scott - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2008 General Conference*
@@ -73,7 +71,3 @@ I pray that you, as one abused or one who has caused it, will act now to avail y
 
 [^4]: See *Church Handbook of Instructions, Book 1: Stake Presidencies and Bishoprics* (2006), 107–8, 110, 120, 122, 147, 186.
 
-
-
-
-#Abuse #Atonement #Healing

@@ -1,7 +1,5 @@
 # Teaching Our Children to Understand
 
-Thomas S. Monson
-
 By Cheryl A. Esplin - *Second Counselor in the Primary General Presidency*
 
 *Given in the April session of the 2012 General Conference*
@@ -84,4 +82,3 @@ May we do so. In the name of Jesus Christ, amen.
 
 
 
-#Children #Teaching

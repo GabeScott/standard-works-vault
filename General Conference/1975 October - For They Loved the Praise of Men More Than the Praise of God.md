@@ -1,7 +1,5 @@
 # For They Loved the Praise of Men More Than the Praise of God
 
-Spencer W. Kimball
-
 By President N. Eldon Tanner - *First Counselor in the First Presidency*
 
 *Given in the October session of the 1975 General Conference*
@@ -121,4 +119,3 @@ This I humbly pray in the name of Jesus Christ. Amen.
 
 
 
-#Courage #Obedience #Worldliness

@@ -1,7 +1,5 @@
 # A Matter of a Few Degrees
 
-Dieter F. Uchtdorf
-
 By President Dieter F. Uchtdorf - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 2008 General Conference*
@@ -147,7 +145,3 @@ I testify of our Heavenly Father, who knows and loves you. I bear witness of Jes
 
 [^22]: [[Isaiah 1.18|Isaiah 1:18]].
 
-
-
-
-#Holy_Ghost #Prophets #Repentance #Truth

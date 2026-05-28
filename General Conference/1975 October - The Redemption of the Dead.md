@@ -1,7 +1,5 @@
 # The Redemption of the Dead
 
-Spencer W. Kimball
-
 By Elder Boyd K. Packer - *Of the Council of the Twelve*
 
 *Given in the October session of the 1975 General Conference*
@@ -123,4 +121,3 @@ I bear witness that this work is true, that God lives, that Jesus is the Christ,
 
 
 
-#Ordinances #Temple_Work

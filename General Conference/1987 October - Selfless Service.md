@@ -1,7 +1,5 @@
 # Selfless Service
 
-Ezra Taft Benson
-
 By Elder William R. Bradford - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1987 General Conference*
@@ -83,4 +81,3 @@ In the sacred name of Jesus Christ, amen.
 
 
 
-#Sacrifice #Service #Worldliness

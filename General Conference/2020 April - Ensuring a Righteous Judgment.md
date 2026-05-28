@@ -1,7 +1,5 @@
 # Ensuring a Righteous Judgment
 
-Russell M. Nelson
-
 By Elder James R. Rasband - *Of the Seventy*
 
 *Given in the April session of the 2020 General Conference*
@@ -59,7 +57,7 @@ Although the Savior has power to mend what we cannot fix, He commands us to do a
 
 [^1]: Russell M. Nelson, “[[2019 October - Closing Remarks.md|Closing Remarks]],” *Ensign* or *Liahona,* Nov. 2019, 122.
 
-[^2]: See [[2 Nephi 31.1|2 Nephi 31]]; [[3 Nephi 11.28|3 Nephi 11:28, 32, 35, 39–40]][[3 Nephi 11.32|]][[3 Nephi 11.35|]][[3 Nephi 11.39|]][[3 Nephi 11.40|]]; [[D&C 10.62|Doctrine and Covenants 10:62–63, 67–70]][[D&C 10.63|]][[D&C 10.67|]][[D&C 10.68|]][[D&C 10.69|]][[D&C 10.70|]]; [[D&C 68.25|68:25]]; [[Moses 6.52|Moses 6:52–54]][[Moses 6.53|]][[Moses 6.54|]]; [[Moses 8.24|8:24]]; [[Articles of Faith 1.4|Articles of Faith 1:4]].
+[^2]: See [[2 Nephi 31.1|2 Nephi 31]][[2 Nephi 31.2|]][[2 Nephi 31.3|]][[2 Nephi 31.4|]][[2 Nephi 31.5|]][[2 Nephi 31.6|]][[2 Nephi 31.7|]][[2 Nephi 31.8|]][[2 Nephi 31.9|]][[2 Nephi 31.10|]][[2 Nephi 31.11|]][[2 Nephi 31.12|]][[2 Nephi 31.13|]][[2 Nephi 31.14|]][[2 Nephi 31.15|]][[2 Nephi 31.16|]][[2 Nephi 31.17|]][[2 Nephi 31.18|]][[2 Nephi 31.19|]][[2 Nephi 31.20|]][[2 Nephi 31.21|]]; [[3 Nephi 11.28|3 Nephi 11:28, 32, 35, 39–40]][[3 Nephi 11.32|]][[3 Nephi 11.35|]][[3 Nephi 11.39|]][[3 Nephi 11.40|]]; [[D&C 10.62|Doctrine and Covenants 10:62–63, 67–70]][[D&C 10.63|]][[D&C 10.67|]][[D&C 10.68|]][[D&C 10.69|]][[D&C 10.70|]]; [[D&C 68.25|68:25]]; [[Moses 6.52|Moses 6:52–54]][[Moses 6.53|]][[Moses 6.54|]]; [[Moses 8.24|8:24]]; [[Articles of Faith 1.4|Articles of Faith 1:4]].
 
 [^3]: Russell M. Nelson, “[[2017 October - The Book of Mormon - What Would Your Life Be Like without It.md|The Book of Mormon: What Would Your Life Be Like without It]]?” *Ensign* or *Liahona,* Nov. 2017, 62.
 
@@ -131,7 +129,3 @@ Although the Savior has power to mend what we cannot fix, He commands us to do a
 
 [^37]: See [[John 15.12|John 15:12–13]][[John 15.13|]]; [[1 John 4.18|1 John 4:18]]; Dieter F. Uchtdorf, “[[2017 April - Perfect Love Casteth Out Fear.md|Perfect Love Casteth Out Fear]],” *Ensign* or *Liahona,* May 2017, 107.
 
-
-
-
-#Atonement #Repentance

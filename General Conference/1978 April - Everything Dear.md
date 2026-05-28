@@ -1,7 +1,5 @@
 # Everything Dear
 
-Spencer W. Kimball
-
 By Elder Robert L. Backman - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1978 General Conference*
@@ -23,4 +21,3 @@ I rejoice now for the opportunity of concentrating my entire life to his service
 
 
 
-#Testimony

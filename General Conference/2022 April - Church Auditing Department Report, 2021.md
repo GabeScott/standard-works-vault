@@ -1,7 +1,5 @@
 # Church Auditing Department Report, 2021
 
-Russell M. Nelson
-
 By Presented by Jared B. Larson - *Managing Director, Church Auditing Department*
 
 *Given in the April session of the 2022 General Conference*
@@ -27,4 +25,3 @@ Managing Director
 
 
 
-#Financial_Management

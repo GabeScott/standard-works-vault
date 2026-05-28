@@ -1,7 +1,5 @@
 # What Is Your Destination?
 
-Wilford G. Edling
-
 By Elder Marvin J. Ashton - *Of the Council of the Twelve*
 
 *Given in the April session of the 1972 General Conference*
@@ -85,4 +83,3 @@ What is your destination? I humbly pray our Heavenly Father to help each one of 
 
 
 
-#Goals #Missionary_Work

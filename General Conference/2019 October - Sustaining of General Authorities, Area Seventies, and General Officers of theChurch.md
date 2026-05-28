@@ -1,7 +1,5 @@
 # Sustaining of General Authorities, Area Seventies, and General Officers of theChurch
 
-Jeffrey R. Holland
-
 By Presented by President Henry B. Eyring - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 2019 General Conference*

@@ -1,7 +1,5 @@
 # Miracles among the Lamanites
 
-Spencer W. Kimball
-
 By Elder Gene R. Cook - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1980 General Conference*
@@ -69,4 +67,3 @@ My brothers and sisters, we must do all that we have been counseled to do here i
 
 
 
-#Missionary_Work #Native_Americans

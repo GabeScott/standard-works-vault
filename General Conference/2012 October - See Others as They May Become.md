@@ -1,7 +1,5 @@
 # See Others as They May Become
 
-Thomas S. Monson
-
 By President Thomas S. Monson - *President of the Church*
 
 *Given in the October session of the 2012 General Conference*
@@ -133,7 +131,3 @@ I pray that we will have the courage to extend the hand of fellowship, the tenac
 
 [^10]: [[D&C 18.15|Doctrine and Covenants 18:15–16]][[D&C 18.16|]].
 
-
-
-
-#Activation #Courage #Missionary_Work #Priesthood #Testimony

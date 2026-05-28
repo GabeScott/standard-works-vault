@@ -1,7 +1,5 @@
 # The Words of Christ—Our Spiritual Liahona
 
-Gordon B. Hinckley
-
 By Elder W. Rolfe Kerr - *Of the Seventy*
 
 *Given in the April session of the 2004 General Conference*
@@ -59,4 +57,3 @@ So we see, brethren and sisters, that the words of Christ can be a personal Liah
 
 
 
-#Book_Of_Mormon #Jesus_Christ #Prophets #Scripture_Study

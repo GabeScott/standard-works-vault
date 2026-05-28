@@ -1,7 +1,5 @@
 # Where Are You Really Going?
 
-Joseph Fielding Smith
-
 By Elder Richard L. Evans - *Of the Council of the Twelve*
 
 *Given in the April session of the 1971 General Conference*
@@ -93,7 +91,3 @@ I know that my Redeemer lives, and pray his peace and blessings upon all men eve
 
 [^5]: Marcus Aurelius, *Meditations,* Book xii, sec. 17, line 68.
 
-
-
-
-#Goals

@@ -1,7 +1,5 @@
 # Look unto Jesus Christ
 
-Ulisses Soares
-
 By Elder Kim B. Clark - *Of the Seventy*
 
 *Given in the April session of the 2019 General Conference*
@@ -157,7 +155,3 @@ I close with this prayer from my heart, that all of us, every one, will look unt
 
 [^38]: See [[D&C 84.88|Doctrine and Covenants 84:88]].
 
-
-
-
-#Covenants #God_The_Father #Jesus_Christ #Ministering #Priesthood

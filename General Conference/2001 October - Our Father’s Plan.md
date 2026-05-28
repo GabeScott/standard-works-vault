@@ -1,7 +1,5 @@
 # Our Father’s Plan
 
-Gordon B. Hinckley
-
 By Elder Christoffel Golden Jr. - *Of the Seventy*
 
 *Given in the October session of the 2001 General Conference*
@@ -89,7 +87,3 @@ May the Lord bless us in this great endeavor, I pray, in the name of Jesus Chris
 
 [^21]: See [[Deuteronomy 7.7|Deut. 7:7–18]][[Deuteronomy 7.8|]][[Deuteronomy 7.9|]][[Deuteronomy 7.10|]][[Deuteronomy 7.11|]][[Deuteronomy 7.12|]][[Deuteronomy 7.13|]][[Deuteronomy 7.14|]][[Deuteronomy 7.15|]][[Deuteronomy 7.16|]][[Deuteronomy 7.17|]][[Deuteronomy 7.18|]].
 
-
-
-
-#Atonement #Faith #Fear #Holy_Ghost #Jesus_Christ #Joy #Mercy #Plan_Of_Salvation #Premortal_Existence #Prophets #Restoration #Scriptures

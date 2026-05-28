@@ -1,7 +1,5 @@
 # Turning the Hearts
 
-Marion G. Romney
-
 By Elder Hartman Rector, Jr. - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1981 General Conference*
@@ -65,4 +63,3 @@ Of course, none of this would mean very much if we did not have a holy house in 
 
 
 
-#Family_History

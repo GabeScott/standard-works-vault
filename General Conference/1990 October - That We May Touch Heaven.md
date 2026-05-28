@@ -1,7 +1,5 @@
 # That We May Touch Heaven
 
-Gordon B. Hinckley
-
 By President Thomas S. Monson - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 1990 General Conference*
@@ -163,4 +161,3 @@ Brethren, it is my prayer that we may so live that we, too, may touch heaven and
 
 
 
-#Morality #Repentance #Sabbath #Temptation #Word_Of_Wisdom #Youth

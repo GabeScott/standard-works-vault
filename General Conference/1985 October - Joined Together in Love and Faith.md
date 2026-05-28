@@ -1,7 +1,5 @@
 # Joined Together in Love and Faith
 
-Gordon B. Hinckley
-
 By President Gordon B. Hinckley - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 1985 General Conference*
@@ -23,4 +21,3 @@ We are grateful for the continuing strength and vitality of President Ezra Taft 
 
 
 
-#General_Conference

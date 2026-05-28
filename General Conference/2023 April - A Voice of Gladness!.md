@@ -1,7 +1,5 @@
 # A Voice of Gladness!
 
-Gary E. Stevenson
-
 By Elder Kevin R. Duncan - *Of the Seventy*
 
 *Given in the April session of the 2023 General Conference*
@@ -105,7 +103,3 @@ I witness that you will feel joy more and more as you enter the holy temples of 
 
 [^16]: [[D&C 128.19|Doctrine and Covenants 128:19]].
 
-
-
-
-#Jesus_Christ #Joy #Restoration #Temple_Work #Temples

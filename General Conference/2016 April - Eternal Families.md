@@ -1,7 +1,5 @@
 # Eternal Families
 
-Cheryl A. Esplin
-
 By President Henry B. Eyring - *First Counselor in the First Presidency*
 
 *Given in the April session of the 2016 General Conference*
@@ -105,7 +103,3 @@ Among those “many things” is the promise of an endless posterity. My prayer 
 
 [^5]: Harold B. Lee, *Decisions for Successful Living* (1973), 248–49.
 
-
-
-
-#Children #Family #Family_History #Fatherhood #Marriage #Missionary_Work #Plan_Of_Salvation #Priesthood

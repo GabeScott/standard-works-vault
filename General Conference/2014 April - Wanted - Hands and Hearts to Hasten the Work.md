@@ -1,7 +1,5 @@
 # Wanted: Hands and Hearts to Hasten the Work
 
-Thomas S. Monson
-
 By Linda K. Burton - *Relief Society General President*
 
 *Given in the April session of the 2014 General Conference*
@@ -117,7 +115,3 @@ As true disciples, may we offer our willing hearts and our helping hands to hast
 
 [^14]: “Holding Hands around the World,” *Friend,* July 2002, 44–45; *Liahona,* Oct. 2003, F12–13.
 
-
-
-
-#Discipleship #Service

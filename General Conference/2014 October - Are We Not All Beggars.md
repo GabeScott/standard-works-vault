@@ -1,7 +1,5 @@
 # Are We Not All Beggars?
 
-Thomas S. Monson
-
 By Elder Jeffrey R. Holland - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2014 General Conference*
@@ -105,7 +103,3 @@ In an 1831 revelation to the Prophet Joseph Smith, the Lord said the poor would 
 
 [^21]: [[D&C 56.18|Doctrine and Covenants 56:18]]; see also [[D&C 56.19|verse 19]].
 
-
-
-
-#Discipleship #Fasting #Generosity #Prayer #Welfare

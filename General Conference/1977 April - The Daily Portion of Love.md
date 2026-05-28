@@ -1,7 +1,5 @@
 # The Daily Portion of Love
 
-Spencer W. Kimball
-
 By Bishop H. Burke Peterson - *First Counselor in the Presiding Bishopric*
 
 *Given in the April session of the 1977 General Conference*
@@ -73,4 +71,3 @@ If it comes from the heart, it will work, brothers and sisters. It will bring pe
 
 
 
-#Love

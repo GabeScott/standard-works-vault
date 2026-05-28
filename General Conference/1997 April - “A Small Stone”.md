@@ -1,7 +1,5 @@
 # “A Small Stone”
 
-Gordon B. Hinckley
-
 By Elaine L. Jack - *Recently Released Relief Society General President*
 
 *Given in the April session of the 1997 General Conference*
@@ -55,4 +53,3 @@ My heart is full of gratitude and great joy. Rejoice with me in bearing testimon
 
 
 
-#Church_Callings #Consecration #Jesus_Christ #Priesthood #Relief_Society #Sacrifice #Temples #Visiting_Teaching

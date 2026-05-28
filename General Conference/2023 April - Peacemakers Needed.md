@@ -1,7 +1,5 @@
 # Peacemakers Needed
 
-Gary E. Stevenson
-
 By President Russell M. Nelson - *President of The Church of Jesus Christ of Latter-day Saints*
 
 *Given in the April session of the 2023 General Conference*
@@ -125,7 +123,3 @@ God lives! Jesus is the Christ. He stands at the head of this Church. We are His
 
 [^24]: [[2 Nephi 26.33|2 Nephi 26:33]].
 
-
-
-
-#Anger #Charity #Contention #Discipleship #Jesus_Christ #Love #Peace #Peacemaking

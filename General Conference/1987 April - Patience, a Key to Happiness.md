@@ -1,7 +1,5 @@
 # Patience, a Key to Happiness
 
-Ezra Taft Benson
-
 By Elder Joseph B. Wirthlin - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1987 General Conference*
@@ -95,4 +93,3 @@ I close with my testimony to you that patience is a divine attribute. I testify 
 
 
 
-#Patience

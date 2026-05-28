@@ -1,7 +1,5 @@
 # The Lord Will Prosper the Righteous
 
-Gordon B. Hinckley
-
 By Elder Dean L. Larsen - *Of the Presidency of the Seventy*
 
 *Given in the October session of the 1992 General Conference*
@@ -105,4 +103,3 @@ As the world continues to ripen in iniquity, our lives of necessity must become 
 
 
 
-#Blessings #Obedience #Pride

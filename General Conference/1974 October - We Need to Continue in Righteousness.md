@@ -1,7 +1,5 @@
 # We Need to Continue in Righteousness
 
-Spencer W. Kimball
-
 By President Rex D. Pinegar - *Of the First Council of the Seventy*
 
 *Given in the October session of the 1974 General Conference*
@@ -61,4 +59,3 @@ May the Lord bless each of us with the strength, courage, and faith to continue 
 
 
 
-#Commitment #Endurance

@@ -1,7 +1,5 @@
 # Understanding Who We Are Brings Self-Respect
 
-Harold B. Lee
-
 By President Harold B. Lee - *President of the Church*
 
 *Given in the October session of the 1973 General Conference*
@@ -187,4 +185,3 @@ In the name of our Lord and Master, Jesus, the Christ, the Savior of the world, 
 
 
 
-#Agency #Morality #Self-Esteem #Spirituality #Standards #Truth

@@ -1,7 +1,5 @@
 # What Is a Quorum?
 
-Gordon B. Hinckley
-
 By Elder L. Tom Perry - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2004 General Conference*
@@ -63,4 +61,3 @@ And so I say to you two Brethren who have joined us in our quorum, and to all of
 
 
 
-#Priesthood #Quorum_Of_The_Twelve_Apostles #Service

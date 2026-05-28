@@ -1,7 +1,5 @@
 # Gospel Covenants
 
-Marion G. Romney
-
 By President Marion G. Romney - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 1981 General Conference*
@@ -91,4 +89,3 @@ That the Lord will help all of us to magnify our callings in the priesthood by p
 
 
 
-#Covenants

@@ -1,7 +1,5 @@
 # All May Share in Adam’s Blessing
 
-Joseph Fielding Smith
-
 By Elder Eldred G. Smith - *Patriarch to the Church*
 
 *Given in the April session of the 1971 General Conference*
@@ -73,4 +71,3 @@ We invite all to hear, accept, and embrace this gospel. This invitation is to al
 
 
 
-#Last_Days #Patriarchal_Blessings

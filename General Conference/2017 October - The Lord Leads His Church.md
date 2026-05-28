@@ -1,7 +1,5 @@
 # The Lord Leads His Church
 
-Sharon Eubank
-
 By President Henry B. Eyring - *First Counselor in the First Presidency*
 
 *Given in the October session of the 2017 General Conference*
@@ -97,4 +95,3 @@ I bear you my solemn and yet joyful witness that the Lord Jesus Christ is at the
 
 
 
-#Bishops #Church_Callings #Church_Leadership #Faith #Jesus_Christ #Revelation

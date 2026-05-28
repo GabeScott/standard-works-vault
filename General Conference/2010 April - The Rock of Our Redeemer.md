@@ -1,7 +1,5 @@
 # The Rock of Our Redeemer
 
-Thomas S. Monson
-
 By Elder Wilford W. Andersen - *Of the Seventy*
 
 *Given in the April session of the 2010 General Conference*
@@ -75,7 +73,3 @@ I testify of Him, that He has overcome the world, that He will never forget or a
 
 [^9]: See [[Philippians 4.7|Philippians 4:7]].
 
-
-
-
-#Adversity #Faith #Hope #Jesus_Christ

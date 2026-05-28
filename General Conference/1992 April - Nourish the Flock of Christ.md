@@ -1,7 +1,5 @@
 # Nourish the Flock of Christ
 
-Thomas S. Monson
-
 By Elder Alexander B. Morrison - *Of the Seventy*
 
 *Given in the April session of the 1992 General Conference*
@@ -79,4 +77,3 @@ May we all love, care for, and serve each other that all may receive the bread o
 
 
 
-#Jesus_Christ #Spirituality

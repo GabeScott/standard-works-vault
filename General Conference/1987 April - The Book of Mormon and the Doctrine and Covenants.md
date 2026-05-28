@@ -1,7 +1,5 @@
 # The Book of Mormon and the Doctrine and Covenants
 
-Ezra Taft Benson
-
 By President Ezra Taft Benson - *President of the Church*
 
 *Given in the April session of the 1987 General Conference*
@@ -127,4 +125,3 @@ I testify that the Book of Mormon is the word of God. Jesus is the Christ. Josep
 
 
 
-#Book_Of_Mormon #Doctrine_And_Covenants #Scripture_Study

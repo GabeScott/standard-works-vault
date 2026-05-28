@@ -1,7 +1,5 @@
 # Glad Tidings from Cumorah
 
-Gordon B. Hinckley
-
 By Susan W. Tanner - *Young Women General President*
 
 *Given in the April session of the 2005 General Conference*
@@ -67,4 +65,3 @@ I know this is the Church of Jesus Christ. May each of us let the gospel sink de
 
 
 
-#Covenants #Individual_Worth #Joseph_Smith #Prophets

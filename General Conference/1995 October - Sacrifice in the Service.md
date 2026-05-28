@@ -1,7 +1,5 @@
 # Sacrifice in the Service
 
-Gordon B. Hinckley
-
 By Elder Harold G. Hillam - *Of the Presidency of the Seventy*
 
 *Given in the October session of the 1995 General Conference*
@@ -61,4 +59,3 @@ I testify there is no more majestic call than to be in the full-time service of 
 
 
 
-#Missionary_Work #Plan_Of_Salvation #Sacrifice

@@ -1,7 +1,5 @@
 # Quench Not the Spirit Which Quickens the Inner Man
 
-Gordon B. Hinckley
-
 By Elder Keith K. Hilbig - *Of the Seventy*
 
 *Given in the October session of the 2007 General Conference*
@@ -85,7 +83,3 @@ If we undertake this effort and quench not the Spirit, our inner being is quicke
 
 [^6]: [[Galatians 5.25|Galatians 5:25]].
 
-
-
-
-#Commitment #Holy_Ghost #Temples

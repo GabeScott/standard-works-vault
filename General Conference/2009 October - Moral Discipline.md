@@ -1,7 +1,5 @@
 # Moral Discipline
 
-Thomas S. Monson
-
 By Elder D. Todd Christofferson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2009 General Conference*
@@ -89,7 +87,3 @@ I stand with my brethren and with you, my brothers and sisters, as a witness tha
 
 [^7]: Sarah E. Hinlicky, “Subversive Virginity,” *First Things,* Oct. 1998, 14.
 
-
-
-
-#Agency #Honesty #Morality #Virtue

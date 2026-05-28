@@ -1,7 +1,5 @@
 # “My Specialty Is Mercy”
 
-Gordon B. Hinckley
-
 By Elder Marion D. Hanks - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1981 General Conference*
@@ -101,4 +99,3 @@ In the name of Jesus Christ, amen.
 
 
 
-#Mercy

@@ -1,7 +1,5 @@
 # Prophets and Prophecy
 
-Spencer W. Kimball
-
 By Elder LeGrand Richards - *Of the Council of the Twelve*
 
 *Given in the October session of the 1975 General Conference*
@@ -109,4 +107,3 @@ God bless you all, and I hope you realize that the Lord is speaking through his 
 
 
 
-#Prophecy #Prophets

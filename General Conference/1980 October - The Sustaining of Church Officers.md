@@ -1,7 +1,5 @@
 # The Sustaining of Church Officers
 
-Spencer W. Kimball
-
 By President Marion G. Romney - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 1980 General Conference*

@@ -1,7 +1,5 @@
 # Peace, Be Still
 
-Gordon B. Hinckley
-
 By President Thomas S. Monson - *First Counselor in the First Presidency*
 
 *Given in the October session of the 2002 General Conference*
@@ -187,7 +185,3 @@ His words in holy writ are sufficient: “Be still, and know that I am God.”[^
 
 [^15]: [[Psalms 46.10|Psalm 46:10]].
 
-
-
-
-#Conscience #Financial_Management #Greed #Honesty #Morality #Patience #Peace #Word_Of_Wisdom

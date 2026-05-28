@@ -1,7 +1,5 @@
 # The Joy of Service
 
-Gordon B. Hinckley
-
 By Elder Russell C. Taylor - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1984 General Conference*
@@ -45,4 +43,3 @@ Through the years my heart has been changed and softened through service. As the
 
 
 
-#Obedience #Service

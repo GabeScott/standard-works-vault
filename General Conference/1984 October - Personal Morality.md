@@ -1,7 +1,5 @@
 # Personal Morality
 
-Gordon B. Hinckley
-
 By Elder David B. Haight - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1984 General Conference*
@@ -95,4 +93,3 @@ May we strive to purify our personal lives, strengthen our homes—and not just 
 
 
 
-#Media #Morality

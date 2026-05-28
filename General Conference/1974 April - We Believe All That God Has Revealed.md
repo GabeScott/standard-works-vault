@@ -1,7 +1,5 @@
 # We Believe All That God Has Revealed
 
-Spencer W. Kimball
-
 By Elder Boyd K. Packer - *Of the Council of the Twelve*
 
 *Given in the April session of the 1974 General Conference*
@@ -115,4 +113,3 @@ I bear witness that the revelations are true. I have tested them. There sit befo
 
 
 
-#Scriptures

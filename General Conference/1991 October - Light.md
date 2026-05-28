@@ -1,7 +1,5 @@
 # Light
 
-Gordon B. Hinckley
-
 By Elder Ted E. Brewerton - *Of the Seventy*
 
 *Given in the October session of the 1991 General Conference*
@@ -95,4 +93,3 @@ I must return and report my stewardship and *my words* in the heavens when I lea
 
 
 
-#Faith #Hope #Jesus_Christ #Obedience #Testimony

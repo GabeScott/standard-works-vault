@@ -1,7 +1,5 @@
 # Cultivating Divine Attributes
 
-Gordon B. Hinckley
-
 By Elder Joseph B. Wirthlin - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1998 General Conference*
@@ -149,7 +147,3 @@ I testify to you as a special witness that Jesus is the Christ and that through 
 
 [^34]: See [[John 14.27|John 14:27]].
 
-
-
-
-#Atonement #Charity #Faith #Family #Hope #Jesus_Christ #Love #Parenthood #Repentance #Temples

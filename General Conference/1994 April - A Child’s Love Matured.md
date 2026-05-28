@@ -1,7 +1,5 @@
 # A Child’s Love Matured
 
-James E. Faust
-
 By Elder Albert Choules, Jr. - *Of the Seventy*
 
 *Given in the April session of the 1994 General Conference*
@@ -59,4 +57,3 @@ I bear my witness that God and Jesus Christ live and that if we will love them a
 
 
 
-#Authority #Children #Fatherhood #Home #Love #Marriage #Parenthood #Priesthood

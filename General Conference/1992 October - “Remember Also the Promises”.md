@@ -1,7 +1,5 @@
 # “Remember Also the Promises”
 
-Gordon B. Hinckley
-
 By Elder Jay E. Jensen - *Of the Seventy*
 
 *Given in the October session of the 1992 General Conference*
@@ -77,4 +75,3 @@ May we “remember also the promises.” I testify that the scriptures are the w
 
 
 
-#Covenants #Scriptures

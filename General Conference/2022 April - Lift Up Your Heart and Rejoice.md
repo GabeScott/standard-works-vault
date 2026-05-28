@@ -1,7 +1,5 @@
 # Lift Up Your Heart and Rejoice
 
-Russell M. Nelson
-
 By Elder Marcos A. Aidukaitis - *Of the Seventy*
 
 *Given in the April session of the 2022 General Conference*
@@ -54,7 +52,7 @@ Remember the challenges that I thought I faced prior to my mission? My dentist? 
 
 But God truly blessed me richly. And I learned that the blessings of the Lord can come in ways different from how we expect. After all, His thoughts are not our thoughts (see [[Isaiah 55.8|Isaiah 55:8–9]][[Isaiah 55.9|]]).
 
-Among the many rich blessings He has given me for serving Him as a full-time missionary are a greater faith in Jesus Christ and His Atonement and a stronger knowledge and testimony of His teachings, so that I am not easily swayed by “every wind of doctrine” ([[Ephesians 4.14|Ephesians 4:14]]). I lost my fear of teaching. My capacity to face challenges with optimism increased. By observing individuals and families I met or taught as a missionary, I learned that the teachings of God are true when He says that sin does not bring true happiness and that obedience to the commandments of God helps us prosper both temporally and spiritually (see [[Mosiah 2.41|Mosiah 2:41]]; [[Alma 41.10|Alma 41:10]]). And I learned for myself that God is a God of miracles (see [[Mormon 9.1|Mormon 9]]).
+Among the many rich blessings He has given me for serving Him as a full-time missionary are a greater faith in Jesus Christ and His Atonement and a stronger knowledge and testimony of His teachings, so that I am not easily swayed by “every wind of doctrine” ([[Ephesians 4.14|Ephesians 4:14]]). I lost my fear of teaching. My capacity to face challenges with optimism increased. By observing individuals and families I met or taught as a missionary, I learned that the teachings of God are true when He says that sin does not bring true happiness and that obedience to the commandments of God helps us prosper both temporally and spiritually (see [[Mosiah 2.41|Mosiah 2:41]]; [[Alma 41.10|Alma 41:10]]). And I learned for myself that God is a God of miracles (see [[Mormon 9.1|Mormon 9]][[Mormon 9.2|]][[Mormon 9.3|]][[Mormon 9.4|]][[Mormon 9.5|]][[Mormon 9.6|]][[Mormon 9.7|]][[Mormon 9.8|]][[Mormon 9.9|]][[Mormon 9.10|]][[Mormon 9.11|]][[Mormon 9.12|]][[Mormon 9.13|]][[Mormon 9.14|]][[Mormon 9.15|]][[Mormon 9.16|]][[Mormon 9.17|]][[Mormon 9.18|]][[Mormon 9.19|]][[Mormon 9.20|]][[Mormon 9.21|]][[Mormon 9.22|]][[Mormon 9.23|]][[Mormon 9.24|]][[Mormon 9.25|]][[Mormon 9.26|]][[Mormon 9.27|]][[Mormon 9.28|]][[Mormon 9.29|]][[Mormon 9.30|]][[Mormon 9.31|]][[Mormon 9.32|]][[Mormon 9.33|]][[Mormon 9.34|]][[Mormon 9.35|]][[Mormon 9.36|]][[Mormon 9.37|]]).
 
 All of these things were instrumental in my preparation for adult life, including possible marriage and parenthood, Church service, and professional and community life.
 
@@ -87,7 +85,3 @@ For all these reasons, I am not surprised that the Lord said to Thomas B. Marsh 
 
 [^5]: Russell M. Nelson, “[Hope of Israel](https://www.churchofjesuschrist.org/study/broadcasts/worldwide-devotional-for-young-adults/2018/06/hope-of-israel?lang=eng&id=p79-p80#p79).”
 
-
-
-
-#Blessings #Gathering #Missionary_Work #Youth

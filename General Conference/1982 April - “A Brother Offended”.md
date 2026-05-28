@@ -1,7 +1,5 @@
 # “A Brother Offended”
 
-Spencer W. Kimball
-
 By Elder Neal A. Maxwell - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1982 General Conference*
@@ -117,4 +115,3 @@ Such is my counsel, brethren. Such is my prayer. It is given in the name of Him 
 
 
 
-#Activation #Offense

@@ -1,7 +1,5 @@
 # Seeking the Good
 
-Thomas S. Monson
-
 By Elder Joseph B. Wirthlin - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1992 General Conference*
@@ -85,4 +83,3 @@ I bear humble witness that our Heavenly Father knows and loves each of his child
 
 
 
-#Joy #Obedience #Service #Temple_Work

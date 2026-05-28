@@ -1,7 +1,5 @@
 # The Moving of the Water
 
-Thomas S. Monson
-
 By Elder Boyd K. Packer - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1991 General Conference*
@@ -107,4 +105,3 @@ I am a witness of the condition of those who have gone beyond the veil, and we a
 
 
 
-#Adversity #Disabilities #Resurrection #Spirituality

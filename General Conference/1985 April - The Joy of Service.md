@@ -1,7 +1,5 @@
 # The Joy of Service
 
-Gordon B. Hinckley
-
 By Elder F. Arthur Kay - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1985 General Conference*
@@ -53,4 +51,3 @@ In closing, I wish to express my eternal gratitude to the sweetheart of my youth
 
 
 
-#Service #Testimony

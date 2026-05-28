@@ -1,7 +1,5 @@
 # Your Happily Ever After
 
-Thomas S. Monson
-
 By President Dieter F. Uchtdorf - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 2010 General Conference*
@@ -127,7 +125,3 @@ As an Apostle of the Lord Jesus Christ, I leave you my blessing and give you a p
 
 [^10]: *Young Women Personal Progress,* 3.
 
-
-
-
-#Adversity #Joy #Obedience #Plan_Of_Salvation

@@ -1,7 +1,5 @@
 # Fundamental Welfare Services
 
-Spencer W. Kimball
-
 By President Marion G. Romney - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 1979 General Conference*
@@ -133,4 +131,3 @@ That we may all vigorously pursue our duties in living and in implementing the C
 
 
 
-#Charity #Welfare

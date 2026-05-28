@@ -1,7 +1,5 @@
 # Relief Society in Times of Transition
 
-Gordon B. Hinckley
-
 By Barbara B. Smith - *Relief Society General President*
 
 *Given in the October session of the 1981 General Conference*
@@ -117,4 +115,3 @@ May we be wise enough to let our light shine out and our love reach out until we
 
 
 
-#Relief_Society

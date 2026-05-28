@@ -1,7 +1,5 @@
 # Behold the Man!
 
-Henry B. Eyring
-
 By Elder Dieter F. Uchtdorf - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2018 General Conference*
@@ -189,7 +187,3 @@ I leave you my testimony and blessing that as we “behold the man,” we will f
 
 [^19]: [[2 Nephi 25.26|2 Nephi 25:26]].
 
-
-
-
-#Adversity #Atonement #Death #Discipleship #Easter #Jesus_Christ #Repentance #Resurrection

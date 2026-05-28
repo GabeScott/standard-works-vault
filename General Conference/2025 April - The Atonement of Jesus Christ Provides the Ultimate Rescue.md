@@ -1,7 +1,5 @@
 # The Atonement of Jesus Christ Provides the Ultimate Rescue
 
-Dallin H. Oaks
-
 By Elder Quentin L. Cook - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2025 General Conference*
@@ -121,7 +119,7 @@ We must never forget the sacrifices and examples of prior generations, but our a
 
 [^20]: John Linford, in Golden C. Linford, *Linford Family Heritage* (1995), 214; see also Val Parrish, “President’s Message,” *Pioneer*, vol. 71, no. 3 (Fall 2024), 1.
 
-[^21]: James E. Faust, in “[[1997 April - Faith in Every Footstep - The Epic Pioneer Journey.md|Faith in Every Footstep: The Epic Pioneer Journey]]” (video presentation in general conference, Apr. 6, 1997), *Ensign*, May 1997, 63.
+[^21]: James E. Faust, in “[[1997 April - Faith in Every Footstep - The Epic Pioneer Journey (Video Presentation).md|Faith in Every Footstep: The Epic Pioneer Journey]]” (video presentation in general conference, Apr. 6, 1997), *Ensign*, May 1997, 63.
 
 [^22]: [[Mosiah 15.8|Mosiah 15:8]].
 
@@ -137,7 +135,3 @@ We must never forget the sacrifices and examples of prior generations, but our a
 
 [^28]: Russell M. Nelson, “[[2024 October - The Lord Jesus Christ Will Come Again.md|The Lord Jesus Christ Will Come Again]],” *Liahona*, Nov. 2024, 121.
 
-
-
-
-#Adversity #Atonement #Jesus_Christ #Pioneers #Temples

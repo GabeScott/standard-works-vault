@@ -1,7 +1,5 @@
 # “Behold the Man”
 
-Gordon B. Hinckley
-
 By Bishop Richard C. Edgley - *First Counselor in the Presiding Bishopric*
 
 *Given in the October session of the 1999 General Conference*
@@ -51,4 +49,3 @@ Moses, in a moment of both motivation and rebuke, charged the Israelites, “Who
 
 
 
-#Atonement #Character #Example #Humility #Jesus_Christ #Priesthood #Repentance #Satan #Sin #Word_Of_Wisdom

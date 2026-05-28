@@ -1,7 +1,5 @@
 # Heirs to the Kingdom of God
 
-Thomas S. Monson
-
 By President James E. Faust - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 1995 General Conference*
@@ -97,7 +95,3 @@ Mine is the certain knowledge that Jesus is our divine Savior, Redeemer, and the
 
 [^16]: [[Matthew 9.22|Matt. 9:22]].
 
-
-
-
-#Individual_Worth #Kingdom_Of_God #Peace #Self-Esteem #Spirituality #Tolerance #Unity #Welfare

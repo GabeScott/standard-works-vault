@@ -1,7 +1,5 @@
 # Bring Him Home
 
-Gordon B. Hinckley
-
 By President Thomas S. Monson - *First Counselor in the First Presidency*
 
 *Given in the October session of the 2003 General Conference*
@@ -151,7 +149,3 @@ And within our hearts we will recognize His unspoken plea: *Bring him home.* In 
 
 [^10]: [[Matthew 25.21|Matthew 25:21]].
 
-
-
-
-#Activation #Family #Home #Priesthood #Sacrament #Service

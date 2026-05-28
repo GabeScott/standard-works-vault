@@ -1,7 +1,5 @@
 # Always Remember Him
 
-Cheryl A. Esplin
-
 By Elder Gerrit W. Gong - *Of the Presidency of the Seventy*
 
 *Given in the April session of the 2016 General Conference*
@@ -171,7 +169,3 @@ I humbly testify and pray that we will always remember Him—in all times, all t
 
 [^30]: See [[Mosiah 18.9|Mosiah 18:9]].
 
-
-
-
-#Atonement #Forgiveness #Gratitude #Jesus_Christ #Offense #Prayer #Repentance #Sabbath #Sacrament #Trust

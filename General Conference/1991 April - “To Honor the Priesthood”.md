@@ -1,7 +1,5 @@
 # “To Honor the Priesthood”
 
-Thomas S. Monson
-
 By Elder J. Richard Clarke - *Of the Presidency of the Seventy*
 
 *Given in the April session of the 1991 General Conference*
@@ -83,4 +81,3 @@ In his last tender letter to Moroni, Mormon concluded: “My son, be faithful in
 
 
 
-#Authority #Faith #Priesthood #Repentance #Service #Spirituality

@@ -1,7 +1,5 @@
 # The Sifting
 
-Joseph Fielding Smith
-
 By Elder ElRay L. Christiansen - *Assistant to the Council of the Twelve*
 
 *Given in the October session of the 1971 General Conference*
@@ -79,4 +77,3 @@ In the name of Jesus Christ. Amen.
 
 
 
-#Adversity #Agency #Sin #Temptation

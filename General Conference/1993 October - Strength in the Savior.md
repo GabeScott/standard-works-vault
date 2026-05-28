@@ -1,7 +1,5 @@
 # Strength in the Savior
 
-Gordon B. Hinckley
-
 By Chieko N. Okazaki - *First Counselor in the Relief Society General Presidency*
 
 *Given in the October session of the 1993 General Conference*
@@ -79,7 +77,3 @@ I say this in the name of our Savior Jesus Christ, amen.
 
 [^3]: Tim B. Heaton, “Vital Statistics,” *Encyclopedia of Mormonism* (New York: Macmillan, 1992), 4:1532.
 
-
-
-
-#Faith #Family #Holy_Ghost #Jesus_Christ

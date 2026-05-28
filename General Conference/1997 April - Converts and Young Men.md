@@ -1,7 +1,5 @@
 # Converts and Young Men
 
-Gordon B. Hinckley
-
 By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the April session of the 1997 General Conference*
@@ -137,4 +135,3 @@ May the Lord bless you, my dear young friends. May His watch care be over you to
 
 
 
-#Conversion #Fear #Fellowshipping #Greed #Jesus_Christ #Joy #Love #Priesthood #Satan

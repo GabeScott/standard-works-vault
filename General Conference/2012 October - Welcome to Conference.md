@@ -1,7 +1,5 @@
 # Welcome to Conference
 
-Thomas S. Monson
-
 By President Thomas S. Monson - *President of the Church*
 
 *Given in the October session of the 2012 General Conference*
@@ -43,4 +41,3 @@ Now, my brothers and sisters, may we listen attentively to the messages which wi
 
 
 
-#Couple_Missionaries #Missionary_Work #Temples

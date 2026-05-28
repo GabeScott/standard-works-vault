@@ -1,7 +1,5 @@
 # Keys, Covenants, and Easter
 
-Dallin H. Oaks
-
 By Elder Quentin L. Cook - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2026 General Conference*
@@ -123,5 +121,3 @@ As an Apostle, I bear my sure and certain witness of Jesus Christ, the Savior of
 
 [^24]: The Jewish delegation was led by former US Senator Joseph Lieberman; former New York Attorney General Robert Abrams; Rabbi Joseph Potasnik, executive vice president of the New York Board of Rabbis; Rabbi Meir Soloveichik of Congregation Shearith Israel in New York City; and other exceptional leaders (see “[Latter-day Saint and Jewish Delegation Gathers at Historic Jerusalem Site](https://newsroom.churchofjesuschrist.org/article/mormon-jewish-delegation-jerusalem),” Oct. 28, 2016, newsroom.ChurchofJesusChrist.org).
 
-
-#Covenants #Easter #Ordinances #Priesthood_Keys #Restoration #Temples

@@ -1,7 +1,5 @@
 # Covenants
 
-Richard G. Scott
-
 By Elder Russell M. Nelson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2011 General Conference*
@@ -129,7 +127,7 @@ God lives. Jesus is the Christ. His Church has been restored to bless all people
 
 [^29]: See [[Alma 13.1|Alma 13:1–9]][[Alma 13.2|]][[Alma 13.3|]][[Alma 13.4|]][[Alma 13.5|]][[Alma 13.6|]][[Alma 13.7|]][[Alma 13.8|]][[Alma 13.9|]].
 
-[^30]: See [[3 Nephi 29.1|3 Nephi 29]].
+[^30]: See [[3 Nephi 29.1|3 Nephi 29]][[3 Nephi 29.2|]][[3 Nephi 29.3|]][[3 Nephi 29.4|]][[3 Nephi 29.5|]][[3 Nephi 29.6|]][[3 Nephi 29.7|]][[3 Nephi 29.8|]][[3 Nephi 29.9|]].
 
 [^31]: [[3 Nephi 29.1|3 Nephi 29:1, 3]][[3 Nephi 29.3|]].
 
@@ -151,7 +149,3 @@ God lives. Jesus is the Christ. His Church has been restored to bless all people
 
 [^40]: [[Mosiah 2.41|Mosiah 2:41]].
 
-
-
-
-#Covenants #House_Of_Israel #Obedience #Priesthood

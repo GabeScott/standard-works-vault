@@ -1,7 +1,5 @@
 # “Remember This: Kindness Begins with Me”
 
-Thomas S. Monson
-
 By Mary N. Cook - *First Counselor in the Young Women General Presidency*
 
 *Given in the April session of the 2011 General Conference*
@@ -105,7 +103,3 @@ I know that our Savior lives and loves each of us. He has given His life for all
 
 [^14]: [[Articles of Faith 1.13|Articles of Faith 1:13]].
 
-
-
-
-#Kindness #Service

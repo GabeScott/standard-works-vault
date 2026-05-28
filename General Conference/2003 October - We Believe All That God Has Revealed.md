@@ -1,7 +1,5 @@
 # We Believe All That God Has Revealed
 
-Gordon B. Hinckley
-
 By Elder L. Tom Perry - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2003 General Conference*
@@ -149,7 +147,3 @@ God grant that we may always have the will and the courage to be obedient to Him
 
 [^17]: [[1 Nephi 4.15|1 Nephi 4:15–16]][[1 Nephi 4.16|]].
 
-
-
-
-#Commandments #Holy_Ghost #Obedience #Prophets #Spirituality

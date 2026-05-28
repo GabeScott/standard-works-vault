@@ -1,7 +1,5 @@
 # Strive for Excellence
 
-Joseph Fielding Smith
-
 By Dallin H. Oaks - *President, Brigham Young University*
 
 *Given in the October session of the 1971 General Conference*
@@ -45,4 +43,3 @@ I bear this testimony to you and ask your prayers and the blessings of our Fathe
 
 
 
-#Education

@@ -1,7 +1,5 @@
 # The Power of Self-Mastery
 
-Gordon B. Hinckley
-
 By President James E. Faust - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 2000 General Conference*
@@ -107,7 +105,3 @@ Brethren, I testify with all my heart and soul that through the power of self-ma
 
 [^14]: “Invictus. In Mem. R.T.H.B.,” as quoted in *The Oxford Dictionary of Quotations,* 332.
 
-
-
-
-#Adversity #Courage #Example #Freedom #General_Conference #Humility #Media #Missionary_Work #Morality #Priesthood #Scripture_Study #Self-Control #Spirituality

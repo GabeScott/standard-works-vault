@@ -1,7 +1,5 @@
 # Spiritual Capacity
 
-Jeffrey R. Holland
-
 By Michelle Craig - *First Counselor in the Young Women General Presidency*
 
 *Given in the October session of the 2019 General Conference*
@@ -95,7 +93,3 @@ The Church’s new program for children and youth is built on the foundation of 
 
 [^13]: See Quentin L. Cook, “[[2017 October - The Eternal Everyday.md|The Eternal Everyday]],” *Ensign* or *Liahona,* Nov. 2017, 51.
 
-
-
-
-#Holy_Ghost #Revelation

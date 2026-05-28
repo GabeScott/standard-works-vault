@@ -1,7 +1,5 @@
 # Place No More for the Enemy of My Soul
 
-Thomas S. Monson
-
 By Elder Jeffrey R. Holland - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2010 General Conference*
@@ -69,7 +67,3 @@ When we face such temptations in our time, we must declare, as young Nephi did i
 
 [^12]: [[2 Nephi 4.28|2 Nephi 4:28]].
 
-
-
-
-#Loyalty #Morality #Pornography

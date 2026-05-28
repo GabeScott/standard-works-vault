@@ -1,7 +1,5 @@
 # Fathers and Sons: A Remarkable Relationship
 
-Thomas S. Monson
-
 By Elder M. Russell Ballard - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2009 General Conference*
@@ -61,4 +59,3 @@ I’m grateful for my sons and my sons-in-law, who have taught me so much, and I
 
 
 
-#Communication #Fatherhood #Priesthood #Trust #Youth

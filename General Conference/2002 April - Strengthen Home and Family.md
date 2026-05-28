@@ -1,7 +1,5 @@
 # Strengthen Home and Family
 
-Gordon B. Hinckley
-
 By Carol B. Thomas - *First Counselor in the Young Women General Presidency*
 
 *Given in the April session of the 2002 General Conference*
@@ -101,4 +99,3 @@ The Savior, our Redeemer and friend, has shown us the way. As you practice His t
 
 
 
-#Family #Home #Prayer #Sacrifice

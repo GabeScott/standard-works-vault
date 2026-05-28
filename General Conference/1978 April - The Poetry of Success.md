@@ -1,7 +1,5 @@
 # The Poetry of Success
 
-Spencer W. Kimball
-
 By Elder Sterling W. Sill - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1978 General Conference*
@@ -178,4 +176,3 @@ And that it may always be so I sincerely pray in the name of Jesus Christ. Amen.
 
 
 
-#Healing #Success

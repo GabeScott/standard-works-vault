@@ -1,7 +1,5 @@
 # The Sabbath Is a Delight
 
-Cheryl A. Esplin
-
 By Elder Russell M. Nelson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2015 General Conference*
@@ -137,7 +135,3 @@ With love in my heart, I leave this with you as my prayer, testimony, and blessi
 
 [^24]: [[Moroni 10.32|Moroni 10:32–33]][[Moroni 10.33|]].
 
-
-
-
-#Family_History #Parenthood #Sabbath #Teaching

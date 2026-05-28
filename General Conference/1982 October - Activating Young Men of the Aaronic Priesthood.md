@@ -1,7 +1,5 @@
 # Activating Young Men of the Aaronic Priesthood
 
-Spencer W. Kimball
-
 By C. Frederick Pingel - *Bishop, Beavercreek Ward, Dayton Ohio East Stake*
 
 *Given in the October session of the 1982 General Conference*
@@ -83,4 +81,3 @@ Remember the sister that I used to home teach? The one who told me that talk is 
 
 
 
-#Activation #Priesthood #Youth

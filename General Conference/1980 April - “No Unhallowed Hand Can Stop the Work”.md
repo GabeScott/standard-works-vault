@@ -1,7 +1,5 @@
 # “No Unhallowed Hand Can Stop the Work”
 
-Spencer W. Kimball
-
 By President Spencer W. Kimball - *President of the Church*
 
 *Given in the April session of the 1980 General Conference*
@@ -53,4 +51,3 @@ Let us, then, press on confidently in the work of the Lord as we look forward to
 
 
 
-#Family #Missionary_Work

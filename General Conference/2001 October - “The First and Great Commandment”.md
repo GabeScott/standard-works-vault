@@ -1,7 +1,5 @@
 # “The First and Great Commandment”
 
-Gordon B. Hinckley
-
 By Elder Robert F. Orton - *Of the Seventy*
 
 *Given in the October session of the 2001 General Conference*
@@ -57,4 +55,3 @@ I testify of the divinity of Christ and the reality of His mission to bring to p
 
 
 
-#Commandments #Contention #Faith #Fatherhood #Jesus_Christ #Love #Motherhood #Neighbors #Prayer #Service

@@ -1,7 +1,5 @@
 # The Creation
 
-Gordon B. Hinckley
-
 By Elder Russell M. Nelson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2000 General Conference*
@@ -205,7 +203,3 @@ I testify that God lives! Jesus is the Christ and Creator! He is Lord over all t
 
 [^57]: See [[Romans 2.7|Rom. 2:7]]; [[D&C 75.5|D&C 75:5]]; [[D&C 128.12|128:12]]; [[D&C 132.19|132:19–24]][[D&C 132.20|]][[D&C 132.21|]][[D&C 132.22|]][[D&C 132.23|]][[D&C 132.24|]].
 
-
-
-
-#Atonement #Commandments #Creation #Family #God_The_Father #Plan_Of_Salvation #Responsibility #Scriptures #Temples

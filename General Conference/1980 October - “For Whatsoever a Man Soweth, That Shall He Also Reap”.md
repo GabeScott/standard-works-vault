@@ -1,7 +1,5 @@
 # “For Whatsoever a Man Soweth, That Shall He Also Reap”
 
-Spencer W. Kimball
-
 By Elder L. Tom Perry - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1980 General Conference*
@@ -49,4 +47,3 @@ May we be blessed with the faith to follow His way, which will lead us to life e
 
 
 
-#Family #Family_Home_Evening

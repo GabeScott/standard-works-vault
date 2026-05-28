@@ -1,7 +1,5 @@
 # Laying the Foundation of a Great Work
 
-Russell M. Nelson
-
 By Elder Steven R. Bangerter - *Of the Seventy*
 
 *Given in the October session of the 2018 General Conference*
@@ -71,7 +69,3 @@ The things we talk of, the things we preach and teach determine the things that 
 
 [^9]: [[Deuteronomy 6.7|Deuteronomy 6:7]].
 
-
-
-
-#Faith #Parenthood #Teaching #Traditions

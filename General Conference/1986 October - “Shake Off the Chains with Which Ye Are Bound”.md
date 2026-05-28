@@ -1,7 +1,5 @@
 # “Shake Off the Chains with Which Ye Are Bound”
 
-Ezra Taft Benson
-
 By Elder Marvin J. Ashton - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1986 General Conference*
@@ -79,4 +77,3 @@ God help us to shake off and break the chains with which we are bound. With God�
 
 
 
-#Commitment #Repentance #Word_Of_Wisdom

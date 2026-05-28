@@ -1,7 +1,5 @@
 # Remember the Teachings of Your Father
 
-Gordon B. Hinckley
-
 By Elder H. Bryan Richards - *Of the Seventy*
 
 *Given in the October session of the 2004 General Conference*
@@ -69,4 +67,3 @@ The reason Satan has fought and continues to fight against the Book of Mormon is
 
 
 
-#Book_Of_Mormon #Faith #Parenthood #Scripture_Study #Testimony

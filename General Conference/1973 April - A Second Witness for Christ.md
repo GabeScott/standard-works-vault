@@ -1,7 +1,5 @@
 # A Second Witness for Christ
 
-Harold B. Lee
-
 By President Loren C. Dunn - *Of the First Council of the Seventy*
 
 *Given in the April session of the 1973 General Conference*
@@ -77,4 +75,3 @@ To this I bear my humble witness that I know God lives and that Jesus the Christ
 
 
 
-#Book_Of_Mormon #Restoration #Resurrection

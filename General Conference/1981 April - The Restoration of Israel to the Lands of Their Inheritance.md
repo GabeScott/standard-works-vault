@@ -1,7 +1,5 @@
 # The Restoration of Israel to the Lands of Their Inheritance
 
-Marion G. Romney
-
 By President Marion G. Romney - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 1981 General Conference*
@@ -95,4 +93,3 @@ These predictions by the Book of Mormon prophets make it perfectly clear that th
 
 
 
-#House_Of_Israel

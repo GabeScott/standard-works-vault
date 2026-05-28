@@ -1,7 +1,5 @@
 # Hands
 
-N. Eldon Tanner
-
 By Elder Thomas S. Monson - *Of the Council of the Twelve*
 
 *Given in the October session of the 1972 General Conference*
@@ -89,7 +87,3 @@ Of this solemn truth I testify. I declare that our Lord and Savior does live and
 
 [^1]: M. Louise Haskins, “The Gate of the Year.”
 
-
-
-
-#Family #Jesus_Christ #Service

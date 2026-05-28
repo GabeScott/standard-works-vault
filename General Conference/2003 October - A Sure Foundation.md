@@ -1,7 +1,5 @@
 # A Sure Foundation
 
-Gordon B. Hinckley
-
 By Elder Sheldon F. Child - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 2003 General Conference*
@@ -83,7 +81,3 @@ Brothers and sisters, the scriptures, the living prophets, and the Holy Ghost al
 
 [^10]: [[Helaman 5.12|Helaman 5:12]].
 
-
-
-
-#Adversity #Holy_Ghost #Prophets #Scripture_Study #Testimony

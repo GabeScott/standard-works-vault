@@ -1,7 +1,5 @@
 # The Spirit of Revelation
 
-Thomas S. Monson
-
 By Elder David A. Bednar - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2011 General Conference*
@@ -36,7 +34,7 @@ Revelations are conveyed in a variety of ways, including, for example, dreams, v
 
 A light turned on in a dark room is like receiving a message from God quickly, completely, and all at once. Many of us have experienced this pattern of revelation as we have been given answers to sincere prayers or been provided with needed direction or protection, according to God’s will and timing. Descriptions of such immediate and intense manifestations are found in the scriptures, recounted in Church history, and evidenced in our own lives. Indeed, these mighty miracles do occur. However, this pattern of revelation tends to be more rare than common.
 
-The gradual increase of light radiating from the rising sun is like receiving a message from God “line upon line, precept upon precept” ([[2 Nephi 28.30|2 Nephi 28:30]]). Most frequently, revelation comes in small increments over time and is granted according to our desire, worthiness, and preparation. Such communications from Heavenly Father gradually and gently “distil upon \[our souls\] as the dews from heaven” ([[D&C 121.45|D&C 121:45]]). This pattern of revelation tends to be more common than rare and is evident in the experiences of Nephi as he tried several different approaches before successfully obtaining the plates of brass from Laban (see [[1 Nephi 3.1|1 Nephi 3–4]]). Ultimately, he was led by the Spirit to Jerusalem, “not knowing beforehand the things which \[he\] should do” ([[1 Nephi 4.6|1 Nephi 4:6]]). And he did not learn how to build a ship of curious workmanship all at one time; rather, Nephi was shown by the Lord “from time to time after what manner \[he\] should work the timbers of the ship” ([[1 Nephi 18.1|1 Nephi 18:1]]).
+The gradual increase of light radiating from the rising sun is like receiving a message from God “line upon line, precept upon precept” ([[2 Nephi 28.30|2 Nephi 28:30]]). Most frequently, revelation comes in small increments over time and is granted according to our desire, worthiness, and preparation. Such communications from Heavenly Father gradually and gently “distil upon \[our souls\] as the dews from heaven” ([[D&C 121.45|D&C 121:45]]). This pattern of revelation tends to be more common than rare and is evident in the experiences of Nephi as he tried several different approaches before successfully obtaining the plates of brass from Laban (see [[1 Nephi 3.1|1 Nephi 3–4]][[1 Nephi 3.2|]][[1 Nephi 3.3|]][[1 Nephi 3.4|]][[1 Nephi 3.5|]][[1 Nephi 3.6|]][[1 Nephi 3.7|]][[1 Nephi 3.8|]][[1 Nephi 3.9|]][[1 Nephi 3.10|]][[1 Nephi 3.11|]][[1 Nephi 3.12|]][[1 Nephi 3.13|]][[1 Nephi 3.14|]][[1 Nephi 3.15|]][[1 Nephi 3.16|]][[1 Nephi 3.17|]][[1 Nephi 3.18|]][[1 Nephi 3.19|]][[1 Nephi 3.20|]][[1 Nephi 3.21|]][[1 Nephi 3.22|]][[1 Nephi 3.23|]][[1 Nephi 3.24|]][[1 Nephi 3.25|]][[1 Nephi 3.26|]][[1 Nephi 3.27|]][[1 Nephi 3.28|]][[1 Nephi 3.29|]][[1 Nephi 3.30|]][[1 Nephi 3.31|]]). Ultimately, he was led by the Spirit to Jerusalem, “not knowing beforehand the things which \[he\] should do” ([[1 Nephi 4.6|1 Nephi 4:6]]). And he did not learn how to build a ship of curious workmanship all at one time; rather, Nephi was shown by the Lord “from time to time after what manner \[he\] should work the timbers of the ship” ([[1 Nephi 18.1|1 Nephi 18:1]]).
 
 Both the history of the Church and our personal lives are replete with examples of the Lord’s pattern for receiving revelation “line upon line, precept upon precept.” For example, the fundamental truths of the restored gospel were not delivered to the Prophet Joseph Smith all at once in the Sacred Grove. These priceless treasures were revealed as circumstances warranted and as the timing was right.
 
@@ -67,4 +65,3 @@ I declare my apostolic witness that the Father and the Son live. The spirit of r
 
 
 
-#Church_History #Faith #Holy_Ghost #Obedience #Revelation

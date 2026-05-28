@@ -1,7 +1,5 @@
 # Words to Live By
 
-Gordon B. Hinckley
-
 By Elder James M. Dunn - *Of the Seventy*
 
 *Given in the April session of the 2003 General Conference*
@@ -61,4 +59,3 @@ In the name of Jesus Christ, amen.
 
 
 
-#Obedience #Plan_Of_Salvation

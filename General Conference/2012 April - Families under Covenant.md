@@ -1,7 +1,5 @@
 # Families under Covenant
 
-Thomas S. Monson
-
 By President Henry B. Eyring - *First Counselor in the First Presidency*
 
 *Given in the April session of the 2012 General Conference*
@@ -123,7 +121,3 @@ I know that Jesus is the Christ and is our Savior. I testify that President Thom
 
 [^12]: [[D&C 121.46|Doctrine and Covenants 121:46]].
 
-
-
-
-#Covenants #Family #Fatherhood #Priesthood #Temple_Work

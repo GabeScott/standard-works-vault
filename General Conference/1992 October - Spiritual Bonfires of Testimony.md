@@ -1,7 +1,5 @@
 # Spiritual Bonfires of Testimony
 
-Gordon B. Hinckley
-
 By Elder Joseph B. Wirthlin - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1992 General Conference*
@@ -71,4 +69,3 @@ I know that our Heavenly Father lives and loves each of His children. His Son, J
 
 
 
-#Faith #Jesus_Christ #Repentance #Testimony

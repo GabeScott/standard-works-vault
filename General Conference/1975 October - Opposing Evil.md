@@ -1,7 +1,5 @@
 # Opposing Evil
 
-Spencer W. Kimball
-
 By Elder Gordon B. Hinckley - *Of the Council of the Twelve*
 
 *Given in the October session of the 1975 General Conference*
@@ -89,4 +87,3 @@ God lives. He is our strength and our helper. As we strive, we shall discover th
 
 
 
-#Evil #Repentance #Standards #Youth

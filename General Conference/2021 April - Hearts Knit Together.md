@@ -1,7 +1,5 @@
 # Hearts Knit Together
 
-Russell M. Nelson
-
 By Elder Gary E. Stevenson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2021 General Conference*
@@ -163,7 +161,3 @@ Of this I testify—and of Jesus Christ as our Savior and our Redeemer—in the 
 
 [^21]: [[Psalms 23.1|Psalm 23:1]].
 
-
-
-
-#Adversity #Bullying #Compassion #Jesus_Christ #Kindness #Love #Unity

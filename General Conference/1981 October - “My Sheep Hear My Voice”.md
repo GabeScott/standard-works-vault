@@ -1,7 +1,5 @@
 # “My Sheep Hear My Voice”
 
-Gordon B. Hinckley
-
 By Elder Yoshihiko Kikuchi - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1981 General Conference*
@@ -69,4 +67,3 @@ Brothers and sisters, why don’t we pay more humble attention to this servant o
 
 
 
-#Missionary_Work #Testimony

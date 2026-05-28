@@ -1,7 +1,5 @@
 # “A Teacher Come from God”
 
-Gordon B. Hinckley
-
 By Elder Jeffrey R. Holland - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1998 General Conference*
@@ -113,7 +111,3 @@ From all of us who have been taught to all of you who teach—we say thank you, 
 
 [^25]: [[John 20.16|John 20:16]]; see footnote *a* to Greek.
 
-
-
-
-#Church_Callings #Fellowshipping #Holy_Ghost #Home #Jesus_Christ #Leadership #Spirituality #Teaching #Youth

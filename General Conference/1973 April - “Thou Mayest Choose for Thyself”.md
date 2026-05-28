@@ -1,7 +1,5 @@
 # “Thou Mayest Choose for Thyself”
 
-Harold B. Lee
-
 By President N. Eldon Tanner - *First Counselor in the First Presidency*
 
 *Given in the April session of the 1973 General Conference*
@@ -115,4 +113,3 @@ May we choose wisely, I humbly pray in the name of Jesus Christ. Amen.
 
 
 
-#Agency #Media #Morality #Obedience

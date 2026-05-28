@@ -1,7 +1,5 @@
 # Commitment to Serve
 
-Spencer W. Kimball
-
 By Elder J. Thomas Fyans - *Assistant to the Council of the Twelve*
 
 *Given in the April session of the 1974 General Conference*
@@ -37,4 +35,3 @@ President Kimball and your inspired counselors, President Benson and the special
 
 
 
-#Scriptures #Testimony

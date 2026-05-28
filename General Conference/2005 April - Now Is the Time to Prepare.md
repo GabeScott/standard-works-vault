@@ -1,7 +1,5 @@
 # Now Is the Time to Prepare
 
-Gordon B. Hinckley
-
 By Elder Russell M. Nelson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2005 General Conference*
@@ -143,7 +141,3 @@ Now is the time to prepare. Then, when death comes, we can move toward the celes
 
 [^35]: See [[2 Nephi 31.20|2 Nephi 31:20]]; [[Mosiah 16.7|Mosiah 16:7–8]][[Mosiah 16.8|]]; [[Moroni 7.38|Moroni 7:38–48]][[Moroni 7.39|]][[Moroni 7.40|]][[Moroni 7.41|]][[Moroni 7.42|]][[Moroni 7.43|]][[Moroni 7.44|]][[Moroni 7.45|]][[Moroni 7.46|]][[Moroni 7.47|]][[Moroni 7.48|]].
 
-
-
-
-#Agency #Death #Obedience #Preparation #Repentance

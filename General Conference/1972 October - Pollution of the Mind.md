@@ -1,7 +1,5 @@
 # Pollution of the Mind
 
-N. Eldon Tanner
-
 By Elder Robert L. Simpson - *Assistant to the Council of the Twelve*
 
 *Given in the October session of the 1972 General Conference*
@@ -73,4 +71,3 @@ May we accept this timely counsel. Your personal welfare and the eternal future 
 
 
 
-#Media

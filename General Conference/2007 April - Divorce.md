@@ -1,7 +1,5 @@
 # Divorce
 
-Thomas S. Monson
-
 By Elder Dallin H. Oaks - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2007 General Conference*
@@ -109,7 +107,3 @@ From personal experience, I testify to the sweetness of the marriage and family 
 
 [^8]: “The Family: A Proclamation to the World,” *Liahona,* Oct. 2004, 49; *Ensign,* Nov. 1995, 102.
 
-
-
-
-#Divorce #Healing #Marriage

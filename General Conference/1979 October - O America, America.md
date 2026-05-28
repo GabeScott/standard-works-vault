@@ -1,7 +1,5 @@
 # O America, America
 
-Spencer W. Kimball
-
 By Elder Mark E. Petersen - *Of the Council of the Twelve*
 
 *Given in the October session of the 1979 General Conference*
@@ -145,4 +143,3 @@ O Jerusalem! O America! O England, and all other countries! The Lord says to all
 
 
 
-#Honesty #Obedience #Repentance

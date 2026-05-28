@@ -1,7 +1,5 @@
 # The Role of Fathers
 
-Harold B. Lee
-
 By President A. Theodore Tuttle - *Of the First Council of the Seventy*
 
 *Given in the October session of the 1973 General Conference*
@@ -71,4 +69,3 @@ I know that God lives. I know that Jesus is the Christ. I know that he guides th
 
 
 
-#Discipline #Fatherhood #Priesthood

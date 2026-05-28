@@ -1,7 +1,5 @@
 # Courage to Hearken
 
-James E. Faust
-
 By Bishop H. David Burton - *First Counselor in the Presiding Bishopric*
 
 *Given in the April session of the 1994 General Conference*
@@ -99,4 +97,3 @@ May we all “get hold of \[ourselves\],” as Edgar Guest so beautifully sugges
 
 
 
-#Adversity #Courage #Joseph_Smith #Media #Music #Pride #Satan

@@ -1,7 +1,5 @@
 # Rest unto Your Souls
 
-Thomas S. Monson
-
 By Elder Per G. Malm - *Of the Seventy*
 
 *Given in the October session of the 2010 General Conference*
@@ -43,4 +41,3 @@ Let us instead focus on those things that will sustain a lasting peace of mind a
 
 
 
-#Peace

@@ -1,7 +1,5 @@
 # Our Earthly Stewardship
 
-Dallin H. Oaks
-
 By Bishop Gérald Caussé - *Presiding Bishop*
 
 *Given in the October session of the 2022 General Conference*
@@ -99,7 +97,3 @@ At the end of this mortal existence, the Master will ask us to give an account f
 
 [^15]: [[Matthew 25.21|Matthew 25:21]].
 
-
-
-
-#Creation #Environment #Love #Parenthood #Plan_Of_Salvation

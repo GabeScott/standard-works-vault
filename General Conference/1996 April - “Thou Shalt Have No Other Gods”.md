@@ -1,7 +1,5 @@
 # “Thou Shalt Have No Other Gods”
 
-James E. Faust
-
 By Elder Russell M. Nelson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1996 General Conference*
@@ -157,7 +155,3 @@ Brothers and sisters, race, nationality, occupation, or other interests need not
 
 [^32]: [[D&C 93.1|D&C 93:1]].
 
-
-
-
-#Agency #Church_Callings #Church_Leaders #Commandments #Covenants #Faith #Family #Honesty #Jesus_Christ #Kingdom_Of_God #Morality #Neighbors #Prayer #Priorities #Service #Truth

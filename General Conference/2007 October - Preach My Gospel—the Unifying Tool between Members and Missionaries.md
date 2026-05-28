@@ -1,7 +1,5 @@
 # Preach My Gospel—the Unifying Tool between Members and Missionaries
 
-Gordon B. Hinckley
-
 By Elder Erich W. Kopischke - *Of the Seventy*
 
 *Given in the October session of the 2007 General Conference*
@@ -69,4 +67,3 @@ As members of His Church, we are expected to be a part of this glorious gatherin
 
 
 
-#Family #Missionary_Work

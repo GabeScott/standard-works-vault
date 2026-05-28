@@ -1,7 +1,5 @@
 # Altar, Tent, Well
 
-N. Eldon Tanner
-
 By President A. Theodore Tuttle - *Of the First Council of the Seventy*
 
 *Given in the October session of the 1972 General Conference*
@@ -95,4 +93,3 @@ Our Heavenly Father, wilt thou help us thy children to see eternity in these thi
 
 
 
-#Home #Work #Worship

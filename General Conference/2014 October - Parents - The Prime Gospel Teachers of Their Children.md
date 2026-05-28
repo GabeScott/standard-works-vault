@@ -1,7 +1,5 @@
 # Parents: The Prime Gospel Teachers of Their Children
 
-Thomas S. Monson
-
 By Tad R. Callister - *Sunday School General President*
 
 *Given in the October session of the 2014 General Conference*
@@ -53,7 +51,3 @@ As parents, we can proceed with the assurance God will never leave us alone. God
 
 [^1]: See Ben Carson with Cecil Murphey, *Gifted Hands: The Ben Carson Story* (1990).
 
-
-
-
-#Education #Family #Home #Parents #Prayer #Teaching

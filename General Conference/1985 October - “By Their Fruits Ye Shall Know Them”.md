@@ -1,7 +1,5 @@
 # “By Their Fruits Ye Shall Know Them”
 
-Gordon B. Hinckley
-
 By Elder Dean L. Larsen - *Of the Presidency of the First Quorum of the Seventy*
 
 *Given in the October session of the 1985 General Conference*
@@ -95,4 +93,3 @@ In the name of Jesus Christ, amen.
 
 
 
-#Criticism #Example #Jesus_Christ

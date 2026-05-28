@@ -1,7 +1,5 @@
 # “A Meaningful Celebration”
 
-Ezra Taft Benson
-
 By Elder L. Tom Perry - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1987 General Conference*
@@ -105,4 +103,3 @@ This is the Lord’s work in which we are engaged. I bear witness of that. He li
 
 
 
-#Holidays #Home

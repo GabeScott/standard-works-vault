@@ -1,7 +1,5 @@
 # Thou Shalt Love Thy Wife with All Thy Heart
 
-Harold B. Lee
-
 By Elder Henry D. Taylor - *Assistant to the Council of the Twelve*
 
 *Given in the October session of the 1973 General Conference*
@@ -49,4 +47,3 @@ It is my sincere and humble prayer that we may all live in such a way that we wi
 
 
 
-#Love #Marriage

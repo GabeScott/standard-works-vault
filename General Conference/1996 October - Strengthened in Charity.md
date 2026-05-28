@@ -1,7 +1,5 @@
 # Strengthened in Charity
 
-Gordon B. Hinckley
-
 By Elaine L. Jack - *Relief Society General President*
 
 *Given in the October session of the 1996 General Conference*
@@ -83,4 +81,3 @@ I bear you my testimony of the truths spoken here tonight and the significance o
 
 
 
-#Charity #Jesus_Christ #Love #Relief_Society #Service #Women

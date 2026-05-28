@@ -1,7 +1,5 @@
 # A Foundation Whereon Men Cannot Fall
 
-Wilford G. Edling
-
 By Elder David B. Haight - *Assistant to the Council of the Twelve*
 
 *Given in the April session of the 1972 General Conference*
@@ -79,4 +77,3 @@ May this be so with your family, I humbly pray in the name of Jesus Christ. Amen
 
 
 
-#Family #Family_Home_Evening

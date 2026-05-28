@@ -1,7 +1,5 @@
 # New Emphasis on Church Councils
 
-Spencer W. Kimball
-
 By President N. Eldon Tanner - *First Counselor in the First Presidency*
 
 *Given in the April session of the 1979 General Conference*
@@ -43,4 +41,3 @@ May the Lord richly bless you in carrying forth this great work of establishing 
 
 
 
-#Councils

@@ -1,7 +1,5 @@
 # Take Time for Your Children
 
-Gordon B. Hinckley
-
 By Elder Ben B. Banks - *Of the Seventy*
 
 *Given in the October session of the 1993 General Conference*
@@ -51,4 +49,3 @@ That all who are parents might be successful in convincing their children that t
 
 
 
-#Children #Family #Parenthood #Teaching

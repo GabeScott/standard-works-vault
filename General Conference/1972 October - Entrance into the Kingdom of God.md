@@ -1,7 +1,5 @@
 # Entrance into the Kingdom of God
 
-N. Eldon Tanner
-
 By Elder Bernard P. Brockbank - *Assistant to the Council of the Twelve*
 
 *Given in the October session of the 1972 General Conference*
@@ -119,4 +117,3 @@ In the name of Jesus Christ. Amen.
 
 
 
-#Obedience #Plan_Of_Salvation #Repentance

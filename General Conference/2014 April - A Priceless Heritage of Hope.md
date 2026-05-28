@@ -1,7 +1,5 @@
 # A Priceless Heritage of Hope
 
-Thomas S. Monson
-
 By President Henry B. Eyring - *First Counselor in the First Presidency*
 
 *Given in the April session of the 2014 General Conference*
@@ -113,7 +111,3 @@ We are all children of a living God. Jesus of Nazareth is His Beloved Son and ou
 
 [^3]: [[3 Nephi 10.5|3 Nephi 10:5]].
 
-
-
-
-#Covenants #Hope

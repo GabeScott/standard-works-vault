@@ -1,7 +1,5 @@
 # The Power of Spiritual Momentum
 
-Russell M. Nelson
-
 By President Russell M. Nelson - *President of The Church of Jesus Christ of Latter-day Saints*
 
 *Given in the April session of the 2022 General Conference*
@@ -139,7 +137,3 @@ God lives! Jesus is the Christ! He lives! He loves us and will help us. Of this 
 
 [^25]: [[Matthew 6.14|Matthew 6:14]].
 
-
-
-
-#Adversity #Covenants #Forgiveness #Jesus_Christ #Miracles #Peace #Repentance #Satan #Spirituality

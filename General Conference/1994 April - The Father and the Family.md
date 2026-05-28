@@ -1,7 +1,5 @@
 # The Father and the Family
 
-James E. Faust
-
 By Elder Boyd K. Packer - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1994 General Conference*
@@ -141,7 +139,3 @@ Across the world, those who now come by the tens of thousands will inevitably co
 
 [^14]: [[Psalms 127.3|Ps. 127:3]].
 
-
-
-
-#Abortion #Abuse #Agency #Curriculum #Divorce #Family #Family_Home_Evening #Freedom #Home #Joy #Marriage #Morality #Parenthood #Satan #Scriptures #Teaching

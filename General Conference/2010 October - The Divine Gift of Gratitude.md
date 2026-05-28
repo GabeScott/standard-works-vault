@@ -1,7 +1,5 @@
 # The Divine Gift of Gratitude
 
-Thomas S. Monson
-
 By President Thomas S. Monson - *President of the Church*
 
 *Given in the October session of the 2010 General Conference*
@@ -177,7 +175,3 @@ My sincere, heartfelt prayer is that we may in our individual lives reflect that
 
 [^19]: [[John 14.15|John 14:15]].
 
-
-
-
-#Gratitude

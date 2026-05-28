@@ -1,7 +1,5 @@
 # “Hold Up Your Light”
 
-Gordon B. Hinckley
-
 By Elder J. Richard Clarke - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1985 General Conference*
@@ -83,4 +81,3 @@ Let us stand tall, brothers and sisters, and be not ashamed to take upon us the 
 
 
 
-#Example

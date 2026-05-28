@@ -1,7 +1,5 @@
 # A Silver Lining
 
-Spencer W. Kimball
-
 By President Marion G. Romney - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 1977 General Conference*
@@ -131,4 +129,3 @@ Now, my brothers and sisters, I bear you my witness that I know these things are
 
 
 
-#Adversity #Prophecy

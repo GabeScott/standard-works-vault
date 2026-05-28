@@ -1,7 +1,5 @@
 # Examples from the Life of a Prophet
 
-Gordon B. Hinckley
-
 By Elder Robert D. Hales - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1981 General Conference*
@@ -71,4 +69,3 @@ I bear you my testimony that a prophet leads this Church today by revelation. On
 
 
 
-#Spencer_W._Kimball

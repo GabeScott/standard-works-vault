@@ -1,7 +1,5 @@
 # Become as a Little Child
 
-Thomas S. Monson
-
 By Jean A. Stevens - *First Counselor in the Primary General Presidency*
 
 *Given in the April session of the 2011 General Conference*
@@ -71,4 +69,3 @@ I bear my humble but certain testimony that Jesus is the Christ. He is the one p
 
 
 
-#Children #Family #Humility #Meekness #Obedience

@@ -1,7 +1,5 @@
 # Address Given by President Marion G. Romney at the Welfare Services Meeting Saturday, April 6, 1974
 
-Spencer W. Kimball
-
 By President Marion G. Romney - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 1974 General Conference*
@@ -121,4 +119,3 @@ God bless you, I pray in Jesus’ name. Amen.
 
 
 
-#Welfare

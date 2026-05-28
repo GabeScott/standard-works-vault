@@ -1,7 +1,5 @@
 # Celebrating Covenants
 
-Thomas S. Monson
-
 By Bonnie D. Parkin - *Second Counselor in the Young Women General Presidency*
 
 *Given in the April session of the 1995 General Conference*
@@ -51,4 +49,3 @@ If you remember only one thing I say today, remember to *hold on to your covenan
 
 
 
-#Atonement #Covenants #Ordinances #Repentance #Sacrament #Scripture_Study #Young_Women

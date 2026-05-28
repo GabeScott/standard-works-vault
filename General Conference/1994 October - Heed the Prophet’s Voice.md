@@ -1,7 +1,5 @@
 # Heed the Prophet’s Voice
 
-Gordon B. Hinckley
-
 By Elder L. Tom Perry - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1994 General Conference*
@@ -75,4 +73,3 @@ May God bless us that we may follow him who has been called to be our prophet, s
 
 
 
-#Church_Leaders #Church_Organization #Howard_W._Hunter #Prophets

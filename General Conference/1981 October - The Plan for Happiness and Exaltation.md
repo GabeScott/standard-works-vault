@@ -1,7 +1,5 @@
 # The Plan for Happiness and Exaltation
 
-Gordon B. Hinckley
-
 By Elder Richard G. Scott - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1981 General Conference*
@@ -45,4 +43,3 @@ With all the love of my heart, I extend an invitation to all to obtain a fulness
 
 
 
-#Adversity #Joy

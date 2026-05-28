@@ -1,7 +1,5 @@
 # “I Have a Work for Thee”
 
-Sharon Eubank
-
 By Elder John C. Pingree Jr. - *Of the Seventy*
 
 *Given in the October session of the 2017 General Conference*
@@ -125,7 +123,3 @@ As we follow Christ’s example and yield ourselves to God, I testify that He wi
 
 [^10]: Mother Teresa, in Edward W. Desmond, “Interview with Mother Teresa: A Pencil in the Hand of God,” *Time,* Dec. 4, 1989, time.com.
 
-
-
-
-#Adversity #Service #Talents #Work

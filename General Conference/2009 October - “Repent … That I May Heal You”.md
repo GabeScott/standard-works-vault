@@ -1,7 +1,5 @@
 # “Repent … That I May Heal You”
 
-Thomas S. Monson
-
 By Elder Neil L. Andersen - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2009 General Conference*
@@ -147,7 +145,3 @@ He loves us. We are members of His Church. He invites each of us to repent, turn
 
 [^31]: [[Alma 34.33|Alma 34:33]].
 
-
-
-
-#Atonement #Forgiveness #Repentance

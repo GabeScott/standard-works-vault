@@ -1,7 +1,5 @@
 # “I Am He”
 
-Henry B. Eyring
-
 By President Jeffrey R. Holland - *Acting President of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2024 General Conference*
@@ -95,7 +93,3 @@ Brothers and sisters, I testify that The Church of Jesus Christ of Latter-day Sa
 
 [^21]: [[John 18.5|John 18:5]].
 
-
-
-
-#Jesus_Christ #Love #Obedience

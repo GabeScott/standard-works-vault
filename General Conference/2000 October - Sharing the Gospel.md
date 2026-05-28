@@ -1,7 +1,5 @@
 # Sharing the Gospel
 
-Gordon B. Hinckley
-
 By Elder Robert C. Oaks - *Of the Seventy*
 
 *Given in the October session of the 2000 General Conference*
@@ -77,7 +75,3 @@ I testify that God, our Eternal Father, and His Only Begotten Son, Jesus Christ,
 
 [^4]: In Conference Report, Oct. 1988, [[1988 October - Flooding the Earth with the Book of Mormon.md|4]]; or *Ensign,* Nov. 1988, 5.
 
-
-
-
-#Activation #Couple_Missionaries #Friendship #Missionary_Work #Priesthood #Restoration #Service #Spirituality

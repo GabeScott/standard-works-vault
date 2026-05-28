@@ -1,7 +1,5 @@
 # Converted to His Gospel through His Church
 
-Thomas S. Monson
-
 By Elder Donald L. Hallstrom - *Of the Presidency of the Seventy*
 
 *Given in the April session of the 2012 General Conference*
@@ -56,4 +54,3 @@ The Lord wants the members of His Church to be fully converted to His gospel. Th
 
 
 
-#Conversion #Spirituality #Worship

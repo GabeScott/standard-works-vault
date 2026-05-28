@@ -1,7 +1,5 @@
 # Benediction
 
-Gordon B. Hinckley
-
 By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the April session of the 2003 General Conference*
@@ -33,4 +31,3 @@ For the blessings of heaven to rest upon you I humbly pray as I express to you m
 
 
 
-#Faith #Family #Obedience #Peace #Prayer

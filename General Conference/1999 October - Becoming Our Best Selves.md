@@ -1,7 +1,5 @@
 # Becoming Our Best Selves
 
-Gordon B. Hinckley
-
 By President Thomas S. Monson - *First Counselor in the First Presidency*
 
 *Given in the October session of the 1999 General Conference*
@@ -121,7 +119,3 @@ May each of us qualify to receive them, I pray, in the name of Jesus Christ, ame
 
 [^9]: [[Proverbs 3.5|Prov. 3:5–6]][[Proverbs 3.6|]].
 
-
-
-
-#Faith #Family #Fatherhood #Home #Jesus_Christ #Obedience #Prayer #Sabbath #Service

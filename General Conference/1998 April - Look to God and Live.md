@@ -1,7 +1,5 @@
 # Look to God and Live
 
-Gordon B. Hinckley
-
 By President Thomas S. Monson - *First Counselor in the First Presidency*
 
 *Given in the April session of the 1998 General Conference*
@@ -226,7 +224,3 @@ That we may shoulder our sorrows, bear our burdens, and face our fears—as did 
 
 [^22]: [[Philippians 4.7|Philip. 4:7]].
 
-
-
-
-#Adversity #Atonement #Holy_Ghost #Jesus_Christ #Patience #Resurrection

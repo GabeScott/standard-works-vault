@@ -1,7 +1,5 @@
 # Blessed Are the Merciful
 
-Thomas S. Monson
-
 By President Gordon B. Hinckley - *First Counselor in the First Presidency*
 
 *Given in the April session of the 1990 General Conference*
@@ -135,4 +133,3 @@ Of these things I bear witness as I testify that God our Eternal Father lives, t
 
 
 
-#Family #Kindness #Love #Tolerance

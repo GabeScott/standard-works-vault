@@ -1,7 +1,5 @@
 # The Role of the Stake Bishops Council in Welfare Services
 
-Spencer W. Kimball
-
 By Elder L. Tom Perry - *Of the Council of the Twelve*
 
 *Given in the April session of the 1977 General Conference*
@@ -73,4 +71,3 @@ To all the Bishop Perrys there are in this world, I ask that the Lord’s choice
 
 
 
-#Councils #Welfare

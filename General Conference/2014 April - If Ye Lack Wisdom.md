@@ -1,7 +1,5 @@
 # If Ye Lack Wisdom
 
-Thomas S. Monson
-
 By Elder Marcos A. Aidukaitis - *Of the Seventy*
 
 *Given in the April session of the 2014 General Conference*
@@ -131,7 +129,3 @@ I bear my testimony that this is the true Church of Jesus Christ. I have seen it
 
 [^16]: [[James 1.5|James 1:5]].
 
-
-
-
-#Faith #Joseph_Smith #Technology #Testimony #Truth

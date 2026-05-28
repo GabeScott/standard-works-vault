@@ -1,7 +1,5 @@
 # But If Not
 
-Gordon B. Hinckley
-
 By Elder Lance B. Wickman - *Of the Seventy*
 
 *Given in the October session of the 2002 General Conference*
@@ -55,4 +53,3 @@ In the name of Jesus Christ, amen.
 
 
 
-#Death #Faith #Humility #Love #Parenthood #Trust

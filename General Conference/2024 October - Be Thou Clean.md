@@ -1,7 +1,5 @@
 # Be Thou Clean
 
-Henry B. Eyring
-
 By Elder D. Martin Goury - *Of the Seventy*
 
 *Given in the October session of the 2024 General Conference*
@@ -59,7 +57,3 @@ I testify of a kind and loving Heavenly Father. Jesus Christ is the Savior and R
 
 [^6]: The name *Jones* is not the name of the family visited. I have used a random name for their privacy. I have received written approval from President Chesnut to use his name as well as the name of his stake.
 
-
-
-
-#Holy_Ghost #Promptings #Repentance

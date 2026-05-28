@@ -1,7 +1,5 @@
 # O That Cunning Plan of the Evil One
 
-Thomas S. Monson
-
 By Elder M. Russell Ballard - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2010 General Conference*
@@ -79,7 +77,3 @@ I have seen the marvelous blessing of recovery that can set one free from the ch
 
 [^4]: See National Institute on Drug Abuse, “The Neurobiology of Drug Addiction,” section IV, no. 30, drugabuse.gov/pubs/teaching/teaching2/teaching5.html; see also drugabuse.gov/funding/budget08.html.
 
-
-
-
-#Addiction #Atonement #Prayer #Word_Of_Wisdom

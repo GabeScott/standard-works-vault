@@ -1,7 +1,5 @@
 # In the Arms of His Love
 
-Gordon B. Hinckley
-
 By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the October session of the 2006 General Conference*
@@ -105,4 +103,3 @@ May the Lord bless each of you with these marvelous qualities that come of activ
 
 
 
-#Education #Faith #Jesus_Christ #Love #Relief_Society #Self-Reliance #Tithing

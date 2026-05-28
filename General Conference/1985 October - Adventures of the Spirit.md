@@ -1,7 +1,5 @@
 # Adventures of the Spirit
 
-Gordon B. Hinckley
-
 By Elder Robert E. Wells - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1985 General Conference*
@@ -95,4 +93,3 @@ As a witness, I testify of it in the name of Jesus Christ, amen.
 
 
 
-#Missionary_Work

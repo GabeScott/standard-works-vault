@@ -1,7 +1,5 @@
 # Our Responsibility to Take the Gospel to the Ends of the Earth
 
-Gordon B. Hinckley
-
 By Elder Jack H Goaslind, Jr. - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1983 General Conference*
@@ -75,4 +73,3 @@ I conclude with the Prophet Joseph Smith’s question: “Brethren, shall we not
 
 
 
-#Missionary_Work

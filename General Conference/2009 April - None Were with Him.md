@@ -1,7 +1,5 @@
 # None Were with Him
 
-Thomas S. Monson
-
 By Elder Jeffrey R. Holland - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2009 General Conference*
@@ -87,7 +85,3 @@ My other plea at Easter time is that these scenes of Christ’s lonely sacrifice
 
 [^21]: [[Mosiah 18.9|Mosiah 18:9]].
 
-
-
-
-#Atonement #Jesus_Christ #Loneliness

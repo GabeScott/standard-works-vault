@@ -1,7 +1,5 @@
 # Today
 
-Dieter F. Uchtdorf
-
 By Elder Lance B. Wickman - *Of the Seventy*
 
 *Given in the April session of the 2008 General Conference*
@@ -47,4 +45,3 @@ My pilgrimage back in time completed, I looked around upon those peaceful fields
 
 
 
-#Atonement #Mercy #Repentance

@@ -1,7 +1,5 @@
 # Finding Joy in Life
 
-Ezra Taft Benson
-
 By Barbara W. Winder - *Relief Society General President*
 
 *Given in the October session of the 1987 General Conference*
@@ -113,4 +111,3 @@ May we take joy in our faith, even our knowledge, that Jesus is the Christ, the 
 
 
 
-#Atonement #Joy

@@ -1,7 +1,5 @@
 # Know the Shepherd
 
-Spencer W. Kimball
-
 By Elder Robert E. Wells - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1980 General Conference*
@@ -67,4 +65,3 @@ We should each ask, “Am I loving enough, am I studying enough, am I serving en
 
 
 
-#Jesus_Christ #Testimony

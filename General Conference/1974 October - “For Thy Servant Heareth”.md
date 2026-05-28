@@ -1,7 +1,5 @@
 # “For Thy Servant Heareth”
 
-Spencer W. Kimball
-
 By President S. Dilworth Young - *Of the First Council of the Seventy*
 
 *Given in the October session of the 1974 General Conference*
@@ -63,4 +61,3 @@ The power and the authority of this kingdom on earth rest upon President Spencer
 
 
 
-#Restoration #Youth

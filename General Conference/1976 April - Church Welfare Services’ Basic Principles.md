@@ -1,7 +1,5 @@
 # Church Welfare Services’ Basic Principles
 
-Spencer W. Kimball
-
 By President Marion G. Romney - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 1976 General Conference*
@@ -209,4 +207,3 @@ This is my witness, which I bear to you in the name of Jesus Christ. Amen.
 
 
 
-#Love #Welfare #Work

@@ -1,7 +1,5 @@
 # Knowing God
 
-Wilford G. Edling
-
 By Elder Bernard P. Brockbank - *Assistant to the Council of the Twelve*
 
 *Given in the April session of the 1972 General Conference*
@@ -129,4 +127,3 @@ I say this in the name of Jesus Christ. Amen.
 
 
 
-#God_The_Father #Jesus_Christ #Parents

@@ -1,7 +1,5 @@
 # Try, Try, Try
 
-Russell M. Nelson
-
 By President Henry B. Eyring - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 2018 General Conference*
@@ -115,7 +113,3 @@ I bear you my witness that the Savior knows and loves you. He knows your name as
 
 [^11]: See “I’m Trying to Be like Jesus,” *Children’s Songbook,* 78–79.
 
-
-
-
-#Adversity #Charity #Jesus_Christ #Love #Service

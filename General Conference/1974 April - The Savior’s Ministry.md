@@ -1,7 +1,5 @@
 # The Savior’s Ministry
 
-Spencer W. Kimball
-
 By Elder Delbert L. Stapley - *Of the Council of the Twelve*
 
 *Given in the April session of the 1974 General Conference*
@@ -106,4 +104,3 @@ As one who has the responsibility of witnessing the reality of Christ in God’s
 
 
 
-#Jesus_Christ

@@ -1,7 +1,5 @@
 # The Atonement: All for All
 
-Gordon B. Hinckley
-
 By Elder Bruce C. Hafen - *Of the Seventy*
 
 *Given in the April session of the 2004 General Conference*
@@ -56,7 +54,7 @@ A wife who encouraged her husband despite his years of weakness, until the seeds
 
 A husband whose wife suffered for years from a disabling emotional disorder, but to him it was always “our little challenge”—never just “her illness.” In the realm of their marriage, he was afflicted in her afflictions,[^25] just as Christ in His infinite realm was afflicted in our afflictions.[^26]
 
-The people in [[3 Nephi 17.1|3 Nephi 17]] had survived destruction, doubt, and darkness just to get to the temple with Jesus. After listening to Him for hours in wonder, they grew too weary to comprehend Him. As He prepared to leave, they tearfully looked at Him with such total desire that He stayed and blessed their afflicted ones and their children. They didn’t even understand Him, but they wanted to be *with Him* more than they wanted any other thing. So He stayed. Their *almost* was enough.
+The people in [[3 Nephi 17.1|3 Nephi 17]][[3 Nephi 17.2|]][[3 Nephi 17.3|]][[3 Nephi 17.4|]][[3 Nephi 17.5|]][[3 Nephi 17.6|]][[3 Nephi 17.7|]][[3 Nephi 17.8|]][[3 Nephi 17.9|]][[3 Nephi 17.10|]][[3 Nephi 17.11|]][[3 Nephi 17.12|]][[3 Nephi 17.13|]][[3 Nephi 17.14|]][[3 Nephi 17.15|]][[3 Nephi 17.16|]][[3 Nephi 17.17|]][[3 Nephi 17.18|]][[3 Nephi 17.19|]][[3 Nephi 17.20|]][[3 Nephi 17.21|]][[3 Nephi 17.22|]][[3 Nephi 17.23|]][[3 Nephi 17.24|]][[3 Nephi 17.25|]] had survived destruction, doubt, and darkness just to get to the temple with Jesus. After listening to Him for hours in wonder, they grew too weary to comprehend Him. As He prepared to leave, they tearfully looked at Him with such total desire that He stayed and blessed their afflicted ones and their children. They didn’t even understand Him, but they wanted to be *with Him* more than they wanted any other thing. So He stayed. Their *almost* was enough.
 
 *Almost* is especially enough when our own sacrifices somehow echo the Savior’s sacrifice, however imperfect we are. We cannot really feel charity—Christ’s love for others—without at least tasting His suffering for others, because the love and the suffering are but two sides of a single reality. When we really are afflicted in the afflictions of other people, we may enter “the fellowship of his sufferings”[^27] enough to become joint-heirs with Him.
 
@@ -121,7 +119,3 @@ May we not shrink when we discover, paradoxically, how dear a price we must pay 
 
 [^28]: [[Moroni 7.48|Moroni 7:48]]; [[1 John 3.2|1 John 3:2]]; emphasis added.
 
-
-
-
-#Adversity #Atonement #Repentance #Sacrifice

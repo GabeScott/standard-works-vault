@@ -1,7 +1,5 @@
 # Hyrum Smith: “Firm As the Pillars of Heaven”
 
-Gordon B. Hinckley
-
 By Elder M. Russell Ballard - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1995 General Conference*
@@ -97,7 +95,3 @@ Surely Joseph was inspired when he wrote of his brother Hyrum, “Thy name shall
 
 [^15]: [[D&C 124.96|D&C 124:96]].
 
-
-
-
-#Blessings #Church_History #Faith #Holy_Ghost #Joseph_Smith

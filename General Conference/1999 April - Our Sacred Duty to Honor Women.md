@@ -1,7 +1,5 @@
 # Our Sacred Duty to Honor Women
 
-Gordon B. Hinckley
-
 By Elder Russell M. Nelson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1999 General Conference*
@@ -103,7 +101,3 @@ May God bless us to honor each virtuous woman, I pray in the name of Jesus Chris
 
 [^12]: See [[Mosiah 4.14|Mosiah 4:14–15]][[Mosiah 4.15|]]; [[D&C 68.25|D&C 68:25–31]][[D&C 68.26|]][[D&C 68.27|]][[D&C 68.28|]][[D&C 68.29|]][[D&C 68.30|]][[D&C 68.31|]].
 
-
-
-
-#Children #Family #Fatherhood #Home #Joy #Marriage #Media #Motherhood #Parenthood #Plan_Of_Salvation #Priesthood #Respect #Satan #Women

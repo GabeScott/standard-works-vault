@@ -1,7 +1,5 @@
 # The Atonement
 
-Thomas S. Monson
-
 By President Boyd K. Packer - *President of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2012 General Conference*
@@ -166,7 +164,3 @@ In the name of Jesus Christ, amen.
 
 [^13]: “Does the Journey Seem Long?” *Hymns,* no. 127.
 
-
-
-
-#Atonement #Jesus_Christ #Repentance

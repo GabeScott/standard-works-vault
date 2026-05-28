@@ -1,7 +1,5 @@
 # I Testify
 
-Ezra Taft Benson
-
 By President Ezra Taft Benson - *President of the Church*
 
 *Given in the October session of the 1988 General Conference*
@@ -57,4 +55,3 @@ To all these things I humbly testify and bear my solemn witness that they are tr
 
 
 
-#Jesus_Christ #Plan_Of_Salvation

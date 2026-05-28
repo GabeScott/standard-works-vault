@@ -1,7 +1,5 @@
 # Put Your Trust in the Lord
 
-Thomas S. Monson
-
 By Elder M. Russell Ballard - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2013 General Conference*
@@ -89,4 +87,3 @@ From my own experience I can testify to you that the Lord will hear your prayers
 
 
 
-#Faith #Love #Miracles #Missionary_Work

@@ -1,7 +1,5 @@
 # Ministering
 
-Henry B. Eyring
-
 By President Russell M. Nelson - *President of the Church*
 
 *Given in the April session of the 2018 General Conference*

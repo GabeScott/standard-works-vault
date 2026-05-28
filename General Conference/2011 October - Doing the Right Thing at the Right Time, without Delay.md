@@ -1,7 +1,5 @@
 # Doing the Right Thing at the Right Time, without Delay
 
-Richard G. Scott
-
 By Elder José L. Alonso - *Of the Seventy*
 
 *Given in the October session of the 2011 General Conference*
@@ -59,7 +57,3 @@ I testify that God lives and is our Father. Jesus Christ lives and has given His
 
 [^6]: Thomas S. Monson, in Conference Report, Apr. 2001, [[2001 April - To the Rescue.md|64]]; or *Ensign,* May 2001, 49.
 
-
-
-
-#Activation #Service

@@ -1,7 +1,5 @@
 # “Except a Man Be Born Again”
 
-Gordon B. Hinckley
-
 By President Marion G. Romney - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 1981 General Conference*
@@ -75,4 +73,3 @@ That you may each receive that knowledge of God the Eternal Father and Jesus Chr
 
 
 
-#Spirituality #Testimony

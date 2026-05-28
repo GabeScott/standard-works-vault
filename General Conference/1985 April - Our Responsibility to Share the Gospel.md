@@ -1,7 +1,5 @@
 # Our Responsibility to Share the Gospel
 
-Gordon B. Hinckley
-
 By President Ezra Taft Benson - *President of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1985 General Conference*
@@ -107,4 +105,3 @@ God bless us all as members of His Church to share the gospel with others, in th
 
 
 
-#Missionary_Work

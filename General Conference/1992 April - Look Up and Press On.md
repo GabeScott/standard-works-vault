@@ -1,7 +1,5 @@
 # Look Up and Press On
 
-Thomas S. Monson
-
 By Elaine L. Jack - *Relief Society General President*
 
 *Given in the April session of the 1992 General Conference*
@@ -55,4 +53,3 @@ In the name of Jesus Christ, amen.
 
 
 
-#Family #Perspective #Spirituality

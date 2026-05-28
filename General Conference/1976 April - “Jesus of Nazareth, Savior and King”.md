@@ -1,7 +1,5 @@
 # “Jesus of Nazareth, Savior and King”
 
-Spencer W. Kimball
-
 By Elder Neal A. Maxwell - *Assistant to the Council of the Twelve*
 
 *Given in the April session of the 1976 General Conference*
@@ -59,4 +57,3 @@ Last of all, I witness that he lives—with all that those simple words imply. I
 
 
 
-#Atonement #Example #Jesus_Christ #Resurrection #Testimony

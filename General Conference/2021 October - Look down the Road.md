@@ -1,7 +1,5 @@
 # Look down the Road
 
-Russell M. Nelson
-
 By Elder Alvin F. Meredith III - *Of the Seventy*
 
 *Given in the October session of the 2021 General Conference*
@@ -93,7 +91,3 @@ I invite you to be intentional about “looking down the road” and increase yo
 
 [^14]: See [[D&C 18.13|Doctrine and Covenants 18:13]].
 
-
-
-
-#Adversity #Faith #Hope #Jesus_Christ #Repentance

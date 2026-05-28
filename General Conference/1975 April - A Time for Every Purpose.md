@@ -1,7 +1,5 @@
 # A Time for Every Purpose
 
-Spencer W. Kimball
-
 By Elder Paul H. Dunn - *Of the First Council of the Seventy*
 
 *Given in the April session of the 1975 General Conference*
@@ -71,4 +69,3 @@ And so it is that I feel about the youth of this great country and particularly 
 
 
 
-#Marriage #Missionary_Work #Preparation #Youth

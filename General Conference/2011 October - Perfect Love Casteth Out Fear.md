@@ -1,7 +1,5 @@
 # Perfect Love Casteth Out Fear
 
-Richard G. Scott
-
 By Elder L. Tom Perry - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2011 General Conference*
@@ -73,4 +71,3 @@ This is the time of expanding opportunities to share the gospel of Jesus Christ 
 
 
 
-#Example #Jesus_Christ #Missionary_Work #Temples

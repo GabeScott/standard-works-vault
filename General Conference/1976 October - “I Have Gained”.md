@@ -1,7 +1,5 @@
 # “I Have Gained”
 
-Spencer W. Kimball
-
 By Elder S. Dilworth Young - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1976 General Conference*
@@ -67,4 +65,3 @@ I pray that we all may satisfy them with our work from now on, in the name of th
 
 
 
-#Quorums_Of_Seventy #Service #Testimony

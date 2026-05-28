@@ -1,7 +1,5 @@
 # Finding Lasting Peace and Building Eternal Families
 
-Thomas S. Monson
-
 By Elder L. Tom Perry - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2014 General Conference*
@@ -97,4 +95,3 @@ It is the gospel of Jesus Christ that provides this foundation upon which we can
 
 
 
-#Family #Fatherhood #Jesus_Christ #Motherhood

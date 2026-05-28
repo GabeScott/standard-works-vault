@@ -1,7 +1,5 @@
 # The Contributions of the Prophet Joseph Smith
 
-Spencer W. Kimball
-
 By President N. Eldon Tanner - *First Counselor in the First Presidency*
 
 *Given in the October session of the 1979 General Conference*
@@ -121,4 +119,3 @@ May this testimony come to everyone who is seeking for the truth is my prayer, i
 
 
 
-#Joseph_Smith #Restoration

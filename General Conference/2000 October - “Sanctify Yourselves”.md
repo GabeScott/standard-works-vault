@@ -1,7 +1,5 @@
 # “Sanctify Yourselves”
 
-Gordon B. Hinckley
-
 By Elder Jeffrey R. Holland - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2000 General Conference*
@@ -79,7 +77,3 @@ In an even more serious kind of spiritual warfare, brethren, the day may come—
 
 [^9]: “The World Is Too Much with Us,” line 1.
 
-
-
-
-#Faith #Media #Morality #Prayer #Preparation #Priesthood #Priorities #Self-Control #Service #Worldliness

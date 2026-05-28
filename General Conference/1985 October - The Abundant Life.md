@@ -1,7 +1,5 @@
 # The Abundant Life
 
-Gordon B. Hinckley
-
 By Elder James E. Faust - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1985 General Conference*
@@ -69,4 +67,3 @@ I believe that few things in life deserve one’s complete confidence. I testify
 
 
 
-#Criticism

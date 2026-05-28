@@ -1,7 +1,5 @@
 # Even a Child Can Understand
 
-Thomas S. Monson
-
 By Elder Gérald Caussé - *Of the Seventy*
 
 *Given in the October session of the 2008 General Conference*
@@ -69,4 +67,3 @@ I pray that we will know how to open our hearts like a little child and take ple
 
 
 
-#Children #Education #Priorities #Scriptures

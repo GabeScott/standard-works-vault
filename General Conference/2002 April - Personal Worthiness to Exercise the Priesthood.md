@@ -1,7 +1,5 @@
 # Personal Worthiness to Exercise the Priesthood
 
-Gordon B. Hinckley
-
 By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the April session of the 2002 General Conference*
@@ -119,4 +117,3 @@ There is nothing else to compare with it in all this world. Safeguard it, cheris
 
 
 
-#Abuse #Kindness #Priesthood #Worthiness

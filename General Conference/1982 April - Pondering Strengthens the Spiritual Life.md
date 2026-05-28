@@ -1,7 +1,5 @@
 # Pondering Strengthens the Spiritual Life
 
-Spencer W. Kimball
-
 By Elder Joseph B. Wirthlin - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1982 General Conference*
@@ -81,4 +79,3 @@ I bear earnest and sincere testimony to the mighty transforming power of these n
 
 
 
-#Character #Education #Spirituality

@@ -1,7 +1,5 @@
 # Because of Your Steadiness
 
-Ezra Taft Benson
-
 By Bishop Henry B. Eyring - *First Counselor in the Presiding Bishopric*
 
 *Given in the April session of the 1988 General Conference*
@@ -69,4 +67,3 @@ I bear testimony that in time and in eternity God will bless our steadiness as w
 
 
 
-#Dedication #Home_Teaching

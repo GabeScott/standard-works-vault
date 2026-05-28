@@ -1,7 +1,5 @@
 # The Sustaining of Church Officers
 
-Gordon B. Hinckley
-
 By President Gordon B. Hinckley - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 1985 General Conference*

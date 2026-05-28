@@ -1,7 +1,5 @@
 # The Power of Jesus Christ in Our Lives Every Day
 
-David A. Bednar
-
 By Elder Joaquin E. Costa - *Of the Seventy*
 
 *Given in the October session of the 2023 General Conference*
@@ -99,7 +97,3 @@ I know this is the Church of Jesus Christ. I know that He stands ready to endow 
 
 [^17]: [[Mark 4.37|Mark 4:37–40]][[Mark 4.38|]][[Mark 4.39|]][[Mark 4.40|]].
 
-
-
-
-#Adversity #Dedication #Faith #Jesus_Christ

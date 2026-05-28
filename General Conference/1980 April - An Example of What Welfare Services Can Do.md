@@ -1,7 +1,5 @@
 # An Example of What Welfare Services Can Do
 
-Spencer W. Kimball
-
 By Harold G. Hillam - *President, Idaho Falls Idaho South Stake*
 
 *Given in the April session of the 1980 General Conference*
@@ -43,4 +41,3 @@ May each of us be found doing our duty, I pray in the name of him whose plan it 
 
 
 
-#Service #Welfare

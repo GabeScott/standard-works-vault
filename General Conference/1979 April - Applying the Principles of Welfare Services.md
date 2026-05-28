@@ -1,7 +1,5 @@
 # Applying the Principles of Welfare Services
 
-Spencer W. Kimball
-
 By President Spencer W. Kimball - *President of the Church*
 
 *Given in the April session of the 1979 General Conference*
@@ -127,4 +125,3 @@ I know that God lives, I know this is his work, and I ask him to continue to ble
 
 
 
-#Welfare

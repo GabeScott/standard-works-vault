@@ -1,7 +1,5 @@
 # The Faith of Our People
 
-Gordon B. Hinckley
-
 By Elder Philip T. Sonntag - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1984 General Conference*
@@ -33,4 +31,3 @@ God bless you, my dear brothers and sisters, as you go forth in this great work,
 
 
 
-#Tithing

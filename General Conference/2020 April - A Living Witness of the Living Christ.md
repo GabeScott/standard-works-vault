@@ -1,7 +1,5 @@
 # A Living Witness of the Living Christ
 
-Russell M. Nelson
-
 By Bishop Gérald Caussé - *Presiding Bishop*
 
 *Given in the April session of the 2020 General Conference*
@@ -81,7 +79,7 @@ I bear witness that all these experiences are real and are evidence that lives c
 
 [^13]: [[1 Nephi 15.24|1 Nephi 15:24]].
 
-[^14]: See [[2 Nephi 31.1|2 Nephi 31]].
+[^14]: See [[2 Nephi 31.1|2 Nephi 31]][[2 Nephi 31.2|]][[2 Nephi 31.3|]][[2 Nephi 31.4|]][[2 Nephi 31.5|]][[2 Nephi 31.6|]][[2 Nephi 31.7|]][[2 Nephi 31.8|]][[2 Nephi 31.9|]][[2 Nephi 31.10|]][[2 Nephi 31.11|]][[2 Nephi 31.12|]][[2 Nephi 31.13|]][[2 Nephi 31.14|]][[2 Nephi 31.15|]][[2 Nephi 31.16|]][[2 Nephi 31.17|]][[2 Nephi 31.18|]][[2 Nephi 31.19|]][[2 Nephi 31.20|]][[2 Nephi 31.21|]].
 
 [^15]: [[Mosiah 3.19|Mosiah 3:19]].
 
@@ -99,7 +97,7 @@ I bear witness that all these experiences are real and are evidence that lives c
 
 [^22]: See [[Omni 1.26|Omni 1:26]]; [[Alma 5.33|Alma 5:33]]; [[Moroni 10.32|Moroni 10:32–33]][[Moroni 10.33|]].
 
-[^23]: See [[Enos 1.1|Enos 1]]; [[Mosiah 5.1|Mosiah 5]]; [[Alma 12.1|Alma 12]]; [[Alma 18.1|18–19]]; [[Alma 36.1|36]].
+[^23]: See [[Enos 1.1|Enos 1]][[Enos 1.2|]][[Enos 1.3|]][[Enos 1.4|]][[Enos 1.5|]][[Enos 1.6|]][[Enos 1.7|]][[Enos 1.8|]][[Enos 1.9|]][[Enos 1.10|]][[Enos 1.11|]][[Enos 1.12|]][[Enos 1.13|]][[Enos 1.14|]][[Enos 1.15|]][[Enos 1.16|]][[Enos 1.17|]][[Enos 1.18|]][[Enos 1.19|]][[Enos 1.20|]][[Enos 1.21|]][[Enos 1.22|]][[Enos 1.23|]][[Enos 1.24|]][[Enos 1.25|]][[Enos 1.26|]][[Enos 1.27|]]; [[Mosiah 5.1|Mosiah 5]][[Mosiah 5.2|]][[Mosiah 5.3|]][[Mosiah 5.4|]][[Mosiah 5.5|]][[Mosiah 5.6|]][[Mosiah 5.7|]][[Mosiah 5.8|]][[Mosiah 5.9|]][[Mosiah 5.10|]][[Mosiah 5.11|]][[Mosiah 5.12|]][[Mosiah 5.13|]][[Mosiah 5.14|]][[Mosiah 5.15|]]; [[Alma 12.1|Alma 12]][[Alma 12.2|]][[Alma 12.3|]][[Alma 12.4|]][[Alma 12.5|]][[Alma 12.6|]][[Alma 12.7|]][[Alma 12.8|]][[Alma 12.9|]][[Alma 12.10|]][[Alma 12.11|]][[Alma 12.12|]][[Alma 12.13|]][[Alma 12.14|]][[Alma 12.15|]][[Alma 12.16|]][[Alma 12.17|]][[Alma 12.18|]][[Alma 12.19|]][[Alma 12.20|]][[Alma 12.21|]][[Alma 12.22|]][[Alma 12.23|]][[Alma 12.24|]][[Alma 12.25|]][[Alma 12.26|]][[Alma 12.27|]][[Alma 12.28|]][[Alma 12.29|]][[Alma 12.30|]][[Alma 12.31|]][[Alma 12.32|]][[Alma 12.33|]][[Alma 12.34|]][[Alma 12.35|]][[Alma 12.36|]][[Alma 12.37|]]; [[Alma 18.1|18–19]][[Alma 18.2|]][[Alma 18.3|]][[Alma 18.4|]][[Alma 18.5|]][[Alma 18.6|]][[Alma 18.7|]][[Alma 18.8|]][[Alma 18.9|]][[Alma 18.10|]][[Alma 18.11|]][[Alma 18.12|]][[Alma 18.13|]][[Alma 18.14|]][[Alma 18.15|]][[Alma 18.16|]][[Alma 18.17|]][[Alma 18.18|]][[Alma 18.19|]][[Alma 18.20|]][[Alma 18.21|]][[Alma 18.22|]][[Alma 18.23|]][[Alma 18.24|]][[Alma 18.25|]][[Alma 18.26|]][[Alma 18.27|]][[Alma 18.28|]][[Alma 18.29|]][[Alma 18.30|]][[Alma 18.31|]][[Alma 18.32|]][[Alma 18.33|]][[Alma 18.34|]][[Alma 18.35|]][[Alma 18.36|]][[Alma 18.37|]][[Alma 18.38|]][[Alma 18.39|]][[Alma 18.40|]][[Alma 18.41|]][[Alma 18.42|]][[Alma 18.43|]]; [[Alma 36.1|36]][[Alma 36.2|]][[Alma 36.3|]][[Alma 36.4|]][[Alma 36.5|]][[Alma 36.6|]][[Alma 36.7|]][[Alma 36.8|]][[Alma 36.9|]][[Alma 36.10|]][[Alma 36.11|]][[Alma 36.12|]][[Alma 36.13|]][[Alma 36.14|]][[Alma 36.15|]][[Alma 36.16|]][[Alma 36.17|]][[Alma 36.18|]][[Alma 36.19|]][[Alma 36.20|]][[Alma 36.21|]][[Alma 36.22|]][[Alma 36.23|]][[Alma 36.24|]][[Alma 36.25|]][[Alma 36.26|]][[Alma 36.27|]][[Alma 36.28|]][[Alma 36.29|]][[Alma 36.30|]].
 
 [^24]: [[Alma 5.26|Alma 5:26]]; emphasis added.
 
@@ -111,7 +109,3 @@ I bear witness that all these experiences are real and are evidence that lives c
 
 [^28]: [[D&C 93.1|Doctrine and Covenants 93:1]].
 
-
-
-
-#Atonement #Book_Of_Mormon #Jesus_Christ

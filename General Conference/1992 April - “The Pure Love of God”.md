@@ -1,7 +1,5 @@
 # “The Pure Love of God”
 
-Thomas S. Monson
-
 By Elder Yoshihiko Kikuchi - *Of the Seventy*
 
 *Given in the April session of the 1992 General Conference*
@@ -49,4 +47,3 @@ Brothers and sisters, I humbly testify to you that God lives. Jesus is the Chris
 
 
 
-#Love #Missionary_Work #Service

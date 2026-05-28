@@ -1,7 +1,5 @@
 # Self-Accountability and Human Progress
 
-Spencer W. Kimball
-
 By Elder Dean L. Larsen - *Of the Presidency of the First Quorum of the Seventy*
 
 *Given in the April session of the 1980 General Conference*
@@ -55,4 +53,3 @@ At the same time, our obedience to them preserves for us the elements of life wh
 
 
 
-#Accountability #Agency

@@ -1,7 +1,5 @@
 # Gratitude for the Goodness of God
 
-Thomas S. Monson
-
 By Bishop Robert D. Hales - *Presiding Bishop*
 
 *Given in the April session of the 1992 General Conference*
@@ -125,4 +123,3 @@ That we may feel true gratitude for the goodness of God for all the blessings th
 
 
 
-#Gratitude #Jesus_Christ #Prayer #Repentance

@@ -1,7 +1,5 @@
 # Follow the Light
 
-Gordon B. Hinckley
-
 By Margaret D. Nadauld - *Young Women General President*
 
 *Given in the April session of the 1999 General Conference*
@@ -67,4 +65,3 @@ I testify that the Lord is always there to help you. The example of His life and
 
 
 
-#Goals #Jesus_Christ #Prayer #Preparation #Scripture_Study #Service #Young_Women

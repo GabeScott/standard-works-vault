@@ -1,7 +1,5 @@
 # Your Gift from God
 
-Spencer W. Kimball
-
 By President Marion G. Romney - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 1976 General Conference*
@@ -143,4 +141,3 @@ By way of conclusion and in the words of Paul to Timothy, “I put thee in remem
 
 
 
-#Spirituality

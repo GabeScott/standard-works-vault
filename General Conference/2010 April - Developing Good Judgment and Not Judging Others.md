@@ -1,7 +1,5 @@
 # Developing Good Judgment and Not Judging Others
 
-Thomas S. Monson
-
 By Elder Gregory A. Schwitzer - *Of the Seventy*
 
 *Given in the April session of the 2010 General Conference*
@@ -71,7 +69,3 @@ I testify that when we face difficult decisions and follow these guidelines, we 
 
 [^5]: [[1 Nephi 2.20|1 Nephi 2:20]].
 
-
-
-
-#Holy_Ghost #Judging #Obedience

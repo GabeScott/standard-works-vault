@@ -1,7 +1,5 @@
 # Ten Gifts from the Lord
 
-Gordon B. Hinckley
-
 By President Gordon B. Hinckley - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 1985 General Conference*
@@ -47,4 +45,3 @@ Count your wonderful blessings. Do not worry away your lives with concerns over 
 
 
 
-#Blessings

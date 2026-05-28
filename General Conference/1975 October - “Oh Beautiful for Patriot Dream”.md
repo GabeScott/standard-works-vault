@@ -1,7 +1,5 @@
 # “Oh Beautiful for Patriot Dream”
 
-Spencer W. Kimball
-
 By Elder Paul H. Dunn - *Of the First Council of the Seventy*
 
 *Given in the October session of the 1975 General Conference*
@@ -76,4 +74,3 @@ May that be the song of our heart and our prayer for fulfillment, I humbly pray 
 
 
 
-#Patriotism #Restoration

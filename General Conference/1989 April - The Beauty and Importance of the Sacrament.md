@@ -1,7 +1,5 @@
 # The Beauty and Importance of the Sacrament
 
-Ezra Taft Benson
-
 By Elder John H. Groberg - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1989 General Conference*
@@ -89,4 +87,3 @@ Yes, I know he gives life—in all of its depth of meaning. As the emblems of hi
 
 
 
-#Sacrament #Worthiness

@@ -1,7 +1,5 @@
 # Where Are the Keys and Authority of the Priesthood?
 
-Cheryl A. Esplin
-
 By Elder Gary E. Stevenson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2016 General Conference*
@@ -93,7 +91,3 @@ I testify of God the Father; of our Savior and Redeemer, Jesus Christ; of the Ho
 
 [^12]: [[2 Nephi 31.20|2 Nephi 31:20]].
 
-
-
-
-#Authority #Covenants #Family_History #Missionary_Work #Ordinances #Priesthood #Temple_Work

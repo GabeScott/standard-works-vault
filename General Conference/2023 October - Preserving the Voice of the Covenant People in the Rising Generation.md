@@ -1,7 +1,5 @@
 # Preserving the Voice of the Covenant People in the Rising Generation
 
-David A. Bednar
-
 By Brother Jan E. Newman - *Second Counselor in the Sunday School General Presidency*
 
 *Given in the October session of the 2023 General Conference*
@@ -101,7 +99,3 @@ Let us accept the Savior’s invitation and bring our children to Him. As we do 
 
 [^17]: [[Enos 1.1|Enos 1:1]]. Remember that among the rising generation of unbelievers in the Book of Mormon were Alma the Younger and the sons of Mosiah. When Alma the Younger finally recognized his need to change his life, he remembered what his father had taught about Jesus Christ—teachings that Alma had apparently ignored in the past. But the memory of it remained, and that memory saved Alma spiritually (see [[Alma 36.17|Alma 36:17–20]][[Alma 36.18|]][[Alma 36.19|]][[Alma 36.20|]]).
 
-
-
-
-#Children #Councils #Covenants #Jesus_Christ #Parents #Scripture_Study #Teaching

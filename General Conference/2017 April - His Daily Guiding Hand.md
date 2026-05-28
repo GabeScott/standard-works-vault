@@ -1,7 +1,5 @@
 # His Daily Guiding Hand
 
-Bonnie H. Cordon
-
 By M. Joseph Brough - *Second Counselor in the Young Men General Presidency*
 
 *Given in the April session of the 2017 General Conference*
@@ -116,7 +114,3 @@ I testify that Heavenly Father does lead us, guide us, and walk beside us. As we
 
 [^15]: See “A Child’s Prayer,” *Children’s Songbook,* 12–13.
 
-
-
-
-#Bishops #Church_Leaders #Commandments #Jesus_Christ #Parenthood #Sacrifice #Scripture_Study #Youth

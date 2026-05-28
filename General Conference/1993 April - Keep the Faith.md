@@ -1,7 +1,5 @@
 # Keep the Faith
 
-Thomas S. Monson
-
 By Bishop Richard C. Edgley - *Second Counselor in the Presiding Bishopric*
 
 *Given in the April session of the 1993 General Conference*
@@ -41,4 +39,3 @@ I bear solemn witness that God lives, that He cares enough to direct His prophet
 
 
 
-#Endurance #Faith #Humility #Pride

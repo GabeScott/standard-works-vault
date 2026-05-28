@@ -1,6 +1,6 @@
 # Watchful unto Prayer Continually
 
-Jeffrey R. Holland
+([[Alma 34.39|Alma 34:39]]; [[Moroni 6.4|Moroni 6:4]]; [[Luke 21.36|Luke 21:36]])
 
 By Elder David A. Bednar - *Of the Quorum of the Twelve Apostles*
 
@@ -123,7 +123,3 @@ I testify that pressing forward on the covenant path provides spiritual safety a
 
 [^14]: [[D&C 27.15|Doctrine and Covenants 27:15]].
 
-
-
-
-#Spirituality #Temptation

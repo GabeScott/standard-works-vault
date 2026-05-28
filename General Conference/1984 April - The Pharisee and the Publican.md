@@ -1,7 +1,5 @@
 # The Pharisee and the Publican
 
-Gordon B. Hinckley
-
 By Elder Howard W. Hunter - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1984 General Conference*
@@ -63,4 +61,3 @@ May the Lord bless us as we strive to understand and follow his teachings is my 
 
 
 
-#Humility

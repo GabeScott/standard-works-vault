@@ -1,7 +1,5 @@
 # Successful Parenthood—A Noteworthy Accomplishment
 
-Wilford G. Edling
-
 By Elder ElRay L. Christiansen - *Assistant to the Council of the Twelve*
 
 *Given in the April session of the 1972 General Conference*
@@ -104,4 +102,3 @@ To this I testify in the name of Jesus Christ, the Lord. Amen.
 
 
 
-#Family #Parents

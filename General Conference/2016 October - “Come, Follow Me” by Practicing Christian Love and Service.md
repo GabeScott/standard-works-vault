@@ -1,7 +1,5 @@
 # “Come, Follow Me” by Practicing Christian Love and Service
 
-Jean B. Bingham
-
 By Elder Robert D. Hales - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2016 General Conference*
@@ -105,7 +103,3 @@ I bear my special witness that He lives and loves us with a perfect love. This i
 
 [^23]: See [[Jacob 6.4|Jacob 6:4.]]
 
-
-
-
-#Jesus_Christ #Love #Parenthood #Service #Teaching

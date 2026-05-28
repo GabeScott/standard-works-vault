@@ -1,7 +1,5 @@
 # To Men of the Priesthood
 
-Gordon B. Hinckley
-
 By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the October session of the 2002 General Conference*
@@ -117,4 +115,3 @@ How great are the promises of the Lord to those who walk in faith. I leave with 
 
 
 
-#Abuse #Education #Family_Home_Evening #Financial_Management #Missionary_Work #Morality #Self-Reliance #Temple_Work

@@ -1,7 +1,5 @@
 # Irony: The Crust on the Bread of Adversity
 
-Ezra Taft Benson
-
 By Elder Neal A. Maxwell - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1989 General Conference*
@@ -103,4 +101,3 @@ Glory be to the Father, in the name of Him who can succor us amid all our ironie
 
 
 
-#Adversity #Atonement #Jesus_Christ

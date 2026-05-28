@@ -1,7 +1,5 @@
 # My Testimony
 
-Gordon B. Hinckley
-
 By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the April session of the 2000 General Conference*
@@ -147,4 +145,3 @@ Gratefully, and with love undiminished, I bear witness of these things in His Ho
 
 
 
-#Example #Friendship #Gratitude #Jesus_Christ #Missionary_Work #Satan #Temptation #Testimony #Youth

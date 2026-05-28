@@ -1,7 +1,5 @@
 # These I Will Make My Leaders
 
-Spencer W. Kimball
-
 By Elder James E. Faust - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1980 General Conference*
@@ -109,4 +107,3 @@ That it may be so I pray humbly in the name of Jesus Christ, amen.
 
 
 
-#Conversion #Missionary_Work

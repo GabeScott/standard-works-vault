@@ -1,7 +1,5 @@
 # LDS Women Are Incredible!
 
-Thomas S. Monson
-
 By Elder Quentin L. Cook - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2011 General Conference*
@@ -135,7 +133,3 @@ Dear sisters, we love and admire you. We appreciate your service in the Lord’s
 
 [^23]: Karen Lynn Davidson, *Our Latter-Day Hymns: The Stories and the Messages,* rev. ed. (2009), 338–39.
 
-
-
-
-#Councils #Family #Motherhood #Women

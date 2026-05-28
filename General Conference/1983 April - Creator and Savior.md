@@ -1,7 +1,5 @@
 # Creator and Savior
 
-Ezra Taft Benson
-
 By Elder Mark E. Petersen - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1983 General Conference*
@@ -151,4 +149,3 @@ Yes, today is Easter, and to us Easter means Christ—the resurrected Christ, th
 
 
 
-#Atonement #Jesus_Christ #Resurrection

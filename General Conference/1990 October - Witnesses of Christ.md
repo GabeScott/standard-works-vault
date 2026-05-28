@@ -1,7 +1,5 @@
 # Witnesses of Christ
 
-Gordon B. Hinckley
-
 By Elder Dallin H. Oaks - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1990 General Conference*
@@ -50,7 +48,7 @@ The book of Luke records two examples of this. In obedience to the law of Moses,
 
 Anna and Simeon were eyewitnesses to the infant, but, just like the Apostles, their knowledge of his divine mission came through the witness of the Holy Ghost. “The testimony of Jesus is the spirit of prophecy” ([[Revelation 19.10|Rev. 19:10]]). Therefore, we can properly say that when each received this witness, Simeon was a prophet and Anna was a prophetess. Each then fulfilled the prophetic duty to testify to those around them. As Peter said, “To \[Christ\] give all the prophets witness” ([[Acts 10.43|Acts 10:43]]). This was what Moses meant when he expressed the wish “that all the Lord’s people were prophets, and that the Lord would put his spirit upon them!” ([[Numbers 11.29|Num. 11:29]]).
 
-The scriptures describe other occasions when ordinary members—men and women—bore witness of Christ. The Book of Mormon tells of King Lamoni and his queen, who testified of their Redeemer (see [[Alma 19.1|Alma 19]]). The Bible describes the witness of the Holy Ghost coming upon the kinsmen and friends of Cornelius, who were then heard to “magnify God” ([[Acts 10.24|Acts 10:24, 46]][[Acts 10.46|]]).
+The scriptures describe other occasions when ordinary members—men and women—bore witness of Christ. The Book of Mormon tells of King Lamoni and his queen, who testified of their Redeemer (see [[Alma 19.1|Alma 19]][[Alma 19.2|]][[Alma 19.3|]][[Alma 19.4|]][[Alma 19.5|]][[Alma 19.6|]][[Alma 19.7|]][[Alma 19.8|]][[Alma 19.9|]][[Alma 19.10|]][[Alma 19.11|]][[Alma 19.12|]][[Alma 19.13|]][[Alma 19.14|]][[Alma 19.15|]][[Alma 19.16|]][[Alma 19.17|]][[Alma 19.18|]][[Alma 19.19|]][[Alma 19.20|]][[Alma 19.21|]][[Alma 19.22|]][[Alma 19.23|]][[Alma 19.24|]][[Alma 19.25|]][[Alma 19.26|]][[Alma 19.27|]][[Alma 19.28|]][[Alma 19.29|]][[Alma 19.30|]][[Alma 19.31|]][[Alma 19.32|]][[Alma 19.33|]][[Alma 19.34|]][[Alma 19.35|]][[Alma 19.36|]]). The Bible describes the witness of the Holy Ghost coming upon the kinsmen and friends of Cornelius, who were then heard to “magnify God” ([[Acts 10.24|Acts 10:24, 46]][[Acts 10.46|]]).
 
 Our scriptural duty to witness of the Savior and to testify of his divine Sonship has been affirmed by the prophets in our own day.
 
@@ -97,4 +95,3 @@ I testify of Jesus Christ, the Lord God of Israel, the light and life of the wor
 
 
 
-#Jesus_Christ #Testimony

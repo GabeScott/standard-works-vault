@@ -1,7 +1,5 @@
 # The Shield of Faith
 
-Gordon B. Hinckley
-
 By President James E. Faust - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 2000 General Conference*
@@ -121,7 +119,3 @@ This is the work of God. I believe and testify that, as Paul said, if we can “
 
 [^15]: [[Ephesians 4.13|Eph. 4:13]].
 
-
-
-
-#Adversity #Compassion #Education #Evil #Faith #General_Conference #Humility #Media #Spirituality #Success #Temple_Square

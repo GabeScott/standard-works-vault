@@ -1,7 +1,5 @@
 # Faith Is the Answer
 
-James E. Faust
-
 By Virginia H. Pearce - *First Counselor in the Young Women General Presidency*
 
 *Given in the April session of the 1994 General Conference*
@@ -117,4 +115,3 @@ Did you notice how you felt? Even talking about faith brings feelings of peace a
 
 
 
-#Faith #God_The_Father #Patriarchal_Blessings #Young_Women

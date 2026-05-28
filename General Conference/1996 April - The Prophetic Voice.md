@@ -1,7 +1,5 @@
 # The Prophetic Voice
 
-James E. Faust
-
 By President James E. Faust - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 1996 General Conference*
@@ -121,7 +119,3 @@ My testimony of the divinity of the callings of the presiding Brethren as the re
 
 [^22]: [[D&C 42.11|D&C 42:11]].
 
-
-
-
-#Apostasy #Church_Growth #Church_Leaders #Criticism #General_Conference #Jesus_Christ #Loyalty #Priesthood #Prophets #Responsibility #Truth #Women

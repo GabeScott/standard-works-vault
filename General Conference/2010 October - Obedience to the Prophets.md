@@ -1,7 +1,5 @@
 # Obedience to the Prophets
 
-Thomas S. Monson
-
 By Elder Claudio R. M. Costa - *Of the Presidency of the Seventy*
 
 *Given in the October session of the 2010 General Conference*
@@ -93,4 +91,3 @@ Jesus is the Christ, our Savior and Redeemer. Thomas S. Monson is the living pro
 
 
 
-#Obedience #Prophets #Revelation

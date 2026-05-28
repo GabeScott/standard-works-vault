@@ -1,7 +1,5 @@
 # A Tribute to the Rank and File of the Church
 
-Spencer W. Kimball
-
 By Elder Boyd K. Packer - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1980 General Conference*
@@ -189,4 +187,3 @@ I know that He directs this Church now, as He established it then, through a pro
 
 
 
-#Spirituality #Testimony

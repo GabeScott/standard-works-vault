@@ -1,6 +1,6 @@
 # We Will Prove Them Herewith
 
-Russell M. Nelson
+([[Abraham 3.25|Abraham 3:25]])
 
 By Elder David A. Bednar - *Of the Quorum of the Twelve Apostles*
 
@@ -147,7 +147,3 @@ I witness that God the Eternal Father is our Father. Jesus Christ is His Only Be
 
 [^18]: [[Matthew 25.21|Matthew 25:21]].
 
-
-
-
-#Adversity #Faith #Preparation

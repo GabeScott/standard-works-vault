@@ -1,7 +1,5 @@
 # The Sustaining of Church Officers
 
-Henry B. Eyring
-
 By Presented by President Dallin H. Oaks - *First Counselor in the First Presidency*
 
 *Given in the April session of the 2018 General Conference*

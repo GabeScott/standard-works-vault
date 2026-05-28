@@ -1,7 +1,5 @@
 # Smiling Faces and Grateful Hearts
 
-Dallin H. Oaks
-
 By Elder Carlos A. Godoy - *Of the Seventy*
 
 *Given in the October session of the 2025 General Conference*
@@ -103,7 +101,3 @@ Just like those Saints in Africa, I know this promise is true. It is true there,
 
 [^5]: [[Matthew 11.28|Matthew 11:28–30]][[Matthew 11.29|]][[Matthew 11.30|]].
 
-
-
-
-#Adversity #Gratitude #Jesus_Christ #Joy

@@ -1,7 +1,5 @@
 # Gratitude As a Saving Principle
 
-Thomas S. Monson
-
 By Elder James E. Faust - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1990 General Conference*
@@ -77,4 +75,3 @@ As with all commandments, gratitude is a description of a successful mode of liv
 
 
 
-#Adversity #Faith #Gratitude #Pioneers #Service

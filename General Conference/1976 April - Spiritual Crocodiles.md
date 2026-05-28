@@ -1,7 +1,5 @@
 # Spiritual Crocodiles
 
-Spencer W. Kimball
-
 By Elder Boyd K. Packer - *Of the Council of the Twelve*
 
 *Given in the April session of the 1976 General Conference*
@@ -109,4 +107,3 @@ That experience in Africa was another reminder for me to follow the Guide. I fol
 
 
 
-#Agency #Church_Leaders #Obedience

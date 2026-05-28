@@ -1,7 +1,5 @@
 # “In His Strength I Can Do All Things”
 
-Gordon B. Hinckley
-
 By Elder Jack H Goaslind - *Of the Presidency of the Seventy*
 
 *Given in the April session of the 1997 General Conference*
@@ -73,4 +71,3 @@ May Heavenly Father bless you to know that you are one of His chosen sons in a b
 
 
 
-#Holy_Ghost #Jesus_Christ #Pioneers #Priesthood

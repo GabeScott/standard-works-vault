@@ -1,7 +1,5 @@
 # Blessed Are All the Pure in Heart
 
-Gordon B. Hinckley
-
 By Elder L. Whitney Clayton - *Of the Seventy*
 
 *Given in the October session of the 2007 General Conference*
@@ -47,4 +45,3 @@ May God bless our genuine efforts to be pure of heart and mind, that “virtue \
 
 
 
-#Media #Morality #Temptation

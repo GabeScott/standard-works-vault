@@ -1,7 +1,5 @@
 # Trust in the Lord
 
-Ezra Taft Benson
-
 By Elder Richard G. Scott - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1989 General Conference*
@@ -97,4 +95,3 @@ I testify that the Lord lives. He loves you and will help you. In the name of Je
 
 
 
-#Character #Faith #Spirituality

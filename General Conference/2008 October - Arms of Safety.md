@@ -1,7 +1,5 @@
 # Arms of Safety
 
-Thomas S. Monson
-
 By Elder Jay E. Jensen - *Of the Presidency of the Seventy*
 
 *Given in the October session of the 2008 General Conference*
@@ -65,4 +63,3 @@ I love my Heavenly Father and His Son, Jesus Christ. I place my faith, my love, 
 
 
 
-#Atonement #Church_Meetings #Sacrament #Safety

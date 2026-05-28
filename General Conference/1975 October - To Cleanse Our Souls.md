@@ -1,7 +1,5 @@
 # To Cleanse Our Souls
 
-Spencer W. Kimball
-
 By Elder John H. Vandenberg - *Assistant to the Council of the Twelve*
 
 *Given in the October session of the 1975 General Conference*
@@ -65,4 +63,3 @@ Using the doctrine heretofore recited from the scripture of God’s presentation
 
 
 
-#Morality #Repentance

@@ -1,7 +1,5 @@
 # My Mind Caught Hold upon This Thought of Jesus Christ
 
-Gary E. Stevenson
-
 By Elder Neil L. Andersen - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2023 General Conference*
@@ -123,7 +121,3 @@ In this Easter season, I witness the complete and absolute truth of the Savior�
 
 [^22]: Russell M. Nelson, “[[2017 April - Drawing the Power of Jesus Christ into Our Lives.md|Drawing the Power of Jesus Christ into Our Lives]],” *Ensign* or *Liahona*, May 2017, 41. President Nelson also said, “The joy \[Latter-day Saints\] feel has little to do with the circumstances of our lives and everything to do with the focus of our lives” (“[[2016 October - Joy and Spiritual Survival.md|Joy and Spiritual Survival]],” *Ensign* or *Liahona*, Nov. 2016, 82).
 
-
-
-
-#Atonement #Jesus_Christ #Joy #Peace #Repentance

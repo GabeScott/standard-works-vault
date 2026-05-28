@@ -1,7 +1,5 @@
 # The Quality of Eternal Life
 
-Ezra Taft Benson
-
 By Elder Wm. Grant Bangerter - *Of the Presidency of the First Quorum of the Seventy*
 
 *Given in the October session of the 1988 General Conference*
@@ -66,7 +64,7 @@ We begin by knowing of Jesus Christ and determining to follow him. Peter said: �
 
 “Then they that gladly received his word were baptized: … three thousand souls.” ([[Acts 2.38|Acts 2:38, 40–41]][[Acts 2.40|]][[Acts 2.41|]].)
 
-Then, we “press forward with a steadfastness in Christ … and endure to the end, \[and\] thus saith the Father: Ye shall have eternal life.” ([[2 Nephi 31.20|2 Ne. 31:20]].) We are to take upon us His name and always remember Him and keep His commandments. (See [[Moroni 4.1|Moro. 4]]; [[Moroni 5.1|5]]; [[D&C 20.77|D&C 20:77–79]][[D&C 20.78|]][[D&C 20.79|]].) That seems to be keeping our repentance up to date.
+Then, we “press forward with a steadfastness in Christ … and endure to the end, \[and\] thus saith the Father: Ye shall have eternal life.” ([[2 Nephi 31.20|2 Ne. 31:20]].) We are to take upon us His name and always remember Him and keep His commandments. (See [[Moroni 4.1|Moro. 4]][[Moroni 4.2|]][[Moroni 4.3|]]; [[Moroni 5.1|5]][[Moroni 5.2|]]; [[D&C 20.77|D&C 20:77–79]][[D&C 20.78|]][[D&C 20.79|]].) That seems to be keeping our repentance up to date.
 
 Now comes the call to serve. We serve God and our fellowmen. The parable of the Good Samaritan came in answer to the lawyer’s question: “What shall I do to obtain eternal life? … Thou shalt love the Lord thy God … and thy neighbour as thyself.” ([[Luke 10.25|Luke 10:25, 27]][[Luke 10.27|]].)
 
@@ -111,4 +109,3 @@ I have known of Jesus Christ since before I can remember. I was taught to pray t
 
 
 
-#Plan_Of_Salvation

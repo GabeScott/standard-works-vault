@@ -1,7 +1,5 @@
 # Admonitions for the Priesthood of God
 
-N. Eldon Tanner
-
 By President Harold B. Lee - *President of the Church*
 
 *Given in the October session of the 1972 General Conference*
@@ -193,4 +191,3 @@ I bear you my solemn witness that it is true, that the Lord is in his heavens; h
 
 
 
-#Church_Leaders #Commandments #Faith #Morality #Obedience #Welfare

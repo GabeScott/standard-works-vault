@@ -1,7 +1,5 @@
 # Let Patience Have Her Perfect Work, and Count It All Joy!
 
-Russell M. Nelson
-
 By Elder Jeremy R. Jaggi - *Of the Seventy*
 
 *Given in the October session of the 2020 General Conference*
@@ -73,4 +71,3 @@ I witness of the redeeming, sanctifying, humbling, and joyous power of the Savio
 
 
 
-#Adversity #Faith #Patience

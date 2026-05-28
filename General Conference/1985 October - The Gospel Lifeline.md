@@ -1,6 +1,6 @@
 # The Gospel Lifeline
 
-Gordon B. Hinckley
+By Kristen Pinegar
 
 By Elder Rex D. Pinegar - *Of the First Quorum of the Seventy*
 
@@ -134,8 +134,3 @@ In the name of Jesus Christ, amen.
 
 
 
-
-
-
-
-#Example #Priesthood

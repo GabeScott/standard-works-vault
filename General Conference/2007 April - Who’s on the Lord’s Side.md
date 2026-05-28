@@ -1,7 +1,5 @@
 # Who’s on the Lord’s Side?
 
-Thomas S. Monson
-
 By Charles W. Dahlquist II - *Young Men General President*
 
 *Given in the April session of the 2007 General Conference*
@@ -58,4 +56,3 @@ I testify to you that God lives. I know that we are His children, that He knows 
 
 
 
-#Adversity #Agency #Divine_Nature #Music #Obedience #Parenthood #Prayer #Sacrifice

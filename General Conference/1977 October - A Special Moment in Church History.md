@@ -1,7 +1,5 @@
 # A Special Moment in Church History
 
-Spencer W. Kimball
-
 By Elder W. Grant Bangerter - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1977 General Conference*
@@ -51,4 +49,3 @@ I pray the Church will listen to President Kimball. I think it does. There is gr
 
 
 
-#Prophets #Spencer_W._Kimball

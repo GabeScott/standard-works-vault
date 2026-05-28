@@ -1,7 +1,5 @@
 # Legacy of Encouragement
 
-Dallin H. Oaks
-
 By President Henry B. Eyring - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 2022 General Conference*
@@ -22,9 +20,9 @@ She felt that He was close to her. In the days she knew she was about to die, sh
 
 She is now in the spirit world. She was able to keep her eyes on the prize she wanted despite years of physical and personal trial.
 
-The legacy of encouragement she left for us is best described in [[Moroni 7.1|Moroni 7]], where Mormon encourages his son Moroni and his people. It is a legacy of encouragement to a posterity as was my mother’s to her family. Mormon passed that legacy of encouragement to all who have a determination to qualify, through all their mortal tests, for eternal life.
+The legacy of encouragement she left for us is best described in [[Moroni 7.1|Moroni 7]][[Moroni 7.2|]][[Moroni 7.3|]][[Moroni 7.4|]][[Moroni 7.5|]][[Moroni 7.6|]][[Moroni 7.7|]][[Moroni 7.8|]][[Moroni 7.9|]][[Moroni 7.10|]][[Moroni 7.11|]][[Moroni 7.12|]][[Moroni 7.13|]][[Moroni 7.14|]][[Moroni 7.15|]][[Moroni 7.16|]][[Moroni 7.17|]][[Moroni 7.18|]][[Moroni 7.19|]][[Moroni 7.20|]][[Moroni 7.21|]][[Moroni 7.22|]][[Moroni 7.23|]][[Moroni 7.24|]][[Moroni 7.25|]][[Moroni 7.26|]][[Moroni 7.27|]][[Moroni 7.28|]][[Moroni 7.29|]][[Moroni 7.30|]][[Moroni 7.31|]][[Moroni 7.32|]][[Moroni 7.33|]][[Moroni 7.34|]][[Moroni 7.35|]][[Moroni 7.36|]][[Moroni 7.37|]][[Moroni 7.38|]][[Moroni 7.39|]][[Moroni 7.40|]][[Moroni 7.41|]][[Moroni 7.42|]][[Moroni 7.43|]][[Moroni 7.44|]][[Moroni 7.45|]][[Moroni 7.46|]][[Moroni 7.47|]][[Moroni 7.48|]], where Mormon encourages his son Moroni and his people. It is a legacy of encouragement to a posterity as was my mother’s to her family. Mormon passed that legacy of encouragement to all who have a determination to qualify, through all their mortal tests, for eternal life.
 
-Mormon begins in the first verses of [[Moroni 7.1|Moroni 7]] with a testimony of Jesus Christ, of angels, and of the Spirit of Christ, which allows us to know good from evil and so be able to choose the right.
+Mormon begins in the first verses of [[Moroni 7.1|Moroni 7]][[Moroni 7.2|]][[Moroni 7.3|]][[Moroni 7.4|]][[Moroni 7.5|]][[Moroni 7.6|]][[Moroni 7.7|]][[Moroni 7.8|]][[Moroni 7.9|]][[Moroni 7.10|]][[Moroni 7.11|]][[Moroni 7.12|]][[Moroni 7.13|]][[Moroni 7.14|]][[Moroni 7.15|]][[Moroni 7.16|]][[Moroni 7.17|]][[Moroni 7.18|]][[Moroni 7.19|]][[Moroni 7.20|]][[Moroni 7.21|]][[Moroni 7.22|]][[Moroni 7.23|]][[Moroni 7.24|]][[Moroni 7.25|]][[Moroni 7.26|]][[Moroni 7.27|]][[Moroni 7.28|]][[Moroni 7.29|]][[Moroni 7.30|]][[Moroni 7.31|]][[Moroni 7.32|]][[Moroni 7.33|]][[Moroni 7.34|]][[Moroni 7.35|]][[Moroni 7.36|]][[Moroni 7.37|]][[Moroni 7.38|]][[Moroni 7.39|]][[Moroni 7.40|]][[Moroni 7.41|]][[Moroni 7.42|]][[Moroni 7.43|]][[Moroni 7.44|]][[Moroni 7.45|]][[Moroni 7.46|]][[Moroni 7.47|]][[Moroni 7.48|]] with a testimony of Jesus Christ, of angels, and of the Spirit of Christ, which allows us to know good from evil and so be able to choose the right.
 
 He puts Jesus Christ first, as do all who succeed in giving encouragement to those struggling upward on the path to their heavenly home:
 
@@ -91,9 +89,5 @@ I testify that He lives and leads His Church. I am His witness. President Russel
 
 [^4]: [[Moroni 7.45|Moroni 7:45–48]][[Moroni 7.46|]][[Moroni 7.47|]][[Moroni 7.48|]].
 
-[^5]: See [[1 Corinthians 13.1|1 Corinthians 13]][[1 Corinthians 13.2|]][[1 Corinthians 13.3|]][[1 Corinthians 13.4|]][[1 Corinthians 13.5|]][[1 Corinthians 13.6|]][[1 Corinthians 13.7|]][[1 Corinthians 13.8|]][[1 Corinthians 13.9|]][[1 Corinthians 13.10|]][[1 Corinthians 13.11|]][[1 Corinthians 13.12|]][[1 Corinthians 13.13|]]; [[Moroni 7.1|Moroni 7]].
+[^5]: See [[1 Corinthians 13.1|1 Corinthians 13]][[1 Corinthians 13.2|]][[1 Corinthians 13.3|]][[1 Corinthians 13.4|]][[1 Corinthians 13.5|]][[1 Corinthians 13.6|]][[1 Corinthians 13.7|]][[1 Corinthians 13.8|]][[1 Corinthians 13.9|]][[1 Corinthians 13.10|]][[1 Corinthians 13.11|]][[1 Corinthians 13.12|]][[1 Corinthians 13.13|]]; [[Moroni 7.1|Moroni 7]][[Moroni 7.2|]][[Moroni 7.3|]][[Moroni 7.4|]][[Moroni 7.5|]][[Moroni 7.6|]][[Moroni 7.7|]][[Moroni 7.8|]][[Moroni 7.9|]][[Moroni 7.10|]][[Moroni 7.11|]][[Moroni 7.12|]][[Moroni 7.13|]][[Moroni 7.14|]][[Moroni 7.15|]][[Moroni 7.16|]][[Moroni 7.17|]][[Moroni 7.18|]][[Moroni 7.19|]][[Moroni 7.20|]][[Moroni 7.21|]][[Moroni 7.22|]][[Moroni 7.23|]][[Moroni 7.24|]][[Moroni 7.25|]][[Moroni 7.26|]][[Moroni 7.27|]][[Moroni 7.28|]][[Moroni 7.29|]][[Moroni 7.30|]][[Moroni 7.31|]][[Moroni 7.32|]][[Moroni 7.33|]][[Moroni 7.34|]][[Moroni 7.35|]][[Moroni 7.36|]][[Moroni 7.37|]][[Moroni 7.38|]][[Moroni 7.39|]][[Moroni 7.40|]][[Moroni 7.41|]][[Moroni 7.42|]][[Moroni 7.43|]][[Moroni 7.44|]][[Moroni 7.45|]][[Moroni 7.46|]][[Moroni 7.47|]][[Moroni 7.48|]].
 
-
-
-
-#Adversity #Charity #Endurance #Faith #Hope #Jesus_Christ #Meekness

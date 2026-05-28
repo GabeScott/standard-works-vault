@@ -1,7 +1,5 @@
 # Keeping Our Covenants
 
-Gordon B. Hinckley
-
 By Elder Richard J. Maynes - *Of the Seventy*
 
 *Given in the October session of the 2004 General Conference*
@@ -91,4 +89,3 @@ It is my prayer today that we might all recommit ourselves to do everything in o
 
 
 
-#Commandments #Covenants #Obedience #Reverence

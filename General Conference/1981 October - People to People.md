@@ -1,7 +1,5 @@
 # People to People
 
-Gordon B. Hinckley
-
 By Elder David B. Haight - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1981 General Conference*
@@ -139,4 +137,3 @@ God lives. Jesus is the Christ. This is His work, to which I testify, in the nam
 
 
 
-#Activation #Fellowshipping

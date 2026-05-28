@@ -1,7 +1,5 @@
 # Lay Up in Store
 
-Thomas S. Monson
-
 By Bishop Keith B. McMullin - *Second Counselor in the Presiding Bishopric*
 
 *Given in the April session of the 2007 General Conference*
@@ -131,7 +129,3 @@ As a final thought, Brother Vaccarono writes: “I’m sorry for my English. I h
 
 [^21]: [[Proverbs 3.5|Proverbs 3:5–6]][[Proverbs 3.6|]].
 
-
-
-
-#Dedication #Financial_Management #Obedience #Preparation #Self-Reliance

@@ -1,7 +1,5 @@
 # Making the Right Choices
 
-Gordon B. Hinckley
-
 By Elder Richard G. Scott - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1994 General Conference*
@@ -97,7 +95,3 @@ Please stay morally clean. The Lord will make that possible as you do your part 
 
 [^20]: See [[3 Nephi 18.20|3 Ne. 18:20]].
 
-
-
-
-#Agency #Friendship #Holy_Ghost #Love #Marriage #Media #Morality #Peer_Pressure #Repentance #Satan #Sin #Youth

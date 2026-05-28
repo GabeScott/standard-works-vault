@@ -1,7 +1,5 @@
 # Sacred Keys of the Aaronic Priesthood
 
-Thomas S. Monson
-
 By Larry M. Gibson - *First Counselor in the Young Men General Presidency*
 
 *Given in the April session of the 2011 General Conference*
@@ -81,4 +79,3 @@ I know these words are true, and I pray that each of us will have that same witn
 
 
 
-#Aaronic_Priesthood #Duty #Leadership #Priesthood

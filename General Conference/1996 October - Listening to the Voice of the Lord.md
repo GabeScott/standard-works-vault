@@ -1,7 +1,5 @@
 # Listening to the Voice of the Lord
 
-Gordon B. Hinckley
-
 By Elder Francisco J. Viñas - *Of the Seventy*
 
 *Given in the October session of the 1996 General Conference*
@@ -51,4 +49,3 @@ This conference is a great opportunity to listen to the voice of the Lord, to fo
 
 
 
-#Conversion #Holy_Ghost #Humility #Jesus_Christ #Listening #Obedience #Prayer #Pride

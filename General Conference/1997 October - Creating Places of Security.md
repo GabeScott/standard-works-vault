@@ -1,7 +1,5 @@
 # Creating Places of Security
 
-Gordon B. Hinckley
-
 By Virginia U. Jensen - *First Counselor in the Relief Society General Presidency*
 
 *Given in the October session of the 1997 General Conference*
@@ -57,4 +55,3 @@ I want you to know of my knowledge that our Father in Heaven is real. He lives a
 
 
 
-#Agency #Children #Commandments #Example #Motherhood #Ordinances #Parenthood #Peace #Prayer #Safety #Women

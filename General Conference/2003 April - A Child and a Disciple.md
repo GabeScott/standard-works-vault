@@ -1,7 +1,5 @@
 # A Child and a Disciple
 
-Gordon B. Hinckley
-
 By Elder Henry B. Eyring - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2003 General Conference*
@@ -97,7 +95,3 @@ In the name of Jesus Christ, amen.
 
 [^6]: See [[D&C 50.41|D&C 50:41–42]][[D&C 50.42|]].
 
-
-
-
-#Fear #Love #Missionary_Work #Prayer #Testimony

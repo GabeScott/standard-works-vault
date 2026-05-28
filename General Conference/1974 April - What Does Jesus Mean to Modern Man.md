@@ -1,7 +1,5 @@
 # What Does Jesus Mean to Modern Man?
 
-Spencer W. Kimball
-
 By Elder David B. Haight - *Assistant to the Council of the Twelve*
 
 *Given in the April session of the 1974 General Conference*
@@ -59,4 +57,3 @@ To the question “What does Jesus mean to modern man?” I testify that he mean
 
 
 
-#Jesus_Christ #Testimony

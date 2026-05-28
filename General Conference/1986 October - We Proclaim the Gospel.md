@@ -1,7 +1,5 @@
 # We Proclaim the Gospel
 
-Ezra Taft Benson
-
 By Elder M. Russell Ballard - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1986 General Conference*
@@ -76,7 +74,7 @@ From Oregon:
 
 “My date came and went, with a few pangs of guilt. However, I received a message one week later that an old friend of mine that I had gone to school with wanted me to call. I gave him a call and invited him over that night. My friend went with me to pick up some pizza. As we drove into town, I told him that I was a member of the LDS church. He was interested, so I related some of the many blessings I had received. I then asked him to attend church with me that next Sunday, which he did.
 
-“From the beginning, he accepted it all. We invited him to be baptized. He said he didn’t want to be rushed into anything. At this time, I was impressed to read to him from the Book of Mormon, using the words that Alma used at the waters of Mormon. As I read those verses from [[Mosiah 18.1|Mosiah 18]] to him, I paused at each question that Alma asked and asked him if he were willing to do it also. He said yes to all of it. Then I read him verse 10 and asked him, ‘What have you against being baptized?’
+“From the beginning, he accepted it all. We invited him to be baptized. He said he didn’t want to be rushed into anything. At this time, I was impressed to read to him from the Book of Mormon, using the words that Alma used at the waters of Mormon. As I read those verses from [[Mosiah 18.1|Mosiah 18]][[Mosiah 18.2|]][[Mosiah 18.3|]][[Mosiah 18.4|]][[Mosiah 18.5|]][[Mosiah 18.6|]][[Mosiah 18.7|]][[Mosiah 18.8|]][[Mosiah 18.9|]][[Mosiah 18.10|]][[Mosiah 18.11|]][[Mosiah 18.12|]][[Mosiah 18.13|]][[Mosiah 18.14|]][[Mosiah 18.15|]][[Mosiah 18.16|]][[Mosiah 18.17|]][[Mosiah 18.18|]][[Mosiah 18.19|]][[Mosiah 18.20|]][[Mosiah 18.21|]][[Mosiah 18.22|]][[Mosiah 18.23|]][[Mosiah 18.24|]][[Mosiah 18.25|]][[Mosiah 18.26|]][[Mosiah 18.27|]][[Mosiah 18.28|]][[Mosiah 18.29|]][[Mosiah 18.30|]][[Mosiah 18.31|]][[Mosiah 18.32|]][[Mosiah 18.33|]][[Mosiah 18.34|]][[Mosiah 18.35|]] to him, I paused at each question that Alma asked and asked him if he were willing to do it also. He said yes to all of it. Then I read him verse 10 and asked him, ‘What have you against being baptized?’
 
 “He looked at me and said, ‘You’re right, I have nothing to wait for.’ So the date was set, and I baptized and confirmed him a member of the Church.”
 
@@ -137,4 +135,3 @@ May the Lord bless us all with increased faith to move his work forward, I humbl
 
 
 
-#Commitment #Love #Missionary_Work

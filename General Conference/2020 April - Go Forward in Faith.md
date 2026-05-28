@@ -1,7 +1,5 @@
 # Go Forward in Faith
 
-Russell M. Nelson
-
 By President Russell M. Nelson - *President of The Church of Jesus Christ of Latter-day Saints*
 
 *Given in the April session of the 2020 General Conference*
@@ -87,7 +85,3 @@ I so bless you, adding once more my expression of love for each of you, in the s
 
 [^8]: See [[3 Nephi 27.27|3 Nephi 27:27]].
 
-
-
-
-#Covenants #Faith #Jesus_Christ #Peace #Restoration #Temples

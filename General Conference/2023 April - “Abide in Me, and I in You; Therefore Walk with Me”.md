@@ -1,7 +1,5 @@
 # “Abide in Me, and I in You; Therefore Walk with Me”
 
-Gary E. Stevenson
-
 By Elder David A. Bednar - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2023 General Conference*
@@ -167,7 +165,3 @@ I joyfully witness that Jesus Christ is our loving and living Savior and Redeeme
 
 [^30]: See [[John 15.5|John 15:5]].
 
-
-
-
-#Covenants #Discipleship #Endurance #Jesus_Christ

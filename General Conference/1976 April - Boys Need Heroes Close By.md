@@ -1,7 +1,5 @@
 # Boys Need Heroes Close By
 
-Spencer W. Kimball
-
 By President Spencer W. Kimball - *President of the Church*
 
 *Given in the April session of the 1976 General Conference*
@@ -102,4 +100,3 @@ And this, my dear beloved brethren, I pray in the name of Jesus Christ. Amen.
 
 
 
-#Example #Fatherhood #Heroes #Priesthood

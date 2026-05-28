@@ -1,7 +1,5 @@
 # Integrity: A Christlike Attribute
 
-Dallin H. Oaks
-
 By Elder Jack N. Gerard - *Of the Seventy*
 
 *Given in the April session of the 2024 General Conference*
@@ -121,7 +119,3 @@ As Job said, “Let me be weighed in an even balance, that God may know mine int
 
 [^27]: [[Job 31.6|Job 31:6]].
 
-
-
-
-#Adversity #Divine_Nature #Honesty #Jesus_Christ #Love

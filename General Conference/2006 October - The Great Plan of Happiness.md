@@ -1,7 +1,5 @@
 # The Great Plan of Happiness
 
-Gordon B. Hinckley
-
 By Elder Marcus B. Nash - *Of the Seventy*
 
 *Given in the October session of the 2006 General Conference*
@@ -41,4 +39,3 @@ As you accept this invitation, you will reap lasting happiness and build the fou
 
 
 
-#Joy #Plan_Of_Salvation #Repentance #Temptation

@@ -1,7 +1,5 @@
 # Forgiveness Will Change Bitterness to Love
 
-Gordon B. Hinckley
-
 By Elder David E. Sorensen - *Of the Presidency of the Seventy*
 
 *Given in the April session of the 2003 General Conference*
@@ -67,7 +65,3 @@ May the seeds of unforgivingness that haunted my neighbors never be allowed to t
 
 [^6]: [[Colossians 3.13|Colossians 3:13]].
 
-
-
-
-#Anger #Criticism #Family #Forgiveness #Love

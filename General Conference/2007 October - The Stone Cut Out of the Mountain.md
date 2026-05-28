@@ -1,7 +1,5 @@
 # The Stone Cut Out of the Mountain
 
-Gordon B. Hinckley
-
 By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the October session of the 2007 General Conference*
@@ -85,4 +83,3 @@ I leave with you my testimony of the truth of these things, and I invoke the ble
 
 
 
-#Church_Growth #Restoration #Testimony

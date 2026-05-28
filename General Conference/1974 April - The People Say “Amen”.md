@@ -1,7 +1,5 @@
 # The People Say “Amen”
 
-Spencer W. Kimball
-
 By Elder Mark E. Petersen - *Of the Council of the Twelve*
 
 *Given in the April session of the 1974 General Conference*
@@ -127,4 +125,3 @@ I know that my Redeemer lives. He has made known to me personally that what I ha
 
 
 
-#Church_Leaders #Prophets

@@ -1,7 +1,5 @@
 # Yes, Lord, I Will Follow Thee
 
-Thomas S. Monson
-
 By Elder Eduardo Gavarret - *Of the Seventy*
 
 *Given in the October session of the 2014 General Conference*
@@ -135,7 +133,3 @@ May we make the decision today to increase our level of worship and commitment t
 
 [^21]: See “Lord, I Would Follow Thee,” *Hymns,* no. 220.
 
-
-
-
-#Conversion #Jesus_Christ #Missionary_Work #Obedience

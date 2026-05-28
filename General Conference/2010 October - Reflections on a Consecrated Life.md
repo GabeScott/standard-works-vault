@@ -1,7 +1,5 @@
 # Reflections on a Consecrated Life
 
-Thomas S. Monson
-
 By Elder D. Todd Christofferson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2010 General Conference*
@@ -81,7 +79,3 @@ A consecrated life is a beautiful thing. Its strength and serenity are “as a v
 
 [^5]: “The Family: A Proclamation to the World,” *Liahona,* Oct. 2004, 49; *Ensign,* Nov. 1995, 102.
 
-
-
-
-#Consecration #Integrity #Morality #Service #Work

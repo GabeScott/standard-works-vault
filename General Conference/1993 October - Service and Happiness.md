@@ -1,7 +1,5 @@
 # Service and Happiness
 
-Gordon B. Hinckley
-
 By Elder Jacob de Jager - *Emeritus Member of the Seventy*
 
 *Given in the October session of the 1993 General Conference*
@@ -53,4 +51,3 @@ In closing, I bear solemn witness that God, our Eternal Father, lives; that Jesu
 
 
 
-#Attitude #Joy

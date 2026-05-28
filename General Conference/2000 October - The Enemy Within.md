@@ -1,7 +1,5 @@
 # The Enemy Within
 
-Gordon B. Hinckley
-
 By President James E. Faust - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 2000 General Conference*
@@ -103,7 +101,3 @@ Exaltation in the Father’s kingdom includes kingdoms, thrones, dominions, prin
 
 [^17]: See *Teachings of Presidents of the Church: Brigham Young* (1997), 72.
 
-
-
-
-#Covenants #Home_Teaching #Honesty #Media #Obedience #Priesthood #Repentance #Satan #Self-Control #Temptation #Word_Of_Wisdom

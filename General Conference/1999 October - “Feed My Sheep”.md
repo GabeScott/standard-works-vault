@@ -1,7 +1,5 @@
 # “Feed My Sheep”
 
-Gordon B. Hinckley
-
 By Elder Ben B. Banks - *Of the Presidency of the Seventy*
 
 *Given in the October session of the 1999 General Conference*
@@ -134,4 +132,3 @@ The Good Shepherd willingly gave His life for His sheep, for you and me—yes, f
 
 
 
-#Activation #Children #Commitment #Fellowshipping #Individual_Worth #Love #Parenthood #Teaching #Testimony #Youth

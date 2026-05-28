@@ -1,7 +1,5 @@
 # A Divine Prescription for Spiritual Healing
 
-James E. Faust
-
 By Elder Malcolm S. Jeppsen - *Of the Seventy*
 
 *Given in the April session of the 1994 General Conference*
@@ -69,4 +67,3 @@ I testify that while there are physical ailments that are not healed, all spirit
 
 
 
-#Commandments #Death #Forgiveness #Healing #Jesus_Christ #Mercy #Ordinances #Repentance #Sin

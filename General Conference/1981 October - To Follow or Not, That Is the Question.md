@@ -1,7 +1,5 @@
 # To Follow or Not, That Is the Question
 
-Gordon B. Hinckley
-
 By Elder Charles Didier - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1981 General Conference*
@@ -112,4 +110,3 @@ Our testimony to the world is that Jesus is the Christ, our Savior and our Redee
 
 
 
-#Duty #Endurance

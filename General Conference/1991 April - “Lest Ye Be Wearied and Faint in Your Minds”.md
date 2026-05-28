@@ -1,7 +1,5 @@
 # “Lest Ye Be Wearied and Faint in Your Minds”
 
-Thomas S. Monson
-
 By Elder Neal A. Maxwell - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1991 General Conference*
@@ -91,4 +89,3 @@ Growing out of our faith in the Lord is our sustaining of His anointed leaders, 
 
 
 
-#Endurance #Faith #Jesus_Christ #Service

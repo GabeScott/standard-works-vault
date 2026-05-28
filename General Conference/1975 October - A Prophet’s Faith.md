@@ -1,7 +1,5 @@
 # A Prophet’s Faith
 
-Spencer W. Kimball
-
 By Elder A. Theodore Tuttle - *Of the First Council of the Seventy*
 
 *Given in the October session of the 1975 General Conference*
@@ -87,4 +85,3 @@ I bear witness that this work is true and that President Kimball is a living pro
 
 
 
-#Faith #Missionary_Work

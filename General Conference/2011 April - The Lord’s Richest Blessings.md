@@ -1,7 +1,5 @@
 # The Lord’s Richest Blessings
 
-Thomas S. Monson
-
 By Elder Carl B. Pratt - *Of the Seventy*
 
 *Given in the April session of the 2011 General Conference*
@@ -51,4 +49,3 @@ I testify that as we pay our tithing faithfully, the Lord will open the windows 
 
 
 
-#Faith #Tithing

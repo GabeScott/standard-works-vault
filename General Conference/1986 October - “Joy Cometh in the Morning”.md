@@ -1,7 +1,5 @@
 # “Joy Cometh in the Morning”
 
-Ezra Taft Benson
-
 By Elder Russell M. Nelson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1986 General Conference*
@@ -121,4 +119,3 @@ Then, “there’ll be peace and contentment evermore, ev’ry heart, ev’ry vo
 
 
 
-#Joy #Self-Esteem #Word_Of_Wisdom

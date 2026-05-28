@@ -1,7 +1,5 @@
 # Peace
 
-Thomas S. Monson
-
 By Elder Robert E. Wells - *Of the Seventy*
 
 *Given in the April session of the 1991 General Conference*

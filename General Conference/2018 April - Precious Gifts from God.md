@@ -1,7 +1,5 @@
 # Precious Gifts from God
 
-Henry B. Eyring
-
 By President M. Russell Ballard - *Acting President of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2018 General Conference*
@@ -115,7 +113,3 @@ I testify that Jesus Christ is our Savior. What we will be taught at this genera
 
 [^16]: See [[James 1.27|James 1:27]].
 
-
-
-
-#Faith #Jesus_Christ #Prophets #Sabbath #Sacrament #Service

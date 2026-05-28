@@ -1,7 +1,5 @@
 # “They’re Not Really Happy”
 
-Ezra Taft Benson
-
 By Bishop Glenn L. Pace - *Second Counselor in the Presiding Bishopric*
 
 *Given in the October session of the 1987 General Conference*
@@ -55,4 +53,3 @@ At your earthly home, you will find your father’s arms have always been open f
 
 
 
-#Agency #Standards #Temptation #Worldliness #Youth

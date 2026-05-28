@@ -1,7 +1,5 @@
 # A Latter-day Samaritan
 
-Thomas S. Monson
-
 By Elder Merlin R. Lybbert - *Of the Seventy*
 
 *Given in the April session of the 1990 General Conference*
@@ -71,4 +69,3 @@ I pray that each of us will develop a receptive and understanding heart that wil
 
 
 
-#Activation #Fellowshipping #Love #Service

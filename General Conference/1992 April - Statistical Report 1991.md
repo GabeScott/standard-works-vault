@@ -1,7 +1,5 @@
 # Statistical Report 1991
 
-Thomas S. Monson
-
 By Presented by F. Michael Watson - *Secretary to the First Presidency*
 
 *Given in the April session of the 1992 General Conference*

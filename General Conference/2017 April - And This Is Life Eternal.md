@@ -1,7 +1,5 @@
 # And This Is Life Eternal
 
-Bonnie H. Cordon
-
 By Elder C. Scott Grow - *Of the Seventy*
 
 *Given in the April session of the 2017 General Conference*
@@ -153,7 +151,3 @@ God knows *you* and invites *you* to know *Him.* Pray to the Father, study the s
 
 [^19]: [[D&C 128.22|Doctrine and Covenants 128:22]].
 
-
-
-
-#Example #Jesus_Christ #Joseph_Smith #Obedience #Prayer #Scripture_Study #Worthiness

@@ -1,7 +1,5 @@
 # Sacrifice: Missionary-Style
 
-Spencer W. Kimball
-
 By Elder Adney Y. Komatsu - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1977 General Conference*
@@ -89,4 +87,3 @@ I bear you my humble testimony that I know God lives and that Jesus is the Chris
 
 
 
-#Missionary_Work

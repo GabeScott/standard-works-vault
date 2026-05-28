@@ -1,7 +1,5 @@
 # Why Marriage and Family Matter—Everywhere in the World
 
-Cheryl A. Esplin
-
 By Elder L. Tom Perry - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2015 General Conference*
@@ -85,7 +83,3 @@ I give thanks for my wife, for my children, for my grandchildren and my great-gr
 
 [^4]: David Brooks, “The Age of Possibility,” *New York Times,* Nov. 16, 2012, A35, nytimes.com/2012/11/16/opinion/brooks-the-age-of-possibility.html.
 
-
-
-
-#Family #Marriage

@@ -1,7 +1,5 @@
 # Do unto Others …
 
-Spencer W. Kimball
-
 By Elder Mark E. Petersen - *Of the Council of the Twelve*
 
 *Given in the April session of the 1977 General Conference*
@@ -127,4 +125,3 @@ So what are we to do? We are to “seek … first the kingdom of God and his rig
 
 
 
-#Brotherhood #Kindness

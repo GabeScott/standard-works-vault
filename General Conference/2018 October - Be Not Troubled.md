@@ -1,7 +1,5 @@
 # Be Not Troubled
 
-Russell M. Nelson
-
 By Elder Ronald A. Rasband - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2018 General Conference*
@@ -129,7 +127,3 @@ Take heart, brothers and sisters. Yes, we live in perilous times, but as we stay
 
 [^23]: Spencer W. Kimball, in Conference Report, Oct. 1943, 16–17.
 
-
-
-
-#Faith #Jesus_Christ

@@ -1,7 +1,5 @@
 # Justice and Mercy
 
-Spencer W. Kimball
-
 By Elder James A. Cullimore - *Assistant to the Council of the Twelve*
 
 *Given in the April session of the 1974 General Conference*
@@ -95,4 +93,3 @@ May we so enjoy the blessings of the gospel. I leave you my testimony of the div
 
 
 
-#Justice #Mercy #Repentance

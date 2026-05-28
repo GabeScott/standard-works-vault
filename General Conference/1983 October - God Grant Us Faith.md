@@ -1,7 +1,5 @@
 # God Grant Us Faith
 
-Gordon B. Hinckley
-
 By President Gordon B. Hinckley - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 1983 General Conference*
@@ -130,4 +128,3 @@ God grant us faith, I humbly pray in the name of Jesus Christ, amen.
 
 
 
-#Faith

@@ -1,7 +1,5 @@
 # Forgiveness: The Ultimate Form of Love
 
-Harold B. Lee
-
 By Elder Marion D. Hanks - *Assistant to the Council of the Twelve*
 
 *Given in the October session of the 1973 General Conference*
@@ -89,4 +87,3 @@ In the name of Jesus Christ. Amen.
 
 
 
-#Charity #Forgiveness

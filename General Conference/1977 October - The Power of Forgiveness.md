@@ -1,7 +1,5 @@
 # The Power of Forgiveness
 
-Spencer W. Kimball
-
 By President Spencer W. Kimball - *President of the Church*
 
 *Given in the October session of the 1977 General Conference*
@@ -127,4 +125,3 @@ We shall love all our neighbors as ourselves and God will bless all of us. Jesus
 
 
 
-#Activation #Forgiveness

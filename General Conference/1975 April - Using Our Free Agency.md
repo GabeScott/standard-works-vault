@@ -1,7 +1,5 @@
 # Using Our Free Agency
 
-Spencer W. Kimball
-
 By Elder Delbert L. Stapley - *Of the Council of the Twelve*
 
 *Given in the April session of the 1975 General Conference*
@@ -87,4 +85,3 @@ May God bless us all that we will have the desire and courage to exercise our fr
 
 
 
-#Agency

@@ -1,7 +1,5 @@
 # “May the Kingdom of God Go Forth”
 
-Spencer W. Kimball
-
 By President Ezra Taft Benson - *Of the Council of the Twelve*
 
 *Given in the April session of the 1978 General Conference*
@@ -99,4 +97,3 @@ I bear humble witness that The Church of Jesus Christ of Latter-day Saints is th
 
 
 
-#Kingdom_Of_God

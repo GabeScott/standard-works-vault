@@ -1,7 +1,5 @@
 # Keep the Commandments
 
-Rosemary M. Wixom
-
 By President Thomas S. Monson - *President of the Church*
 
 *Given in the October session of the 2015 General Conference*
@@ -75,7 +73,3 @@ My brethren, may we keep the commandments! Wonderful and glorious are the reward
 
 [^10]: [[Jeremiah 31.34|Jeremiah 31:34]].
 
-
-
-
-#Atonement #Commandments #Courage #Holy_Ghost #Jesus_Christ #Obedience #Repentance

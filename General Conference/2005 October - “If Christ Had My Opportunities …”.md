@@ -1,7 +1,5 @@
 # “If Christ Had My Opportunities …”
 
-Gordon B. Hinckley
-
 By Elder Paul K. Sybrowsky - *Of the Seventy*
 
 *Given in the October session of the 2005 General Conference*

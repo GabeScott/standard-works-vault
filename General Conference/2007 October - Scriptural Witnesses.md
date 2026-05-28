@@ -1,7 +1,5 @@
 # Scriptural Witnesses
 
-Gordon B. Hinckley
-
 By Elder Russell M. Nelson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2007 General Conference*
@@ -161,7 +159,7 @@ I know that God lives. Jesus is the Christ. His gospel has been restored in thes
 
 [^28]: See [[1 Nephi 11.13|1 Nephi 11:13–20]][[1 Nephi 11.14|]][[1 Nephi 11.15|]][[1 Nephi 11.16|]][[1 Nephi 11.17|]][[1 Nephi 11.18|]][[1 Nephi 11.19|]][[1 Nephi 11.20|]]; [[Alma 7.10|Alma 7:10]].
 
-[^29]: See [[3 Nephi 12.1|3 Nephi 12–14]].
+[^29]: See [[3 Nephi 12.1|3 Nephi 12–14]][[3 Nephi 12.2|]][[3 Nephi 12.3|]][[3 Nephi 12.4|]][[3 Nephi 12.5|]][[3 Nephi 12.6|]][[3 Nephi 12.7|]][[3 Nephi 12.8|]][[3 Nephi 12.9|]][[3 Nephi 12.10|]][[3 Nephi 12.11|]][[3 Nephi 12.12|]][[3 Nephi 12.13|]][[3 Nephi 12.14|]][[3 Nephi 12.15|]][[3 Nephi 12.16|]][[3 Nephi 12.17|]][[3 Nephi 12.18|]][[3 Nephi 12.19|]][[3 Nephi 12.20|]][[3 Nephi 12.21|]][[3 Nephi 12.22|]][[3 Nephi 12.23|]][[3 Nephi 12.24|]][[3 Nephi 12.25|]][[3 Nephi 12.26|]][[3 Nephi 12.27|]][[3 Nephi 12.28|]][[3 Nephi 12.29|]][[3 Nephi 12.30|]][[3 Nephi 12.31|]][[3 Nephi 12.32|]][[3 Nephi 12.33|]][[3 Nephi 12.34|]][[3 Nephi 12.35|]][[3 Nephi 12.36|]][[3 Nephi 12.37|]][[3 Nephi 12.38|]][[3 Nephi 12.39|]][[3 Nephi 12.40|]][[3 Nephi 12.41|]][[3 Nephi 12.42|]][[3 Nephi 12.43|]][[3 Nephi 12.44|]][[3 Nephi 12.45|]][[3 Nephi 12.46|]][[3 Nephi 12.47|]][[3 Nephi 12.48|]].
 
 [^30]: See [[Mosiah 3.7|Mosiah 3:7]]. A firsthand account of His suffering was given to His latter-day prophet (see [[D&C 19.16|D&C 19:16–19]][[D&C 19.17|]][[D&C 19.18|]][[D&C 19.19|]]).
 
@@ -193,7 +191,3 @@ I know that God lives. Jesus is the Christ. His gospel has been restored in thes
 
 [^44]: See [[3 Nephi 9.14|3 Nephi 9:14]]; [[D&C 30.8|D&C 30:8]].
 
-
-
-
-#Bible #Book_Of_Mormon #Scriptures #Testimony

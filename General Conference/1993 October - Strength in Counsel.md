@@ -1,7 +1,5 @@
 # Strength in Counsel
 
-Gordon B. Hinckley
-
 By Elder M. Russell Ballard - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1993 General Conference*
@@ -89,4 +87,3 @@ I know God lives and Jesus is the Christ. I know we can accomplish their work be
 
 
 
-#Councils #Leadership #Priesthood

@@ -1,7 +1,5 @@
 # How Does the Holy Ghost Help You?
 
-Bonnie H. Cordon
-
 By Elder Gary E. Stevenson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2017 General Conference*
@@ -123,7 +121,3 @@ My dear brothers and sisters, old and young, I offer my witness of the glorious 
 
 [^11]: “The Still Small Voice,” *Children’s Songbook,* 107.
 
-
-
-
-#Adversity #Children #Holy_Ghost #Promptings #Worthiness

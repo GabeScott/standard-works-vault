@@ -1,7 +1,5 @@
 # That the Scriptures Might Be Fulfilled
 
-Spencer W. Kimball
-
 By Elder S. Dilworth Young - *Of the First Council of the Seventy*
 
 *Given in the April session of the 1974 General Conference*
@@ -78,4 +76,3 @@ In the name of Jesus Christ. Amen.
 
 
 
-#Jesus_Christ #Prophecy

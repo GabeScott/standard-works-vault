@@ -1,7 +1,5 @@
 # We Have Kept the Faith
 
-Thomas S. Monson
-
 By Elder Eduardo Ayala - *Of the Seventy*
 
 *Given in the April session of the 1995 General Conference*
@@ -63,4 +61,3 @@ May the Lord bless us to continue being valiant, humble, and faithful. In the na
 
 
 
-#Endurance #Faith #Humility #Prayer #Priesthood #Scripture_Study #Trust

@@ -1,7 +1,5 @@
 # Worthy Fathers, Worthy Sons
 
-Gordon B. Hinckley
-
 By President Ezra Taft Benson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1985 General Conference*
@@ -63,4 +61,3 @@ May we fathers teach our sons as the exemplary Book of Mormon fathers taught the
 
 
 
-#Parenthood #Teaching

@@ -1,7 +1,5 @@
 # Parenthood
 
-Spencer W. Kimball
-
 By Elder O. Leslie Stone - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1976 General Conference*
@@ -116,4 +114,3 @@ May we all live to bring this promise of eternal life to ourselves and our famil
 
 
 
-#Example #Parenthood

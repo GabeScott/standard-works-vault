@@ -1,7 +1,5 @@
 # Gratitude on the Sabbath Day
 
-Jean B. Bingham
-
 By President Henry B. Eyring - *First Counselor in the First Presidency*
 
 *Given in the October session of the 2016 General Conference*
@@ -122,7 +120,3 @@ I testify that God the Father knows and loves you. The Savior, the Lord Jesus Ch
 
 [^8]: [[Mosiah 24.13|Mosiah 24:13–15]][[Mosiah 24.14|]][[Mosiah 24.15|]].
 
-
-
-
-#Adversity #Church_Callings #Gratitude #Love #Sabbath #Sacrament #Service

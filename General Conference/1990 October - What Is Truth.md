@@ -1,7 +1,5 @@
 # What Is Truth?
 
-Gordon B. Hinckley
-
 By Elder Lynn A. Mickelsen - *Of the Seventy*
 
 *Given in the October session of the 1990 General Conference*
@@ -59,4 +57,3 @@ Yes, for me it is as clear as the night from the day. Their witness of the Savio
 
 
 
-#Education #Testimony #Truth

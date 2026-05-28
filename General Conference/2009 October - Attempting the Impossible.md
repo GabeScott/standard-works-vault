@@ -1,7 +1,5 @@
 # Attempting the Impossible
 
-Thomas S. Monson
-
 By Elder Jorge F. Zeballos - *Of the Seventy*
 
 *Given in the October session of the 2009 General Conference*
@@ -57,7 +55,3 @@ The author of the perfect plan that contains these glorious promises is our Fath
 
 [^8]: [[2 Timothy 4.7|2 Timothy 4:7]].
 
-
-
-
-#Atonement #Plan_Of_Salvation

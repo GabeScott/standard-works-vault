@@ -1,7 +1,5 @@
 # Family Preparedness
 
-Spencer W. Kimball
-
 By President Spencer W. Kimball - *President of the Church*
 
 *Given in the April session of the 1976 General Conference*
@@ -95,4 +93,3 @@ Brethren and sisters, I’m sure it is time that I should close. But I want to c
 
 
 
-#Family #Self-Reliance #Work

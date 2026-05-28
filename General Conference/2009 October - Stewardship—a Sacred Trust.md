@@ -1,7 +1,5 @@
 # Stewardship—a Sacred Trust
 
-Thomas S. Monson
-
 By Elder Quentin L. Cook - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2009 General Conference*
@@ -93,7 +91,7 @@ I bear my witness of this sacred truth in the name of Jesus Christ, amen.
 
 [^9]: “Talk,” in Collected Poems of John Holmes, http://hdl.handle.net/10427/14894.
 
-[^10]: See [[D&C 20.37|D&C 20:37]]; [[2 Nephi 2.7|2 Nephi 2:7]]; [[Alma 39.1|Alma 39]]; [[3 Nephi 9.20|3 Nephi 9:20]]. President Ezra Taft Benson defined a broken heart and a contrite spirit this way: “Godly sorrow … is a deep realization that our actions have offended our Father and our God. It is the sharp and keen awareness that … our sins caused Him \[the Savior\] to bleed at every pore. This very real mental and spiritual anguish is what the scriptures refer to as having a ‘broken heart and a contrite spirit’” (“A Mighty Change of Heart,” *Tambuli,* Mar. 1990, 5; *Ensign,* Oct. 1989, 4).
+[^10]: See [[D&C 20.37|D&C 20:37]]; [[2 Nephi 2.7|2 Nephi 2:7]]; [[Alma 39.1|Alma 39]][[Alma 39.2|]][[Alma 39.3|]][[Alma 39.4|]][[Alma 39.5|]][[Alma 39.6|]][[Alma 39.7|]][[Alma 39.8|]][[Alma 39.9|]][[Alma 39.10|]][[Alma 39.11|]][[Alma 39.12|]][[Alma 39.13|]][[Alma 39.14|]][[Alma 39.15|]][[Alma 39.16|]][[Alma 39.17|]][[Alma 39.18|]][[Alma 39.19|]]; [[3 Nephi 9.20|3 Nephi 9:20]]. President Ezra Taft Benson defined a broken heart and a contrite spirit this way: “Godly sorrow … is a deep realization that our actions have offended our Father and our God. It is the sharp and keen awareness that … our sins caused Him \[the Savior\] to bleed at every pore. This very real mental and spiritual anguish is what the scriptures refer to as having a ‘broken heart and a contrite spirit’” (“A Mighty Change of Heart,” *Tambuli,* Mar. 1990, 5; *Ensign,* Oct. 1989, 4).
 
 [^11]: [[Alma 42.29|Alma 42:29]].
 
@@ -121,7 +119,3 @@ I bear my witness of this sacred truth in the name of Jesus Christ, amen.
 
 [^23]: [[D&C 51.19|D&C 51:19]]; see also [[Matthew 25.34|Matthew 25:34–46]][[Matthew 25.35|]][[Matthew 25.36|]][[Matthew 25.37|]][[Matthew 25.38|]][[Matthew 25.39|]][[Matthew 25.40|]][[Matthew 25.41|]][[Matthew 25.42|]][[Matthew 25.43|]][[Matthew 25.44|]][[Matthew 25.45|]][[Matthew 25.46|]].
 
-
-
-
-#Accountability #Family #Morality #Service #Virtue

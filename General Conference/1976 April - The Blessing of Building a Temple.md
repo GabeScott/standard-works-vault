@@ -1,7 +1,5 @@
 # The Blessing of Building a Temple
 
-Spencer W. Kimball
-
 By Elder Adney Y. Komatsu - *Assistant to the Council of the Twelve*
 
 *Given in the April session of the 1976 General Conference*
@@ -49,4 +47,3 @@ I bear you my witness that the gospel of Jesus Christ is the way of salvation fo
 
 
 
-#Missionary_Work #Temples

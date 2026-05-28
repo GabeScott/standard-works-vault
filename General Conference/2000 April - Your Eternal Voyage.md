@@ -1,7 +1,5 @@
 # Your Eternal Voyage
 
-Gordon B. Hinckley
-
 By President Thomas S. Monson - *First Counselor in the First Presidency*
 
 *Given in the April session of the 2000 General Conference*
@@ -101,7 +99,3 @@ May we be wise mariners as we go forth on such a voyage. Let us be pure vessels 
 
 [^9]: [[Ether 12.27|Ether 12:27]].
 
-
-
-
-#Blessings #Commitment #Faith #Fear #Jesus_Christ #Miracles #Priesthood #Responsibility #Service #Sin #Spirituality #Worthiness

@@ -1,7 +1,5 @@
 # The Best Investment
 
-Dieter F. Uchtdorf
-
 By Elder Sheldon F. Child - *Of the Seventy*
 
 *Given in the April session of the 2008 General Conference*
@@ -47,7 +45,3 @@ As we faithfully pay our tithes, the Lord will indeed open the windows of heaven
 
 [^5]: John A. Widtsoe, in “Tithing Testimonies of Our Leaders,” *Deseret News,* May 16, 1936, Church Section, 5.
 
-
-
-
-#Blessings #Obedience #Tithing

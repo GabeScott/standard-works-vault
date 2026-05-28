@@ -1,7 +1,5 @@
 # Women and Gospel Learning in the Home
 
-Russell M. Nelson
-
 By President Henry B. Eyring - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 2018 General Conference*
@@ -95,7 +93,3 @@ You will each find ways to contribute to the outpouring of truth upon your famil
 
 [^9]: [[3 Nephi 10.4|3 Nephi 10:4]].
 
-
-
-
-#Charity #Family #Home #Learning #Love #Motherhood #Teaching

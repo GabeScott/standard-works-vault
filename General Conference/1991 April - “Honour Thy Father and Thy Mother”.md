@@ -1,7 +1,5 @@
 # “Honour Thy Father and Thy Mother”
 
-Thomas S. Monson
-
 By Elder Dallin H. Oaks - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1991 General Conference*
@@ -87,4 +85,3 @@ In time to come, each of us will be judged by the Lord God of Israel, who comman
 
 
 
-#Elderly #Example #Family

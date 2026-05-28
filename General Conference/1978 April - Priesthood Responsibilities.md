@@ -1,7 +1,5 @@
 # Priesthood Responsibilities
 
-Spencer W. Kimball
-
 By President Marion G. Romney - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 1978 General Conference*
@@ -135,4 +133,3 @@ These great virtues, you young Aaronic Priesthood brothers, are worth following 
 
 
 
-#Character #Parenthood #Priesthood

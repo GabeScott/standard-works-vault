@@ -1,7 +1,5 @@
 # Reaching Down to Lift Another
 
-Gordon B. Hinckley
-
 By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the October session of the 2001 General Conference*
@@ -123,4 +121,3 @@ I so pray in the name of Jesus Christ, amen.
 
 
 
-#Anger #Commandments #Education #Home #Love #Priesthood #Worthiness

@@ -1,7 +1,5 @@
 # Until We Meet Again
 
-Thomas S. Monson
-
 By President Thomas S. Monson - *President of the Church*
 
 *Given in the October session of the 2008 General Conference*
@@ -45,7 +43,3 @@ I bear witness to you that this work is true, that our Savior lives, and that He
 
 [^2]: See “Deviled Marlowe,” *Time,* Oct. 16, 1964, 77.
 
-
-
-
-#General_Conference #Jesus_Christ #Plan_Of_Salvation #Service

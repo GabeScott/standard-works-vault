@@ -1,7 +1,5 @@
 # The Joy of Honest Labor
 
-Ezra Taft Benson
-
 By Elder L. Tom Perry - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1986 General Conference*
@@ -85,4 +83,3 @@ Should not *all* children receive such a blessing early in their lives? This is 
 
 
 
-#Children #Parenthood #Teaching #Work

@@ -1,7 +1,5 @@
 # Church Finance Committee Report
 
-Spencer W. Kimball
-
 By Presented by Wilford G. Edling - *Chairman, Church Finance Committee*
 
 *Given in the April session of the 1980 General Conference*

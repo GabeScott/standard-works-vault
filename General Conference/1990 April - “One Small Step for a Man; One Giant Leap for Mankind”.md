@@ -1,7 +1,5 @@
 # “One Small Step for a Man; One Giant Leap for Mankind”
 
-Thomas S. Monson
-
 By Elder Carlos E. Asay - *Of the Presidency of the Seventy*
 
 *Given in the April session of the 1990 General Conference*
@@ -75,4 +73,3 @@ I know that Joseph Smith was a prophet, for the fruits of his labors are sweet a
 
 
 
-#Joseph_Smith #Prophets

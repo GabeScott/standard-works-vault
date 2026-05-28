@@ -1,7 +1,5 @@
 # “She Stretcheth Out Her Hand to the Poor”
 
-Spencer W. Kimball
-
 By Barbara B. Smith - *Relief Society General President*
 
 *Given in the October session of the 1977 General Conference*
@@ -77,4 +75,3 @@ It is my prayer that women may, with discernment, minister to the poor and needy
 
 
 
-#Service #Women

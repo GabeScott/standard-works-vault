@@ -1,7 +1,5 @@
 # Draw Nearer to Christ
 
-Gordon B. Hinckley
-
 By Alejandra Hernández - *Federal Heights Ward, Salt Lake Emigration Stake*
 
 *Given in the April session of the 1997 General Conference*
@@ -25,4 +23,3 @@ I know we can overcome the challenges that come our way because we are daughters
 
 
 
-#Jesus_Christ #Scriptures #Young_Women

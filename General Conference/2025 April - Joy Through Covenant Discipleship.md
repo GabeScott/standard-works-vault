@@ -1,7 +1,5 @@
 # Joy Through Covenant Discipleship
 
-Dallin H. Oaks
-
 By Elder John A. McCune - *Of the Seventy*
 
 *Given in the April session of the 2025 General Conference*
@@ -81,7 +79,3 @@ As we bind ourselves to act as covenant disciples, in whatever our level of capa
 
 [^12]: See “[Hesed, God’s Covenant Love, Is the Reason We Build Temples and Perform Ordinances: Instruction from President Russell M. Nelson](https://www.churchofjesuschrist.org/study/manual/leadership-instruction-october-2024/01-nelson?lang=eng),” general conference leadership meeting, Oct. 2024, Gospel Library.
 
-
-
-
-#Covenants #Discipleship #God_The_Father #Jesus_Christ #Joy #Love

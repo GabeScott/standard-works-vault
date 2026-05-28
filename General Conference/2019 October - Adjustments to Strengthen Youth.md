@@ -1,7 +1,5 @@
 # Adjustments to Strengthen Youth
 
-Jeffrey R. Holland
-
 By Elder Quentin L. Cook - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2019 General Conference*
@@ -117,7 +115,3 @@ Dear brothers and sisters, I promise and testify that these comprehensive adjust
 
 [^15]: The presidencies of the Relief Society, Young Women, Young Men, Sunday School, and Primary at the general and stake levels are General Officers or stake officers. At the ward level, the bishopric leads the young men, so Aaronic Priesthood quorum advisers are not ward officers.
 
-
-
-
-#Youth

@@ -1,7 +1,5 @@
 # Before I Build a Wall
 
-Thomas S. Monson
-
 By Elder Loren C. Dunn - *Of the Seventy*
 
 *Given in the April session of the 1991 General Conference*
@@ -69,4 +67,3 @@ May the Lord bless us that we may look upon one another in that spirit. In the n
 
 
 
-#Forgiveness #Love #Tolerance

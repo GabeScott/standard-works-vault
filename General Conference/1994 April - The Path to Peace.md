@@ -1,7 +1,5 @@
 # The Path to Peace
 
-James E. Faust
-
 By President Thomas S. Monson - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 1994 General Conference*
@@ -160,7 +158,3 @@ Such is the message of Easter morn. He lives! And because He lives all shall ind
 
 [^18]: “I Know That My Redeemer Lives,” *Hymns,* 1985, no. 136.
 
-
-
-
-#Death #Family #Jesus_Christ #Love #Media #Opposition #Peace #Resurrection #Violence #Work

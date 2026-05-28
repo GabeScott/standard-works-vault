@@ -1,7 +1,5 @@
 # “By This All Will Know That You Are My Disciples”
 
-Dallin H. Oaks
-
 By Elder Dieter F. Uchtdorf - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2025 General Conference*
@@ -135,7 +133,3 @@ May God bless us to patiently but diligently seek to live up to the ideals our S
 
 [^16]: [[Mosiah 18.8|Mosiah 18:8]]. When we are baptized, we witness that, among other things, we want to be part of a people who “bear one another’s burdens” and “mourn with those \[who\] mourn” and “comfort those that stand in need of comfort” ([[Mosiah 18.8|verses 8–9]][[Mosiah 18.9|]]). In other words, when we join the Church of Jesus Christ, we are saying—humbly but clearly—that we want to become more like our beloved Savior, and we want to do it together.
 
-
-
-
-#Belonging #Discipleship #Love #Unity

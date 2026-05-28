@@ -1,7 +1,5 @@
 # Children of the Covenant
 
-Thomas S. Monson
-
 By Elder Russell M. Nelson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1995 General Conference*
@@ -195,7 +193,3 @@ With that doctrine implanted deeply within our souls, the sting of death is soot
 
 [^41]: [[D&C 86.9|D&C 86:9–11]][[D&C 86.10|]][[D&C 86.11|]].
 
-
-
-
-#Book_Of_Mormon #Children #Covenants #Death #Healing #Marriage #Unity

@@ -1,7 +1,5 @@
 # The Blessings of Peace
 
-Spencer W. Kimball
-
 By Elder Franklin D. Richards - *Assistant to the Council of the Twelve*
 
 *Given in the October session of the 1974 General Conference*
@@ -63,4 +61,3 @@ May each of us in our daily lives assume the role of a peacemaker and enjoy the 
 
 
 
-#Peace

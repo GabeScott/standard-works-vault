@@ -1,7 +1,5 @@
 # Yellow Canaries with Gray on Their Wings
 
-Harold B. Lee
-
 By Elder Thomas S. Monson - *Of the Council of the Twelve*
 
 *Given in the April session of the 1973 General Conference*
@@ -101,4 +99,3 @@ My prayer today is that we indeed will follow the Man of Galilee. May we praise 
 
 
 
-#Individual_Worth #Sin

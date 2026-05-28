@@ -1,7 +1,5 @@
 # Every Man in His Own Place
 
-N. Eldon Tanner
-
 By Elder Marion D. Hanks - *Assistant to the Council of the Twelve*
 
 *Given in the October session of the 1972 General Conference*
@@ -99,4 +97,3 @@ God bless us, I pray in the name of Jesus Christ. Amen.
 
 
 
-#Love #Parenthood #Youth

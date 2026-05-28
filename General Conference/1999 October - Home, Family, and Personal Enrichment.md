@@ -1,7 +1,5 @@
 # Home, Family, and Personal Enrichment
 
-Gordon B. Hinckley
-
 By Virginia U. Jensen - *First Counselor in the Relief Society General Presidency*
 
 *Given in the October session of the 1999 General Conference*
@@ -61,4 +59,3 @@ Relief Society is an organization of divine origin. Within it lies the power to 
 
 
 
-#Family #Home #Jesus_Christ #Relief_Society

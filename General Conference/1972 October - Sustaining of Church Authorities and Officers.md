@@ -1,7 +1,5 @@
 # Sustaining of Church Authorities and Officers
 
-N. Eldon Tanner
-
 By President N. Eldon Tanner - *First Counselor in the First Presidency*
 
 *Given in the October session of the 1972 General Conference*

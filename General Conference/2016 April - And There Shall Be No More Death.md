@@ -1,7 +1,5 @@
 # And There Shall Be No More Death
 
-Cheryl A. Esplin
-
 By Elder Paul V. Johnson - *Of the Seventy*
 
 *Given in the April session of the 2016 General Conference*
@@ -105,7 +103,3 @@ I testify of the reality of the Resurrection. Jesus Christ lives, and because of
 
 [^23]: Alisa Linton, “Life through His Name,” Apr. 8, 2012.
 
-
-
-
-#Adversity #Death #Easter #Hope #Jesus_Christ #Plan_Of_Salvation #Resurrection

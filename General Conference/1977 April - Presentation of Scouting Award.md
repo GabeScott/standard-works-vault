@@ -1,7 +1,5 @@
 # Presentation of Scouting Award
 
-Spencer W. Kimball
-
 By Arch Monson, Jr. - *National President, Boy Scouts of America*
 
 *Given in the April session of the 1977 General Conference*

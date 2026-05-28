@@ -1,7 +1,5 @@
 # Whatsoever He Saith unto You, Do It
 
-Bonnie H. Cordon
-
 By Elder L. Whitney Clayton - *Of the Presidency of the Seventy*
 
 *Given in the April session of the 2017 General Conference*
@@ -89,7 +87,3 @@ Every day, consciously or otherwise, we all choose “whom \[we\] will serve.”
 
 [^16]: [[John 14.6|John 14:6]].
 
-
-
-
-#Adversity #Faith #Jesus_Christ #Obedience #Trust

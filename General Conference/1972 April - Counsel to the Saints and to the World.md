@@ -1,7 +1,5 @@
 # Counsel to the Saints and to the World
 
-Wilford G. Edling
-
 By President Joseph Fielding Smith - *President of the Church*
 
 *Given in the April session of the 1972 General Conference*
@@ -59,4 +57,3 @@ I feel to thank the Lord for his goodness and grace, for all the blessings he ha
 
 
 
-#Brotherhood #Family

@@ -1,7 +1,5 @@
 # Joseph Smith—Prophet of the Restoration
 
-Thomas S. Monson
-
 By Elder Tad R. Callister - *Of the Seventy*
 
 *Given in the October session of the 2009 General Conference*
@@ -53,4 +51,3 @@ I bear my witness that Joseph Smith was the prophet of the Restoration, just as 
 
 
 
-#Godhead #Joseph_Smith #Restoration

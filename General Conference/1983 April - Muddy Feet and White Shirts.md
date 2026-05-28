@@ -1,7 +1,5 @@
 # Muddy Feet and White Shirts
 
-Ezra Taft Benson
-
 By Matthew S. Holland - *Oak Hills Fourth Ward, Provo Utah Oak Hills Stake*
 
 *Given in the April session of the 1983 General Conference*
@@ -37,4 +35,3 @@ I want to bear my testimony of the responsibility we, the priesthood brethren of
 
 
 
-#Family #Parents

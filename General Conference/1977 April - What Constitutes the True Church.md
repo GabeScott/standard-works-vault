@@ -1,7 +1,5 @@
 # What Constitutes the True Church
 
-Spencer W. Kimball
-
 By Elder Delbert L. Stapley - *Of the Council of the Twelve*
 
 *Given in the April session of the 1977 General Conference*
@@ -109,4 +107,3 @@ I bear my solemn witness to you that there is one true shepherd—our Lord Jesus
 
 
 
-#Church_Organization #Restoration

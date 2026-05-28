@@ -1,7 +1,5 @@
 # The Church Employment System
 
-Spencer W. Kimball
-
 By Bishop H. Burke Peterson - *First Counselor in the Presiding Bishopric*
 
 *Given in the April session of the 1976 General Conference*
@@ -65,4 +63,3 @@ May we be blessed to teach these principles, in the name of Jesus Christ. Amen.
 
 
 
-#Employment #Welfare

@@ -1,7 +1,5 @@
 # A Mighty Change of Heart
 
-Gordon B. Hinckley
-
 By Elder Spencer J. Condie - *Of the Seventy*
 
 *Given in the October session of the 1993 General Conference*
@@ -79,4 +77,3 @@ I am grateful for these Brethren whom we sustain as prophets, seers, and revelat
 
 
 
-#Conversion #Habits #Holy_Ghost #Pride

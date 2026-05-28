@@ -1,7 +1,5 @@
 # The Circle of Sisters
 
-Spencer W. Kimball
-
 By Elder Boyd K. Packer - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1980 General Conference*
@@ -109,4 +107,3 @@ I bear witness that God lives, that He directs this work, that His benevolent po
 
 
 
-#Relief_Society #Sisterhood

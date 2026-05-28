@@ -1,7 +1,5 @@
 # A Basis for Faith in the Living God
 
-Spencer W. Kimball
-
 By President N. Eldon Tanner - *First Counselor in the First Presidency*
 
 *Given in the October session of the 1978 General Conference*
@@ -131,4 +129,3 @@ I bear further witness that the gospel in its fulness has been restored in these
 
 
 
-#Godhead #Plan_Of_Salvation #Testimony

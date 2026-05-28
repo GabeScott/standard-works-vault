@@ -1,7 +1,5 @@
 # Ministering to Needs through LDS Social Services
 
-Spencer W. Kimball
-
 By Bishop J. Richard Clarke - *Second Counselor in the Presiding Bishopric*
 
 *Given in the April session of the 1977 General Conference*
@@ -85,4 +83,3 @@ As we contemplate how we can use this resource, think of the young boy staring o
 
 
 
-#Social_Services

@@ -1,7 +1,5 @@
 # Prepare to Serve
 
-Gordon B. Hinckley
-
 By Elder M. Russell Ballard - *Of the Presidency of the First Quorum of the Seventy*
 
 *Given in the April session of the 1985 General Conference*
@@ -52,4 +50,3 @@ May God bless all of you young men to desire to serve him is my humble prayer. I
 
 
 
-#Service

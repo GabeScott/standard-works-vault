@@ -1,7 +1,5 @@
 # Ministering—“That Ye Love One Another; as I Have Loved You”
 
-Dallin H. Oaks
-
 By Sister Kristin M. Yee - *Second Counselor in the Relief Society General Presidency*
 
 *Given in the April session of the 2026 General Conference*
@@ -149,5 +147,3 @@ I testify that ministering not only “brings forth the blessings of heaven,”[
 
 [^44]: See [[3 Nephi 27.27|3 Nephi 27:27]].
 
-
-#Atonement_Of_Jesus_Christ #Covenants #Faith #Jesus_Christ #Love #Ministering

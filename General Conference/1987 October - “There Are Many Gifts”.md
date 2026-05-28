@@ -1,7 +1,5 @@
 # “There Are Many Gifts”
 
-Ezra Taft Benson
-
 By Elder Marvin J. Ashton - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1987 General Conference*
@@ -16,7 +14,7 @@ From [[D&C 46.11|Doctrine and Covenants 46:11–12]][[D&C 46.12|]], we have this
 
 God has given each of us one or more special talents. Socrates made the famous statement, “The unexamined life is not worth living” (“Apology,” *The Dialogues of Plato,* trans. Benjamin Jowett, Chicago: Encyclopaedia Britannica, 1952, p. 210). It is up to each of us to search for and build upon the gifts which God has given. We must remember that each of us is made in the image of God, that there are no unimportant persons. Everyone matters to God and to his fellowmen.
 
-From the Book of Mormon, particularly [[3 Nephi 11.1|3 Nephi, chapters 11 through 26]], when the Savior Jesus Christ showed himself to the people on the American continent, many gifts are referred to as being very real and most useful. Taken at random, let me mention a few gifts that are not always evident or noteworthy but that are very important. Among these may be your gifts—gifts not so evident but nevertheless real and valuable.
+From the Book of Mormon, particularly [[3 Nephi 11.1|3 Nephi, chapters 11 through 26]][[3 Nephi 11.2|]][[3 Nephi 11.3|]][[3 Nephi 11.4|]][[3 Nephi 11.5|]][[3 Nephi 11.6|]][[3 Nephi 11.7|]][[3 Nephi 11.8|]][[3 Nephi 11.9|]][[3 Nephi 11.10|]][[3 Nephi 11.11|]][[3 Nephi 11.12|]][[3 Nephi 11.13|]][[3 Nephi 11.14|]][[3 Nephi 11.15|]][[3 Nephi 11.16|]][[3 Nephi 11.17|]][[3 Nephi 11.18|]][[3 Nephi 11.19|]][[3 Nephi 11.20|]][[3 Nephi 11.21|]][[3 Nephi 11.22|]][[3 Nephi 11.23|]][[3 Nephi 11.24|]][[3 Nephi 11.25|]][[3 Nephi 11.26|]][[3 Nephi 11.27|]][[3 Nephi 11.28|]][[3 Nephi 11.29|]][[3 Nephi 11.30|]][[3 Nephi 11.31|]][[3 Nephi 11.32|]][[3 Nephi 11.33|]][[3 Nephi 11.34|]][[3 Nephi 11.35|]][[3 Nephi 11.36|]][[3 Nephi 11.37|]][[3 Nephi 11.38|]][[3 Nephi 11.39|]][[3 Nephi 11.40|]][[3 Nephi 11.41|]], when the Savior Jesus Christ showed himself to the people on the American continent, many gifts are referred to as being very real and most useful. Taken at random, let me mention a few gifts that are not always evident or noteworthy but that are very important. Among these may be your gifts—gifts not so evident but nevertheless real and valuable.
 
 Let us review some of these less-conspicuous gifts: the gift of asking; the gift of listening; the gift of hearing and using a still, small voice; the gift of being able to weep; the gift of avoiding contention; the gift of being agreeable; the gift of avoiding vain repetition; the gift of seeking that which is righteous; the gift of not passing judgment; the gift of looking to God for guidance; the gift of being a disciple; the gift of caring for others; the gift of being able to ponder; the gift of offering prayer; the gift of bearing a mighty testimony; and the gift of receiving the Holy Ghost.
 
@@ -125,4 +123,3 @@ God does live. He does bless us with gifts. As we develop and share our God-give
 
 
 
-#Love #Prayer #Spirituality

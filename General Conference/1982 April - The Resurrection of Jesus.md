@@ -1,7 +1,5 @@
 # The Resurrection of Jesus
 
-Spencer W. Kimball
-
 By President Marion G. Romney - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 1982 General Conference*
@@ -99,4 +97,3 @@ To this I bear solemn witness, in the sacred name of Jesus Christ, our Redeemer,
 
 
 
-#Jesus_Christ #Resurrection

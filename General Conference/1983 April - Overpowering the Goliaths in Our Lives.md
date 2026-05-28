@@ -1,7 +1,5 @@
 # Overpowering the Goliaths in Our Lives
 
-Ezra Taft Benson
-
 By President Gordon B. Hinckley - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 1983 General Conference*
@@ -91,4 +89,3 @@ God bless you, my brethren, young and old, that the watch-care of the Lord may b
 
 
 
-#Marriage #Temptation

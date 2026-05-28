@@ -1,7 +1,5 @@
 # “Be Not Faithless”
 
-Spencer W. Kimball
-
 By Elder Gordon B. Hinckley - *Of the Council of the Twelve*
 
 *Given in the April session of the 1978 General Conference*
@@ -103,4 +101,3 @@ With so many evidences, and with the conviction borne in our hearts by the power
 
 
 
-#Faith

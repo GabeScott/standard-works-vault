@@ -1,7 +1,5 @@
 # Our Responsibility to the Transgressor
 
-Spencer W. Kimball
-
 By President N. Eldon Tanner - *First Counselor in the First Presidency*
 
 *Given in the October session of the 1974 General Conference*
@@ -93,4 +91,3 @@ May we magnify our priesthood and enjoy the blessings of the Lord, and as Presid
 
 
 
-#Sin #Worthiness

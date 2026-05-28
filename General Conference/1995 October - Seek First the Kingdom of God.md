@@ -1,7 +1,5 @@
 # Seek First the Kingdom of God
 
-Gordon B. Hinckley
-
 By Elder David B. Haight - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1995 General Conference*
@@ -49,4 +47,3 @@ I leave you my love, my witness, and my testimony that this work is true. You yo
 
 
 
-#Kingdom_Of_God #Music #Obedience #Temples

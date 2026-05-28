@@ -1,7 +1,5 @@
 # Avoiding the Trap of Sin
 
-Thomas S. Monson
-
 By Elder Jairo Mazzagardi - *Of the Seventy*
 
 *Given in the October session of the 2010 General Conference*
@@ -93,4 +91,3 @@ Of these truths I bear my testimony in the holy name of Jesus Christ, amen.
 
 
 
-#Repentance #Sin

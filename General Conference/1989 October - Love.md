@@ -1,7 +1,5 @@
 # Love
 
-Ezra Taft Benson
-
 By Elder W. Eugene Hansen - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1989 General Conference*
@@ -91,4 +89,3 @@ May we all strive more diligently to show our love of the Lord by the way we emu
 
 
 
-#Charity #Service

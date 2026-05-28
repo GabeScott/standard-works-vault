@@ -1,7 +1,5 @@
 # Let Your Light So Shine
 
-Spencer W. Kimball
-
 By Elder Joseph B. Wirthlin - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1978 General Conference*
@@ -66,4 +64,3 @@ I testify to you that President Kimball is indeed a mighty prophet of the Lord. 
 
 
 
-#Healing #Jesus_Christ

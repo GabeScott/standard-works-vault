@@ -1,7 +1,5 @@
 # Miracles of the Restoration
 
-Gordon B. Hinckley
-
 By Elder Jeffrey R. Holland - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1994 General Conference*
@@ -69,4 +67,3 @@ I testify of him, the Redeemer of the world and Master of us all. He is the Only
 
 
 
-#Adam_And_Eve #Courage #Restoration #Women

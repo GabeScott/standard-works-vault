@@ -1,7 +1,5 @@
 # Facing Our Spiritual Hurricanes by Believing in Christ
 
-Russell M. Nelson
-
 By Elder Sean Douglas - *Of the Seventy*
 
 *Given in the October session of the 2021 General Conference*
@@ -131,7 +129,3 @@ Brothers and sisters, may we choose today to “doubt not, but be believing.”[
 
 [^25]: See [[Revelation 3.20|Revelation 3:20]]. Note in [[Revelation 3.21|verse 21]] the promise made “to him that overcometh.”
 
-
-
-
-#Adversity #Commandments #Faith #Jesus_Christ #Joy #Obedience

@@ -1,7 +1,5 @@
 # Simply Beautiful—Beautifully Simple
 
-Russell M. Nelson
-
 By Elder Gary E. Stevenson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2021 General Conference*
@@ -115,7 +113,3 @@ Doing so will surely bring joy and peace. Of this I promise and testify—and of
 
 [^7]: See [[Matthew 11.30|Matthew 11:30]].
 
-
-
-
-#Discipleship #Missionary_Work #Responsibility #Service #Temple_Work

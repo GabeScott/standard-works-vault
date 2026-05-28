@@ -1,7 +1,5 @@
 # “Lord, Increase Our Faith”
 
-Ezra Taft Benson
-
 By President Gordon B. Hinckley - *First Counselor in the First Presidency*
 
 *Given in the October session of the 1987 General Conference*
@@ -111,4 +109,3 @@ Father, increase our faith. Of all our needs, I think the greatest is an increas
 
 
 
-#Church_Growth #Faith #Missionary_Work #Testimony

@@ -1,7 +1,5 @@
 # Invite Christ to Author Your Story
 
-Russell M. Nelson
-
 By Camille N. Johnson - *Primary General President*
 
 *Given in the October session of the 2021 General Conference*
@@ -91,7 +89,3 @@ Let your narrative be one of faith, following your Exemplar, the Savior Jesus Ch
 
 [^7]: See [[Revelation 20.12|Revelation 20:12]].
 
-
-
-
-#Adversity #Agency #Discipleship #Faith #Holy_Ghost #Jesus_Christ

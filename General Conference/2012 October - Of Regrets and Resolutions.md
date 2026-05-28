@@ -1,7 +1,5 @@
 # Of Regrets and Resolutions
 
-Thomas S. Monson
-
 By President Dieter F. Uchtdorf - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 2012 General Conference*
@@ -175,7 +173,3 @@ The path toward fulfilling our divine destiny as sons and daughters of God is an
 
 [^14]: [[Mosiah 16.8|Mosiah 16:8]]; see also [[1 Corinthians 15.54|1 Corinthians 15:54]].
 
-
-
-
-#Discipleship #Joy #Priorities

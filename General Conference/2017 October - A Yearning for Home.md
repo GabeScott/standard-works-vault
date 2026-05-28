@@ -1,7 +1,5 @@
 # A Yearning for Home
 
-Sharon Eubank
-
 By President Dieter F. Uchtdorf - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 2017 General Conference*
@@ -179,7 +177,3 @@ As we embrace the gospel in faith and deed, each day and every hour, we will dra
 
 [^14]: [[Hebrews 11.13|Hebrews 11:13]]; [[1 Peter 2.11|1 Peter 2:11]].
 
-
-
-
-#Adversity #Discipleship #Home #Jesus_Christ #Joy #Light_Of_Christ #Service

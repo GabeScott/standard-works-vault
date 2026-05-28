@@ -1,7 +1,5 @@
 # Eyes to See
 
-Russell M. Nelson
-
 By Michelle D. Craig - *First Counselor in the Young Women General Presidency*
 
 *Given in the October session of the 2020 General Conference*
@@ -83,7 +81,3 @@ And then, in that great day “when he shall appear we shall be like him, for *w
 
 [^9]: [[Moroni 7.48|Moroni 7:48]]; emphasis added.
 
-
-
-
-#Love #Service

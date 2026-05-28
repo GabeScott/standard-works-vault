@@ -1,7 +1,5 @@
 # Agency and Love
 
-Gordon B. Hinckley
-
 By Elder Marion D. Hanks - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1983 General Conference*
@@ -93,4 +91,3 @@ Well may we sing, “I stand all amazed at the love Jesus offers me.” In the n
 
 
 
-#Agency

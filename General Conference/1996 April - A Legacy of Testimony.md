@@ -1,7 +1,5 @@
 # A Legacy of Testimony
 
-James E. Faust
-
 By Elder Henry B. Eyring - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1996 General Conference*
@@ -71,4 +69,3 @@ I testify that I know that God, our Heavenly Father, lives and that He loves us 
 
 
 
-#Atonement #Children #Covenants #Family #Family_Home_Evening #Fasting #Holy_Ghost #Hope #Jesus_Christ #Parents #Prayer #Scripture_Study #Testimony

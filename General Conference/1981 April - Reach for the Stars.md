@@ -1,7 +1,5 @@
 # Reach for the Stars
 
-Marion G. Romney
-
 By Barbara B. Smith - *Relief Society General President*
 
 *Given in the April session of the 1981 General Conference*
@@ -65,4 +63,3 @@ May we look for the stars and find satisfaction, even joy, in living according t
 
 
 
-#Financial_Management #Preparation #Self-Reliance

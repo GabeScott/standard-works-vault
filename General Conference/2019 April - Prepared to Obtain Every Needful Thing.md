@@ -1,7 +1,5 @@
 # Prepared to Obtain Every Needful Thing
 
-Ulisses Soares
-
 By Elder David A. Bednar - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2019 General Conference*
@@ -129,7 +127,3 @@ I joyfully witness that compensating blessings will come as we strive to fulfill
 
 [^20]: [[D&C 109.15|Doctrine and Covenants 109:15]].
 
-
-
-
-#Home #Learning #Preparation #Temples

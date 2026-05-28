@@ -1,7 +1,5 @@
 # This Glorious Easter Morn
 
-James E. Faust
-
 By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the April session of the 1996 General Conference*
@@ -108,4 +106,3 @@ He is our King, our Lord, our Master, the living Christ, who stands on the right
 
 
 
-#Atonement #Church_Growth #Covenants #Death #Evil #Family #Jesus_Christ #Resurrection #Scriptures #Service #Testimony #Youth

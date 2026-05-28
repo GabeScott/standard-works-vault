@@ -1,7 +1,5 @@
 # Sharing the Gospel
 
-Gordon B. Hinckley
-
 By Elder Dallin H. Oaks - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2001 General Conference*
@@ -99,4 +97,3 @@ I testify of Jesus Christ, our Savior, and of His desire that we join wholeheart
 
 
 
-#Conversion #Love #Missionary_Work #Prayer #Preparation #Prophets #Teaching

@@ -1,7 +1,5 @@
 # Gratitude
 
-Spencer W. Kimball
-
 By Elder Richard G. Scott - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1977 General Conference*
@@ -33,4 +31,3 @@ Yes, I know that Spencer W. Kimball is a prophet of God. I know that Jesus Chris
 
 
 
-#Testimony

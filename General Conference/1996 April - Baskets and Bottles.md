@@ -1,7 +1,5 @@
 # Baskets and Bottles
 
-James E. Faust
-
 By Chieko N. Okazaki - *First Counselor in the Relief Society General Presidency*
 
 *Given in the April session of the 1996 General Conference*
@@ -49,4 +47,3 @@ Brothers and sisters, whether your fruits are peaches or papaya, and whether you
 
 
 
-#Church_Growth #Education #Holy_Ghost #Love #Unity #Women

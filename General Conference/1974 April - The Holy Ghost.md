@@ -1,7 +1,5 @@
 # The Holy Ghost
 
-Spencer W. Kimball
-
 By President Marion G. Romney - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 1974 General Conference*
@@ -167,4 +165,3 @@ That we may all, through following the guidance of the Holy Spirit, be prepared 
 
 
 
-#Holy_Ghost

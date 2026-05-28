@@ -1,7 +1,5 @@
 # “Do Not Weary by the Way”
 
-Spencer W. Kimball
-
 By President Spencer W. Kimball - *President of the Church*
 
 *Given in the October session of the 1980 General Conference*
@@ -41,4 +39,3 @@ We pray that the Lord may continue to bless you, and we would be glad if you tak
 
 
 
-#Obedience

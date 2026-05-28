@@ -1,7 +1,5 @@
 # Embrace the Future with Faith
 
-Russell M. Nelson
-
 By President Russell M. Nelson - *President of The Church of Jesus Christ of Latter-day Saints*
 
 *Given in the October session of the 2020 General Conference*
@@ -113,7 +111,7 @@ As you prepare to embrace the future with faith, these promises *will* be yours!
 
 [^9]: [[Alma 48.7|Alma 48:7]].
 
-[^10]: See [[Alma 49.1|Alma 49–50]].
+[^10]: See [[Alma 49.1|Alma 49–50]][[Alma 49.2|]][[Alma 49.3|]][[Alma 49.4|]][[Alma 49.5|]][[Alma 49.6|]][[Alma 49.7|]][[Alma 49.8|]][[Alma 49.9|]][[Alma 49.10|]][[Alma 49.11|]][[Alma 49.12|]][[Alma 49.13|]][[Alma 49.14|]][[Alma 49.15|]][[Alma 49.16|]][[Alma 49.17|]][[Alma 49.18|]][[Alma 49.19|]][[Alma 49.20|]][[Alma 49.21|]][[Alma 49.22|]][[Alma 49.23|]][[Alma 49.24|]][[Alma 49.25|]][[Alma 49.26|]][[Alma 49.27|]][[Alma 49.28|]][[Alma 49.29|]][[Alma 49.30|]].
 
 [^11]: See [[Alma 48.8|Alma 48:8]].
 
@@ -139,7 +137,3 @@ As you prepare to embrace the future with faith, these promises *will* be yours!
 
 [^22]: [[Alma 58.11|Alma 58:11]].
 
-
-
-
-#Faith #Preparation

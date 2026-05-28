@@ -1,7 +1,5 @@
 # Special Experiences
 
-Dieter F. Uchtdorf
-
 By Elder Ronald A. Rasband - *Of the Presidency of the Seventy*
 
 *Given in the April session of the 2008 General Conference*
@@ -59,4 +57,3 @@ In these days of worldly intrusions into our lives, when trials and difficulties
 
 
 
-#Faith #Testimony

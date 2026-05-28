@@ -1,7 +1,5 @@
 # Repentance
 
-Ezra Taft Benson
-
 By Elder F. Burton Howard - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1983 General Conference*
@@ -129,4 +127,3 @@ By repenting, my young friend became a new person. He was born again of the Spir
 
 
 
-#Forgiveness #Repentance

@@ -1,7 +1,5 @@
 # The Church Grows Stronger
 
-Gordon B. Hinckley
-
 By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the April session of the 2004 General Conference*
@@ -43,4 +41,3 @@ It will now be our pleasure to hear from our beloved associate Elder David B. Ha
 
 
 
-#Church_Growth #Education #Morality #Service #Youth

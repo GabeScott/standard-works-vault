@@ -1,7 +1,5 @@
 # Stand Tall and Stand Together
 
-Gordon B. Hinckley
-
 By Sheri L. Dew - *Second Counselor in the Relief Society General Presidency*
 
 *Given in the October session of the 2000 General Conference*
@@ -49,4 +47,3 @@ In my nephew’s priesthood quorum, just a few hours before he died, Tanner said
 
 
 
-#Family #Jesus_Christ #Joy #Motherhood #Relief_Society #Service #Spirituality #Teaching #Testimony #Women #Work

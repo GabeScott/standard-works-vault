@@ -1,7 +1,5 @@
 # Eyes to See and Ears to Hear
 
-Rosemary M. Wixom
-
 By Elder Kim B. Clark - *Of the Seventy*
 
 *Given in the October session of the 2015 General Conference*
@@ -93,7 +91,3 @@ Brothers and sisters, I bear witness of Jesus Christ. I know He lives. He is our
 
 [^19]: [[Alma 27.17|Alma 27:17]]; see also [[Alma 31.38|Alma 31:38]].
 
-
-
-
-#Adversity #Holy_Ghost #Jesus_Christ #Obedience #Prophets

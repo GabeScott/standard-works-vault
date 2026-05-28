@@ -1,7 +1,5 @@
 # Strengthen Home and Family
 
-Gordon B. Hinckley
-
 By Mary N. Cook - *Second Counselor in the Young Women General Presidency*
 
 *Given in the October session of the 2007 General Conference*
@@ -69,4 +67,3 @@ I know that Jesus Christ lives. He knows you and loves you. He has blessed me an
 
 
 
-#Example #Family #Temples #Youth

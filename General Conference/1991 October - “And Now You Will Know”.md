@@ -1,7 +1,5 @@
 # “And Now You Will Know”
 
-Gordon B. Hinckley
-
 By Elder Joseph C. Muren - *Of the Seventy*
 
 *Given in the October session of the 1991 General Conference*
@@ -45,4 +43,3 @@ Heavenly Father and Jesus Christ did return to the earth in 1820. They did resto
 
 
 
-#Education #Missionary_Work #Testimony

@@ -1,7 +1,5 @@
 # Truly Good and without Guile
 
-Cheryl A. Esplin
-
 By Elder Michael T. Ringwood - *Of the Seventy*
 
 *Given in the April session of the 2015 General Conference*
@@ -16,7 +14,7 @@ Thankfully, as I served my mission, I learned a powerful lesson. Last conference
 
 In October, President Dieter F. Uchtdorf said: “Over the course of my life, I have had the opportunity to rub shoulders with some of the most competent and intelligent men and women this world has to offer. When I was younger, I was impressed by those who were educated, accomplished, successful, and applauded by the world. But over the years, I have come to the realization that I am far more impressed by those wonderful and blessed souls who are *truly good and without guile.*”[^1]
 
-My Book of Mormon hero is a perfect example of a wonderful and blessed soul who was truly good and without guile. Shiblon was one of the sons of Alma the Younger. We are more familiar with his brothers Helaman, who would follow his father as the keeper of the records and the prophet of God, and Corianton, who gained some notoriety as a missionary who needed some counsel from his father. To Helaman, Alma wrote 77 verses (see [[Alma 36.1|Alma 36–37]]). To Corianton, Alma dedicated 91 verses (see [[Alma 39.1|Alma 39–42]]). To Shiblon, his middle son, Alma wrote a mere 15 verses (see [[Alma 38.1|Alma 38]]). Yet his words in those 15 verses are powerful and instructive.
+My Book of Mormon hero is a perfect example of a wonderful and blessed soul who was truly good and without guile. Shiblon was one of the sons of Alma the Younger. We are more familiar with his brothers Helaman, who would follow his father as the keeper of the records and the prophet of God, and Corianton, who gained some notoriety as a missionary who needed some counsel from his father. To Helaman, Alma wrote 77 verses (see [[Alma 36.1|Alma 36–37]][[Alma 36.2|]][[Alma 36.3|]][[Alma 36.4|]][[Alma 36.5|]][[Alma 36.6|]][[Alma 36.7|]][[Alma 36.8|]][[Alma 36.9|]][[Alma 36.10|]][[Alma 36.11|]][[Alma 36.12|]][[Alma 36.13|]][[Alma 36.14|]][[Alma 36.15|]][[Alma 36.16|]][[Alma 36.17|]][[Alma 36.18|]][[Alma 36.19|]][[Alma 36.20|]][[Alma 36.21|]][[Alma 36.22|]][[Alma 36.23|]][[Alma 36.24|]][[Alma 36.25|]][[Alma 36.26|]][[Alma 36.27|]][[Alma 36.28|]][[Alma 36.29|]][[Alma 36.30|]]). To Corianton, Alma dedicated 91 verses (see [[Alma 39.1|Alma 39–42]][[Alma 39.2|]][[Alma 39.3|]][[Alma 39.4|]][[Alma 39.5|]][[Alma 39.6|]][[Alma 39.7|]][[Alma 39.8|]][[Alma 39.9|]][[Alma 39.10|]][[Alma 39.11|]][[Alma 39.12|]][[Alma 39.13|]][[Alma 39.14|]][[Alma 39.15|]][[Alma 39.16|]][[Alma 39.17|]][[Alma 39.18|]][[Alma 39.19|]]). To Shiblon, his middle son, Alma wrote a mere 15 verses (see [[Alma 38.1|Alma 38]][[Alma 38.2|]][[Alma 38.3|]][[Alma 38.4|]][[Alma 38.5|]][[Alma 38.6|]][[Alma 38.7|]][[Alma 38.8|]][[Alma 38.9|]][[Alma 38.10|]][[Alma 38.11|]][[Alma 38.12|]][[Alma 38.13|]][[Alma 38.14|]][[Alma 38.15|]]). Yet his words in those 15 verses are powerful and instructive.
 
 “And now, my son, I trust that I shall have great joy in you, because of your steadiness and your faithfulness unto God; for as you have commenced in your youth to look to the Lord your God, even so I hope that you will continue in keeping his commandments; for blessed is he that endureth to the end.
 
@@ -69,7 +67,3 @@ I thank my Heavenly Father for Shiblon-like souls whose examples offer me—and 
 
 [^7]: From my earliest recollection, I wanted to please my father. As I grew and gained a testimony, I also gained the desire to please Heavenly Father. Later in my life, I learned about Shiblon and added to my life’s goals to be more like him.
 
-
-
-
-#Discipleship #Humility #Service

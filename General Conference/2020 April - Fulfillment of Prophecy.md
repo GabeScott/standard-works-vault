@@ -1,7 +1,5 @@
 # Fulfillment of Prophecy
 
-Russell M. Nelson
-
 By Elder Ronald A. Rasband - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2020 General Conference*
@@ -115,7 +113,3 @@ I promise as you follow the inspired counsel of our dear prophet, President Russ
 
 [^26]: *[Teachings: Joseph Smith](https://www.churchofjesuschrist.org/study/manual/teachings-joseph-smith/chapter-11?lang=eng),* 142.
 
-
-
-
-#Prophecy #Restoration

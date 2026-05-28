@@ -1,7 +1,5 @@
 # Becoming the Pure in Heart
 
-Spencer W. Kimball
-
 By President Spencer W. Kimball - *President of the Church*
 
 *Given in the April session of the 1978 General Conference*
@@ -115,4 +113,3 @@ Let us unite and pray with all the energy of heart, that we may be sealed by thi
 
 
 
-#Sacrifice #Welfare #Zion

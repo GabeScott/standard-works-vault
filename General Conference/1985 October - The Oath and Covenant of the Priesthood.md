@@ -1,7 +1,5 @@
 # The Oath and Covenant of the Priesthood
 
-Gordon B. Hinckley
-
 By Elder Carlos E. Asay - *Of the Presidency of the First Quorum of the Seventy*
 
 *Given in the October session of the 1985 General Conference*
@@ -98,4 +96,3 @@ I pray that we will do so, in the name of Jesus Christ, amen.
 
 
 
-#Covenants #Priesthood

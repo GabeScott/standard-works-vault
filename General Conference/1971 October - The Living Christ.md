@@ -1,7 +1,5 @@
 # The Living Christ
 
-Joseph Fielding Smith
-
 By Elder Joseph Anderson - *Assistant to the Council of the Twelve*
 
 *Given in the October session of the 1971 General Conference*
@@ -97,4 +95,3 @@ May the peace that passeth understanding come into the hearts of men and women e
 
 
 
-#Jesus_Christ #Joseph_Smith #Resurrection

@@ -1,7 +1,5 @@
 # Christlike Attributes—the Wind beneath Our Wings
 
-Gordon B. Hinckley
-
 By Elder Dieter F. Uchtdorf - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2005 General Conference*
@@ -73,4 +71,3 @@ Of this I testify in the name of Jesus Christ, amen.
 
 
 
-#Agency #Conversion #Faith #Jesus_Christ #Obedience

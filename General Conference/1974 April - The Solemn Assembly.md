@@ -1,7 +1,5 @@
 # The Solemn Assembly
 
-Spencer W. Kimball
-
 By Presented by President N. Eldon Tanner - *First Counselor in the First Presidency*
 
 *Given in the April session of the 1974 General Conference*

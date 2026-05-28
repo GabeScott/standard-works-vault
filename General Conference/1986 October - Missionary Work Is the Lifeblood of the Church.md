@@ -1,7 +1,5 @@
 # Missionary Work Is the Lifeblood of the Church
 
-Ezra Taft Benson
-
 By Elder H. Verlan Andersen - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1986 General Conference*
@@ -43,4 +41,3 @@ Such is the message of my dear wife, with whom I am in total agreement. And now 
 
 
 
-#Joy #Missionary_Work

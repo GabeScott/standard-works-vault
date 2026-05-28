@@ -1,7 +1,5 @@
 # Our Thirtieth Anniversary as Latter-day Saints
 
-Spencer W. Kimball
-
 By Elder Derek A. Cuthbert - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1980 General Conference*
@@ -57,4 +55,3 @@ May all within the sound of my voice, and all God’s children everywhere, have 
 
 
 
-#Conversion #Missionary_Work

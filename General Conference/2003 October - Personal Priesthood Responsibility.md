@@ -1,7 +1,5 @@
 # Personal Priesthood Responsibility
 
-Gordon B. Hinckley
-
 By Elder Russell M. Nelson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2003 General Conference*
@@ -141,7 +139,3 @@ God lives. Jesus is the Christ. He directs His Church through His prophets and a
 
 [^29]: [[D&C 121.45|D&C 121:45]].
 
-
-
-
-#Obedience #Priesthood #Responsibility #Service

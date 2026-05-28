@@ -1,7 +1,5 @@
 # Covenant of Love
 
-Thomas S. Monson
-
 By Aileen H. Clyde - *Second Counselor in the Relief Society General Presidency*
 
 *Given in the April session of the 1995 General Conference*
@@ -73,4 +71,3 @@ I testify of the great blessing it is to know these things. I am humbly grateful
 
 
 
-#Conversion #Covenants #Humility

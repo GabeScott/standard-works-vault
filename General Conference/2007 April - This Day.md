@@ -1,7 +1,5 @@
 # This Day
 
-Thomas S. Monson
-
 By Elder Henry B. Eyring - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2007 General Conference*
@@ -101,7 +99,3 @@ I know that Heavenly Father lives and answers our prayers. I know that Jesus is 
 
 [^10]: [[Matthew 25.21|Matthew 25:21]]; see also [[Matthew 25.23|v. 23]].
 
-
-
-
-#Attitude #Service #Time_Management

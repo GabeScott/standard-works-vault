@@ -1,7 +1,5 @@
 # “I Did Not Reach This Place By Myself”
 
-Spencer W. Kimball
-
 By Elder Ronald E. Poelman - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1978 General Conference*
@@ -21,4 +19,3 @@ Nearly thirty years ago, in response to my earnest study and fervent prayer, the
 
 
 
-#Testimony

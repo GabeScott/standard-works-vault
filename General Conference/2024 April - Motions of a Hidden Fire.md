@@ -1,7 +1,5 @@
 # Motions of a Hidden Fire
 
-Dallin H. Oaks
-
 By President Jeffrey R. Holland - *Acting President of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2024 General Conference*
@@ -115,7 +113,3 @@ Brothers and sisters, as we repent of our sins and come boldly to the “throne 
 
 [^30]: [[Job 42.3|Job 42:3]].
 
-
-
-
-#Adversity #Gratitude #Jesus_Christ #Prayer

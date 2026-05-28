@@ -1,7 +1,5 @@
 # Your Great Adventure
 
-Jeffrey R. Holland
-
 By Elder Dieter F. Uchtdorf - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2019 General Conference*
@@ -201,7 +199,3 @@ Of this I testify in the name of our Redeemer and Savior, Jesus Christ, amen.
 
 [^11]: See LeGrand Richards, *A Marvelous Work and a Wonder, *rev. ed. (1966).
 
-
-
-
-#Agency #Plan_Of_Salvation

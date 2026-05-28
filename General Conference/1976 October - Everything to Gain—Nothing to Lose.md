@@ -1,7 +1,5 @@
 # Everything to Gain—Nothing to Lose
 
-Spencer W. Kimball
-
 By Elder Gordon B. Hinckley - *Of the Council of the Twelve*
 
 *Given in the October session of the 1976 General Conference*
@@ -119,4 +117,3 @@ I bear you my witness that this is the work of the Lord. It is the kingdom of Go
 
 
 
-#Activation #Repentance

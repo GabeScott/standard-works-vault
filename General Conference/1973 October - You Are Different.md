@@ -1,7 +1,5 @@
 # You Are Different
 
-Harold B. Lee
-
 By Elder David B. Haight - *Assistant to the Council of the Twelve*
 
 *Given in the October session of the 1973 General Conference*
@@ -79,4 +77,3 @@ President Lee recently said in a most moving address to the Brigham Young Univer
 
 
 
-#Covenants #Obedience #Standards #Temptation #Youth

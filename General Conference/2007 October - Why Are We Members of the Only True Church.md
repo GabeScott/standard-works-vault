@@ -1,7 +1,5 @@
 # Why Are We Members of the Only True Church?
 
-Gordon B. Hinckley
-
 By Elder Enrique R. Falabella - *Of the Seventy*
 
 *Given in the October session of the 2007 General Conference*
@@ -77,4 +75,3 @@ Because family life can continue beyond the thresholds of death. Because the roy
 
 
 
-#Priesthood #Temples #Testimony

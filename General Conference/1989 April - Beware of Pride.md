@@ -1,7 +1,5 @@
 # Beware of Pride
 
-Ezra Taft Benson
-
 By President Ezra Taft Benson - *President of the Church*
 
 *Given in the April session of the 1989 General Conference*
@@ -145,4 +143,3 @@ That we may do so and go on to fulfill our divine destiny is my fervent prayer i
 
 
 
-#Humility #Pride

@@ -1,7 +1,5 @@
 # Finding a Safe Harbor
 
-Gordon B. Hinckley
-
 By Elder Joseph B. Wirthlin - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2000 General Conference*
@@ -129,7 +127,3 @@ I bear solemn testimony that Jesus is the living Christ, our Savior and Redeemer
 
 [^20]: [[D&C 121.7|D&C 121:7–8]][[D&C 121.8|]].
 
-
-
-
-#Adversity #Commandments #God_The_Father #Jesus_Christ #Peace #Plan_Of_Salvation #Responsibility #Service #Spirituality

@@ -1,7 +1,5 @@
 # Love of God
 
-Joseph Fielding Smith
-
 By Elder Bernard P. Brockbank - *Assistant to the Council of the Twelve*
 
 *Given in the April session of the 1971 General Conference*
@@ -91,4 +89,3 @@ I express love for my Heavenly Father and for my Savior, Jesus Christ, and for t
 
 
 
-#Charity #Tithing

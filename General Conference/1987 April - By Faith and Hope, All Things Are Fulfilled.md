@@ -1,7 +1,5 @@
 # By Faith and Hope, All Things Are Fulfilled
 
-Ezra Taft Benson
-
 By Elder Paul H. Dunn - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1987 General Conference*
@@ -91,4 +89,3 @@ In the name of Jesus Christ, amen.
 
 
 
-#Adversity #Attitude #Love #Parenthood

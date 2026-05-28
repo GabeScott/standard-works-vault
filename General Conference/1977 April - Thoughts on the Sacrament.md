@@ -1,7 +1,5 @@
 # Thoughts on the Sacrament
 
-Spencer W. Kimball
-
 By Elder Howard W. Hunter - *Of the Council of the Twelve*
 
 *Given in the April session of the 1977 General Conference*
@@ -71,4 +69,3 @@ I know that Jesus is the Christ and that He lives, having been put to death as t
 
 
 
-#Sacrament

@@ -1,7 +1,5 @@
 # God’s Favourite
 
-Henry B. Eyring
-
 By Elder Karl D. Hirst - *Of the Seventy*
 
 *Given in the October session of the 2024 General Conference*
@@ -103,7 +101,3 @@ Let’s become “rooted and grounded”[^22] in our Jesus and in His love. Let�
 
 [^25]: See [[Moroni 7.48|Moroni 7:48]].
 
-
-
-
-#Individual_Worth #Jesus_Christ #Love

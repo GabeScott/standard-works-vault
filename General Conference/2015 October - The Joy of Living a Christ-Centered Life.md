@@ -1,7 +1,5 @@
 # The Joy of Living a Christ-Centered Life
 
-Rosemary M. Wixom
-
 By Elder Richard J. Maynes - *Of the Presidency of the Seventy*
 
 *Given in the October session of the 2015 General Conference*
@@ -77,7 +75,3 @@ I bear you my witness today that we too can find that peace, that happiness, tha
 
 [^5]: [[2 Nephi 5.27|2 Nephi 5:27]].
 
-
-
-
-#Adversity #Conversion #Jesus_Christ #Joy

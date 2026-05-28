@@ -1,7 +1,5 @@
 # Stand True and Faithful
 
-James E. Faust
-
 By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the April session of the 1996 General Conference*
@@ -120,4 +118,3 @@ I leave my blessing upon you. Please know that we do love you. Please know that 
 
 
 
-#Agency #Education #Family #Friendship #Holy_Ghost #Honesty #Jesus_Christ #Joy #Loyalty #Morality #Parents #Pioneers #Prayer #Repentance #Self-Esteem #Seminary #Service #Temple_Work #Temptation #Word_Of_Wisdom #Youth

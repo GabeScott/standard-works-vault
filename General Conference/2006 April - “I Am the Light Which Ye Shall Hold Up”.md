@@ -1,7 +1,5 @@
 # “I Am the Light Which Ye Shall Hold Up”
 
-Robert D. Hales
-
 By Susan W. Tanner - *Young Women General President*
 
 *Given in the April session of the 2006 General Conference*
@@ -58,4 +56,3 @@ Jesus Christ is the light that we must hold up. “He is the light, the life, an
 
 
 
-#Family #Love #Service #Spirituality

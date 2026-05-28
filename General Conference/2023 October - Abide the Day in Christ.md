@@ -1,7 +1,5 @@
 # Abide the Day in Christ
 
-David A. Bednar
-
 By Sister Amy A. Wright - *First Counselor in the Primary General Presidency*
 
 *Given in the October session of the 2023 General Conference*
@@ -175,7 +173,3 @@ Look to Jesus Christ and live[^29] is my testimony in the sacred and holy name o
 
 [^30]: [[1 Peter 2.25|1 Peter 2:25]].
 
-
-
-
-#Adversity #Hope #Jesus_Christ #Parables #Second_Coming

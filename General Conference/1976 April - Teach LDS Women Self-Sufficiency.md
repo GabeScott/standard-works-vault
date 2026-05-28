@@ -1,7 +1,5 @@
 # Teach LDS Women Self-Sufficiency
 
-Spencer W. Kimball
-
 By Barbara B. Smith - *Relief Society General President*
 
 *Given in the April session of the 1976 General Conference*
@@ -69,4 +67,3 @@ I pray that we may all become provident homemakers and help each other to perfor
 
 
 
-#Relief_Society #Self-Reliance #Women

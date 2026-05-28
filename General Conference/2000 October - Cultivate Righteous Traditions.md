@@ -1,7 +1,5 @@
 # Cultivate Righteous Traditions
 
-Gordon B. Hinckley
-
 By Elder Donald L. Hallstrom - *Of the Seventy*
 
 *Given in the October session of the 2000 General Conference*
@@ -45,4 +43,3 @@ Humbled by the responsibility but joyous in the opportunity to preach the gospel
 
 
 
-#Charity #Covenants #Home #Love #Marriage #Obedience #Ordinances #Standards #Truth #Unity #Youth

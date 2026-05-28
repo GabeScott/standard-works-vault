@@ -1,7 +1,5 @@
 # That They Might Know Thee
 
-Gordon B. Hinckley
-
 By Elder Keith R. Edwards - *Of the Seventy*
 
 *Given in the October session of the 2006 General Conference*
@@ -93,7 +91,3 @@ I bear testimony that Jesus Christ is the Savior of the world, that through His 
 
 [^15]: [[John 17.3|John 17:3]].
 
-
-
-
-#Adversity #Atonement #Endurance

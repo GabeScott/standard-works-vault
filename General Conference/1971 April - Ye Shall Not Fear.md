@@ -1,7 +1,5 @@
 # Ye Shall Not Fear
 
-Joseph Fielding Smith
-
 By Elder Alvin R. Dyer - *Assistant to the Council of the Twelve*
 
 *Given in the April session of the 1971 General Conference*
@@ -38,7 +36,7 @@ There are signs, however, which indicate the nearness of this great event. For i
 
 The culmination of this dispensation in the sequence of the Lord’s time will see the glorious coming of the Son of Man.
 
-The third condition which I often ponder concerns the day of the gentile, which day is now, wherein the gospel is being taken to the gentile nations of the earth, that they may, if obedient to the call, come in and be numbered with the house of Israel. (See [[1 Nephi 13.1|1 Ne. 13, 14]].)
+The third condition which I often ponder concerns the day of the gentile, which day is now, wherein the gospel is being taken to the gentile nations of the earth, that they may, if obedient to the call, come in and be numbered with the house of Israel. (See [[1 Nephi 13.1|1 Ne. 13, 14]][[1 Nephi 13.2|]][[1 Nephi 13.3|]][[1 Nephi 13.4|]][[1 Nephi 13.5|]][[1 Nephi 13.6|]][[1 Nephi 13.7|]][[1 Nephi 13.8|]][[1 Nephi 13.9|]][[1 Nephi 13.10|]][[1 Nephi 13.11|]][[1 Nephi 13.12|]][[1 Nephi 13.13|]][[1 Nephi 13.14|]][[1 Nephi 13.15|]][[1 Nephi 13.16|]][[1 Nephi 13.17|]][[1 Nephi 13.18|]][[1 Nephi 13.19|]][[1 Nephi 13.20|]][[1 Nephi 13.21|]][[1 Nephi 13.22|]][[1 Nephi 13.23|]][[1 Nephi 13.24|]][[1 Nephi 13.25|]][[1 Nephi 13.26|]][[1 Nephi 13.27|]][[1 Nephi 13.28|]][[1 Nephi 13.29|]][[1 Nephi 13.30|]][[1 Nephi 13.31|]][[1 Nephi 13.32|]][[1 Nephi 13.33|]][[1 Nephi 13.34|]][[1 Nephi 13.35|]][[1 Nephi 13.36|]][[1 Nephi 13.37|]][[1 Nephi 13.38|]][[1 Nephi 13.39|]][[1 Nephi 13.40|]][[1 Nephi 13.41|]][[1 Nephi 13.42|]].)
 
 The Lord, in a revelation to Joseph Smith, related this period to the nearness of his second coming. I quote:
 
@@ -87,4 +85,3 @@ I know, my brethren and sisters, that God lives. I know that Jesus is the Christ
 
 
 
-#Jesus_Christ #Last_Days

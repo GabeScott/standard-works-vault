@@ -1,6 +1,6 @@
 # The Solemn Assembly Sustaining of Church Officers
 
-Gordon B. Hinckley
+Sustaining of Church Officers
 
 By Presented by President Gordon B. Hinckley - *First Counselor in the First Presidency*
 

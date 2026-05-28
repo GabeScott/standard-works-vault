@@ -1,7 +1,5 @@
 # Sacrament Meeting and the Sacrament
 
-Thomas S. Monson
-
 By Elder Dallin H. Oaks - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2008 General Conference*
@@ -81,4 +79,3 @@ How can we have the Spirit of the Lord to guide our choices so that we will rema
 
 
 
-#Church_Meetings #Reverence #Sacrament

@@ -1,7 +1,5 @@
 # Build a Fortress of Spirituality and Protection
 
-Ulisses Soares
-
 By Elder Ronald A. Rasband - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2019 General Conference*
@@ -141,7 +139,3 @@ Our testimonies of the gospel of Jesus Christ, our homes, our families, and our 
 
 [^32]: “I’m Trying to Be like Jesus,” *Children’s Songbook,* 78.
 
-
-
-
-#Spirituality #Testimony

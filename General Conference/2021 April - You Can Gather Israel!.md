@@ -1,7 +1,5 @@
 # You Can Gather Israel!
 
-Russell M. Nelson
-
 By Ahmad S. Corbitt - *First Counselor in the Young Men General Presidency*
 
 *Given in the April session of the 2021 General Conference*
@@ -127,7 +125,3 @@ In the name of Jesus Christ, amen.
 
 [^36]: [[2 Nephi 26.8|2 Nephi 26:8–9]][[2 Nephi 26.9|]].
 
-
-
-
-#Faith #Gathering #Jesus_Christ #Missionary_Work #Plan_Of_Salvation #Youth

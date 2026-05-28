@@ -1,7 +1,5 @@
 # He Lives! All Glory to His Name!
 
-Thomas S. Monson
-
 By Elder Richard G. Scott - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2010 General Conference*
@@ -63,4 +61,3 @@ The Savior loves each of us and will make it possible for our every need to be s
 
 
 
-#Atonement #Jesus_Christ #Teaching

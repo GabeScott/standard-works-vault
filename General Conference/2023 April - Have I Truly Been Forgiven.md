@@ -1,7 +1,5 @@
 # Have I Truly Been Forgiven?
 
-Gary E. Stevenson
-
 By Elder K. Brett Nattress - *Of the Seventy*
 
 *Given in the April session of the 2023 General Conference*
@@ -30,7 +28,7 @@ Although he had a desire to change, it was difficult for Danny. His addictions a
 
 One particular afternoon, when I was out mowing our lawn, Danny pulled up in his car unannounced. He was struggling terribly. I turned off the mower, and we sat down together in the shade of the front porch. It was then that he shared the feelings of his heart. He truly wanted to come back. However, turning away from his addictions and lifestyle was extremely difficult. Adding to this, he felt so guilty, so ashamed for falling so far. He asked, “Can I really be forgiven? Is there really a way back?”
 
-After he poured out his heart with these concerns, we read [[Alma 36.1|Alma chapter 36]] together:
+After he poured out his heart with these concerns, we read [[Alma 36.1|Alma chapter 36]][[Alma 36.2|]][[Alma 36.3|]][[Alma 36.4|]][[Alma 36.5|]][[Alma 36.6|]][[Alma 36.7|]][[Alma 36.8|]][[Alma 36.9|]][[Alma 36.10|]][[Alma 36.11|]][[Alma 36.12|]][[Alma 36.13|]][[Alma 36.14|]][[Alma 36.15|]][[Alma 36.16|]][[Alma 36.17|]][[Alma 36.18|]][[Alma 36.19|]][[Alma 36.20|]][[Alma 36.21|]][[Alma 36.22|]][[Alma 36.23|]][[Alma 36.24|]][[Alma 36.25|]][[Alma 36.26|]][[Alma 36.27|]][[Alma 36.28|]][[Alma 36.29|]][[Alma 36.30|]] together:
 
 “Yea, I did remember all my sins and iniquities. …
 
@@ -94,7 +92,7 @@ He ministered to their children one by one.
 
 He prayed for them; He wept with them.
 
-And He healed them. (See [[3 Nephi 17.1|3 Nephi 17]].)
+And He healed them. (See [[3 Nephi 17.1|3 Nephi 17]][[3 Nephi 17.2|]][[3 Nephi 17.3|]][[3 Nephi 17.4|]][[3 Nephi 17.5|]][[3 Nephi 17.6|]][[3 Nephi 17.7|]][[3 Nephi 17.8|]][[3 Nephi 17.9|]][[3 Nephi 17.10|]][[3 Nephi 17.11|]][[3 Nephi 17.12|]][[3 Nephi 17.13|]][[3 Nephi 17.14|]][[3 Nephi 17.15|]][[3 Nephi 17.16|]][[3 Nephi 17.17|]][[3 Nephi 17.18|]][[3 Nephi 17.19|]][[3 Nephi 17.20|]][[3 Nephi 17.21|]][[3 Nephi 17.22|]][[3 Nephi 17.23|]][[3 Nephi 17.24|]][[3 Nephi 17.25|]].)
 
 His promise is eternal: He will heal us.
 
@@ -111,7 +109,3 @@ I testify that God lives and that He loves us. I further testify that Jesus Chri
 
 [^1]: Russell M. Nelson, “[Prepare for Blessings of the Temple](https://www.churchofjesuschrist.org/study/ensign/2002/03/prepare-for-blessings-of-the-temple?lang=eng&id=p50#p50),” *Ensign*, Mar. 2002, 21.
 
-
-
-
-#Atonement #Forgiveness #Healing #Jesus_Christ #Love #Repentance

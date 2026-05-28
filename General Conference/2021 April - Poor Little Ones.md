@@ -1,7 +1,5 @@
 # Poor Little Ones
 
-Russell M. Nelson
-
 By Elder Jorge T. Becerra - *Of the Seventy*
 
 *Given in the April session of the 2021 General Conference*
@@ -75,4 +73,3 @@ I bear witness of Him, even Jesus Christ, the Master Minister and Savior of us a
 
 
 
-#Church_Membership #Compassion #Covenants #Ministering

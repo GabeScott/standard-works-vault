@@ -1,7 +1,5 @@
 # Standing As Witnesses of God
 
-Thomas S. Monson
-
 By President Howard W. Hunter - *President of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1990 General Conference*
@@ -73,4 +71,3 @@ In the name of Jesus Christ, amen.
 
 
 
-#Commitment #Family #Honesty

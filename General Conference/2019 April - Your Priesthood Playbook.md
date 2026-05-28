@@ -1,7 +1,5 @@
 # Your Priesthood Playbook
 
-Ulisses Soares
-
 By Elder Gary E. Stevenson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2019 General Conference*
@@ -173,7 +171,3 @@ I pray that you will make the commitment to live worthy of the holy priesthood t
 
 [^9]: See [[D&C 27.15|Doctrine and Covenants 27:15–18]][[D&C 27.16|]][[D&C 27.17|]][[D&C 27.18|]].
 
-
-
-
-#Aaronic_Priesthood #Discipleship #Spirituality

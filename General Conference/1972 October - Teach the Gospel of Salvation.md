@@ -1,7 +1,5 @@
 # Teach the Gospel of Salvation
 
-N. Eldon Tanner
-
 By President Harold B. Lee - *President of the Church*
 
 *Given in the October session of the 1972 General Conference*
@@ -167,4 +165,3 @@ Amen.
 
 
 
-#Family #Government #Obedience #Welfare

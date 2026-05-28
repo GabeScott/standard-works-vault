@@ -1,7 +1,5 @@
 # Apostasy and Restoration
 
-Thomas S. Monson
-
 By Elder Dallin H. Oaks - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1995 General Conference*
@@ -61,4 +59,3 @@ It is the reality of these glorious possibilities that causes us to proclaim our
 
 
 
-#Agency #Christianity #False_Doctrines #Family #God_The_Father #Godhead #Jesus_Christ #Joseph_Smith #Parents #Plan_Of_Salvation #Restoration

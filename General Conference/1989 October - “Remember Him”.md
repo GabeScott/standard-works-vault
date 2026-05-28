@@ -1,7 +1,5 @@
 # “Remember Him”
 
-Ezra Taft Benson
-
 By Joanne B. Doxey - *Second Counselor in the Relief Society General Presidency*
 
 *Given in the October session of the 1989 General Conference*
@@ -43,4 +41,3 @@ As we go to our homes, sisters, may we ponder what has been said. How can we as 
 
 
 
-#Obedience #Scripture_Study #Women

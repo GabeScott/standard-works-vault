@@ -1,7 +1,5 @@
 # A Plea to My Sisters
 
-Rosemary M. Wixom
-
 By President Russell M. Nelson - *President of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2015 General Conference*
@@ -93,7 +91,3 @@ I bear witness of the reality of the Lord Jesus Christ and of His redeeming, ato
 
 [^12]: See Russell M. Nelson, “[Children of the Covenant](https://www.churchofjesuschrist.org/study/ensign/1995/05/children-of-the-covenant?lang=eng),” *Ensign,* May 1995, 33.
 
-
-
-
-#Conversion #Councils #Marriage #Women

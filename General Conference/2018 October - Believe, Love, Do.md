@@ -1,7 +1,5 @@
 # Believe, Love, Do
 
-Russell M. Nelson
-
 By Elder Dieter F. Uchtdorf - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2018 General Conference*
@@ -207,7 +205,3 @@ I testify and leave you my blessing that as we *believe* in God, as we *love* Hi
 
 [^22]: [[John 14.15|John 14:15]].
 
-
-
-
-#Discipleship #Faith #Healing #Hope #Love #Ministering

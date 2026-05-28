@@ -1,7 +1,5 @@
 # The Rescue for Real Growth
 
-Thomas S. Monson
-
 By Bishop Richard C. Edgley - *Recently Released First Counselor in the Presiding Bishopric*
 
 *Given in the April session of the 2012 General Conference*
@@ -81,4 +79,3 @@ In conclusion, our commitment as members of Christ’s true Church stems from th
 
 
 
-#Activation

@@ -1,7 +1,5 @@
 # Teach the Children
 
-Gordon B. Hinckley
-
 By Patricia P. Pinegar - *Primary General President*
 
 *Given in the October session of the 1994 General Conference*
@@ -57,4 +55,3 @@ All of us can be like the giant redwood trees and support and strengthen each ot
 
 
 
-#Children #Family_Home_Evening #Love #Ordinances #Prayer

@@ -1,7 +1,5 @@
 # Charity Never Faileth
 
-Thomas S. Monson
-
 By President Thomas S. Monson - *President of the Church*
 
 *Given in the October session of the 2010 General Conference*

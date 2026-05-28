@@ -1,7 +1,5 @@
 # Blessing Our Families through Our Covenants
 
-Gordon B. Hinckley
-
 By Kathleen H. Hughes - *First Counselor in the Relief Society General Presidency*
 
 *Given in the October session of the 2002 General Conference*
@@ -59,7 +57,3 @@ May our Heavenly Father bless us to keep our covenants that our families may be 
 
 [^5]: [[Psalms 55.22|Psalm 55:22]].
 
-
-
-
-#Blessings #Covenants #Family #Morality

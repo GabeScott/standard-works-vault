@@ -1,7 +1,5 @@
 # Tithing: An Opportunity to Prove Our Faithfulness
 
-Spencer W. Kimball
-
 By President Gordon B. Hinckley - *Counselor in the First Presidency*
 
 *Given in the April session of the 1982 General Conference*
@@ -99,4 +97,3 @@ God bless you, my brethren of the priesthood, with faith and testimony and a lov
 
 
 
-#Leadership #Missionary_Work #Tithing

@@ -1,7 +1,5 @@
 # Joseph Smith
 
-Thomas S. Monson
-
 By Elder Neil L. Andersen - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2014 General Conference*
@@ -141,7 +139,3 @@ In our society beyond the veil of death, we will clearly understand the sacred c
 
 [^24]: “Praise to the Man,” *Hymns,* no. 27.
 
-
-
-
-#Joseph_Smith #Testimony

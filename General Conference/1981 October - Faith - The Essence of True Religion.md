@@ -1,7 +1,5 @@
 # Faith: The Essence of True Religion
 
-Gordon B. Hinckley
-
 By President Gordon B. Hinckley - *Counselor in the First Presidency*
 
 *Given in the October session of the 1981 General Conference*
@@ -111,4 +109,3 @@ My brethren and sisters, as we begin this great conference, I not only invoke th
 
 
 
-#Testimony

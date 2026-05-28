@@ -1,7 +1,5 @@
 # The Tender Mercies of the Lord
 
-Gordon B. Hinckley
-
 By Elder David A. Bednar - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2005 General Conference*
@@ -81,4 +79,3 @@ I am thankful for the Restoration of the gospel of Jesus Christ through the Prop
 
 
 
-#Attitude #Blessings #Faith #Holy_Ghost #Mercy #Obedience #Peace #Spirituality

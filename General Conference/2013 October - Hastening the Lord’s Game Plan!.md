@@ -1,7 +1,5 @@
 # Hastening the Lord’s Game Plan!
 
-Thomas S. Monson
-
 By Elder S. Gifford Nielsen - *Of the Seventy*
 
 *Given in the October session of the 2013 General Conference*
@@ -83,4 +81,3 @@ I add my testimony to that of the Prophet Joseph Smith: “And now, after the ma
 
 
 
-#Missionary_Work

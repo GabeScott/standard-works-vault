@@ -1,7 +1,5 @@
 # Finding Joy by Serving Others
 
-Gordon B. Hinckley
-
 By JoAnn Randall
 
 *Given in the October session of the 1981 General Conference*
@@ -67,4 +65,3 @@ There are so many ways that our families can bring joy to others through service
 
 
 
-#Charity #Family

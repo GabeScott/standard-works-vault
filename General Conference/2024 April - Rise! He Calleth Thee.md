@@ -1,7 +1,5 @@
 # Rise! He Calleth Thee
 
-Dallin H. Oaks
-
 By Elder Massimo De Feo - *Of the Seventy*
 
 *Given in the April session of the 2024 General Conference*
@@ -125,7 +123,3 @@ May we cry our testimony of Him louder than the voices around us in a world that
 
 [^5]: [[Mark 10.52|Mark 10:52]].
 
-
-
-
-#Adversity #Agency #Faith #Jesus_Christ #Perspective #Repentance

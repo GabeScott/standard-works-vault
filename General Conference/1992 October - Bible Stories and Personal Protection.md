@@ -1,7 +1,5 @@
 # Bible Stories and Personal Protection
 
-Gordon B. Hinckley
-
 By Elder Dallin H. Oaks - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1992 General Conference*
@@ -135,4 +133,3 @@ These and all promises to the faithful children of God are made by the voice and
 
 
 
-#Faith #Obedience #Safety #Scripture_Study

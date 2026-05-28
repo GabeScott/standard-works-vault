@@ -1,7 +1,5 @@
 # A “Mother Heart”
 
-Gordon B. Hinckley
-
 By Julie B. Beck - *First Counselor in the Young Women General Presidency*
 
 *Given in the April session of the 2004 General Conference*
@@ -33,4 +31,3 @@ Every girl and woman who makes and keeps sacred covenants can have a mother hear
 
 
 
-#Children #Covenants #Motherhood #Testimony #Women

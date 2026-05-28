@@ -1,7 +1,5 @@
 # Infuriating Unfairness
 
-Russell M. Nelson
-
 By Elder Dale G. Renlund - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2021 General Conference*
@@ -129,7 +127,3 @@ I testify that the Savior lives. He understands unfairness. The marks in the pal
 
 [^30]: See [[Isaiah 61.3|Isaiah 61:3]]. Receiving a crown of beauty means that we become joint-heirs with Jesus Christ in the kingdom of God. See also Donald W. Parry, Jay A. Parry, and Tina M. Peterson, *Understanding Isaiah* (1998), 541–43.
 
-
-
-
-#Adversity #Atonement #Compassion #Faith #God_The_Father #Jesus_Christ

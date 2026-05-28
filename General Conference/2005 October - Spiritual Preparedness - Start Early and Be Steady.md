@@ -1,7 +1,5 @@
 # Spiritual Preparedness: Start Early and Be Steady
 
-Gordon B. Hinckley
-
 By Elder Henry B. Eyring - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2005 General Conference*
@@ -89,7 +87,3 @@ I pray that we will choose to obey the Lord quickly, always, in quiet times and 
 
 [^6]: [[D&C 38.30|D&C 38:30]].
 
-
-
-
-#Faith #Jesus_Christ #Obedience #Plan_Of_Salvation #Prayer #Preparation #Repentance #Scripture_Study

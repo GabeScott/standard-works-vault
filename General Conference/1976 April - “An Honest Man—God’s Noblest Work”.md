@@ -1,7 +1,5 @@
 # “An Honest Man—God’s Noblest Work”
 
-Spencer W. Kimball
-
 By Elder Gordon B. Hinckley - *Of the Council of the Twelve*
 
 *Given in the April session of the 1976 General Conference*
@@ -105,4 +103,3 @@ I leave you my testimony of the truth of the cause in which we labor, of the liv
 
 
 
-#Honesty #Truth
