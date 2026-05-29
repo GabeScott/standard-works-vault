@@ -1,6 +1,6 @@
 # Pit
 
-*See also* [[Death.md|Death]]; [[Grave [noun].md|Grave [noun]]]; [[Hell.md|Hell]]; [[Spirits in Prison.md|Spirits in Prison]]
+*See also* [[Death.md|Death]]; [[Grave (noun).md|Grave (noun)]]; [[Hell.md|Hell]]; [[Spirits in Prison.md|Spirits in Prison]]
 
 let us slay him, and cast him into some *pit*, [[Genesis 37.20|Genesis 37:20]].
 

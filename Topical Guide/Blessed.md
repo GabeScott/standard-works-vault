@@ -1,6 +1,6 @@
 # Blessed [adjective]
 
-*See also* [[Bless [verb].md|Bless [verb]]]; [[Glad.md|Glad]]; [[Happiness.md|Happiness]]; [[Joy.md|Joy]]
+*See also* [[Bless (verb).md|Bless (verb)]]; [[Glad.md|Glad]]; [[Happiness.md|Happiness]]; [[Joy.md|Joy]]
 
 *Blessed* be Abram of the most high God, [[Genesis 14.19|Genesis 14:19]].
 

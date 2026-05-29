@@ -1,6 +1,6 @@
 # Rend, Rent [verb]
 
-*See also* [[Tear [verb].md|Tear [verb]]]
+*See also* [[Tear (verb).md|Tear (verb)]]
 
 Joseph is without doubt *rent* in pieces, [[Genesis 37.33|Genesis 37:33]].
 

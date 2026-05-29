@@ -1,6 +1,6 @@
 # Fountain
 
-*See also* [[Spring [noun].md|Spring [noun]]]; [[Well [noun].md|Well [noun]]]
+*See also* [[Spring (noun).md|Spring (noun)]]; [[Well (noun).md|Well (noun)]]
 
 *fountains* of the great deep broken up, [[Genesis 7.11|Genesis 7:11]].
 

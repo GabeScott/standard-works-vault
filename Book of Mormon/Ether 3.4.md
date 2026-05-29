@@ -7,4 +7,4 @@
 
 [^a]: [[God, Power of|TG God, Power of]].  
 [^b]: [[Ether 12.19|Ether 12:20 (19–21)]][[Ether 12.20|]][[Ether 12.21|]].  
-[^c]: [[Light [noun]|TG Light [noun]]].  
+[^c]: [[Light (noun)|TG Light (noun)]].  

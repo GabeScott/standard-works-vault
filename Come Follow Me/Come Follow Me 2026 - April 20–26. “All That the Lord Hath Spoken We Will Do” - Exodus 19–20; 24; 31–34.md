@@ -91,10 +91,6 @@ When Moses came down from the mountain, he brought the law written on stone tabl
 - You could also sing a song like “[Keep the Commandments](https://churchofjesuschrist.org/study/manual/childrens-songbook/keep-the-commandments?lang=eng)” (*Children’s Songbook*, 146–47). Help your children find words in the song that teach them why God wants us to keep His commandments.
 
 > **When children share spiritual experiences, their testimony grows.** The questions you ask can encourage your children to share how they feel about the Savior and how living the gospel has blessed them (see *Teaching in the Savior’s Way*, [32](https://churchofjesuschrist.org/study/manual/teaching-in-the-saviors-way-2022/12-part-3/13-suggestions-for-a-variety-of-teaching?lang=eng&id=title13#title13)). When they do this, they are bearing testimony. Consider how you can do this as you discuss the blessings that come from living the Ten Commandments.
->
->[
-
-](https://churchofjesuschrist.org/study/video/teaching-videos/2026-03-invite-diligent-learning-let-children-share-what-they-learn?lang=eng)
 
 
 [[Exodus 20.12|Exodus 20:12]]

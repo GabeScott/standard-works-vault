@@ -1,6 +1,6 @@
 # Little
 
-*See also* [[Light [adjective].md|Light [adjective]]]; [[Small.md|Small]]
+*See also* [[Light (adjective).md|Light (adjective)]]; [[Small.md|Small]]
 
 he that gathered *little* had no lack, [[Exodus 16.18|Exodus 16:18]] ([[2 Corinthians 8.15|2 Corinthians 8:15]]).
 

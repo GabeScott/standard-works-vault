@@ -6,4 +6,4 @@
 
 
 [^a]: [[Order|TG Order]].  
-[^b]: [[Light [noun]|TG Light [noun]]].  
+[^b]: [[Light (noun)|TG Light (noun)]].  

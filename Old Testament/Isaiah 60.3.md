@@ -6,4 +6,4 @@
 
 
 [^a]: [[Conversion, Convert|TG Conversion]]; [[Gentiles|Gentiles]].  
-[^b]: [[Israel, Mission of|TG Israel, Mission of]]; [[Light [noun]|Light [noun]]].  
+[^b]: [[Israel, Mission of|TG Israel, Mission of]]; [[Light (noun)|Light (noun)]].  

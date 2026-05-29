@@ -6,4 +6,4 @@
 
 
 [^a]: The “dimness” and “darkness” were apostasy and captivity ([[Isaiah 8.20|Isa. 8:20–22]][[Isaiah 8.21|]][[Isaiah 8.22|]]); the “great light” is Christ ([[Isaiah 9.6|Isa. 9:6–7]][[Isaiah 9.7|]]). [[Darkness, Spiritual|TG Darkness, Spiritual]].  
-[^b]: [[Jesus Christ, Light of the World|TG Jesus Christ, Light of the World]]; [[Light [noun]|Light [noun]]].  
+[^b]: [[Jesus Christ, Light of the World|TG Jesus Christ, Light of the World]]; [[Light (noun)|Light (noun)]].  

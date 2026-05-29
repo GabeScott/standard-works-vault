@@ -1,6 +1,6 @@
 # Better
 
-*See also* [[Good.md|Good]]; [[Well [adjective, adverb].md|Well [adjective, adverb]]]
+*See also* [[Good.md|Good]]; [[Well (adjective, adverb).md|Well (adjective, adverb)]]
 
 It is *better* that I give her to thee, [[Genesis 29.19|Genesis 29:19]].
 

@@ -1,6 +1,6 @@
 # Bless [verb]
 
-*See also* [[Blessed [adjective].md|Blessed [adjective]]]; [[Praise.md|Praise]]
+*See also* [[Blessed (adjective).md|Blessed (adjective)]]; [[Praise.md|Praise]]
 
 God *blessed* them, saying, Be fruitful, [[Genesis 1.22|Genesis 1:22]] ([[Moses 2.22|Moses 2:22]]).
 

@@ -1,6 +1,6 @@
 # Fit
 
-*See also* [[Meet [adjective].md|Meet [adjective]]]; [[Worthiness.md|Worthiness]]
+*See also* [[Meet (adjective).md|Meet (adjective)]]; [[Worthiness.md|Worthiness]]
 
 No man … looking back, is *fit* for the kingdom, [[Luke 9.62|Luke 9:62]].
 

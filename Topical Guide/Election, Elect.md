@@ -1,6 +1,6 @@
 # Election, Elect
 
-*See also* [[Called of God.md|Called of God]]; [[Calling.md|Calling]]; [[Chosen [noun].md|Chosen [noun]]]; [[Exaltation.md|Exaltation]]; [[Foreordination.md|Foreordination]]
+*See also* [[Called of God.md|Called of God]]; [[Calling.md|Calling]]; [[Chosen (noun).md|Chosen (noun)]]; [[Exaltation.md|Exaltation]]; [[Foreordination.md|Foreordination]]
 
 in thee shall all families of the earth be *blessed*, [[Genesis 12.3|Genesis 12:3]].
 

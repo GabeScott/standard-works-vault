@@ -1,6 +1,6 @@
 # Truth
 
-*See also* [[Education.md|Education]]; [[Gospel.md|Gospel]]; [[Holy Ghost, Mission of.md|Holy Ghost, Mission of]]; [[Light [noun].md|Light [noun]]]; [[Scriptures, Value of.md|Scriptures, Value of]]; [[True.md|True]]
+*See also* [[Education.md|Education]]; [[Gospel.md|Gospel]]; [[Holy Ghost, Mission of.md|Holy Ghost, Mission of]]; [[Light (noun).md|Light (noun)]]; [[Scriptures, Value of.md|Scriptures, Value of]]; [[True.md|True]]
 
 men of *truth* … place such over them, to be rulers, [[Exodus 18.21|Exodus 18:21]].
 

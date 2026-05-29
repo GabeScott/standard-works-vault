@@ -1,6 +1,6 @@
 # Give, Gave, Given
 
-*See also* [[Almsgiving.md|Almsgiving]]; [[Bestow.md|Bestow]]; [[Charity.md|Charity]]; [[Generosity.md|Generosity]]; [[Offer.md|Offer]]; [[Present [verb].md|Present [verb]]]; [[Self-Sacrifice.md|Self-Sacrifice]]
+*See also* [[Almsgiving.md|Almsgiving]]; [[Bestow.md|Bestow]]; [[Charity.md|Charity]]; [[Generosity.md|Generosity]]; [[Offer.md|Offer]]; [[Present (verb).md|Present (verb)]]; [[Self-Sacrifice.md|Self-Sacrifice]]
 
 she *gave* me of the tree, and I did eat, [[Genesis 3.12|Genesis 3:12]] ([[Moses 4.18|Moses 4:18]]).
 

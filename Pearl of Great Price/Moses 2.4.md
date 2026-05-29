@@ -6,4 +6,4 @@
 
 
 [^a]: [[Genesis 1.4|Gen. 1:4]]; [[Abraham 4.4|Abr. 4:4]].  
-[^b]: [[Light [noun]|TG Light [noun]]].  
+[^b]: [[Light (noun)|TG Light (noun)]].  

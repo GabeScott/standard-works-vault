@@ -12,4 +12,4 @@
 [^e]: [[Nations|TG Nations]].  
 [^f]: GR purchased, preserved; note that in [[Exodus 19.5|Ex. 19:5]] the Hebrew word is segullah, meaning “special possession or property.” [[Israel, Mission of|TG Israel, Mission of]]; [[Modesty|Modesty]]; [[Peculiar People|Peculiar People]].  
 [^g]: [[Walking in Darkness|TG Walking in Darkness]].  
-[^h]: [[Light [noun]|TG Light [noun]]].  
+[^h]: [[Light (noun)|TG Light (noun)]].  

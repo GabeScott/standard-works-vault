@@ -6,4 +6,4 @@
 
 
 [^a]: [[Revelation 21.23|Rev. 21:23]]; [[Revelation 22.5|22:5]].  
-[^b]: [[Jesus Christ, Light of the World|TG Jesus Christ, Light of the World]]; [[Light [noun]|Light [noun]]]; [[Light of Christ|Light of Christ]].  
+[^b]: [[Jesus Christ, Light of the World|TG Jesus Christ, Light of the World]]; [[Light (noun)|Light (noun)]]; [[Light of Christ|Light of Christ]].  

@@ -6,5 +6,5 @@
 
 
 [^a]: [[Light of Christ|TG Light of Christ]].  
-[^b]: [[Light [noun]|TG Light [noun]]].  
+[^b]: [[Light (noun)|TG Light (noun)]].  
 [^c]: [[Darkness, Spiritual|TG Darkness, Spiritual]]; [[Walking in Darkness|Walking in Darkness]].  

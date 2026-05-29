@@ -1,6 +1,6 @@
 # Lamp
 
-*See also* [[Candle.md|Candle]]; [[Light [noun].md|Light [noun]]]; [[BD Lamp.md|BD Lamp]]
+*See also* [[Candle.md|Candle]]; [[Light (noun).md|Light (noun)]]; [[BD Lamp.md|BD Lamp]]
 
 smoking furnace, and a burning *lamp*, [[Genesis 15.17|Genesis 15:17]].
 

@@ -1,6 +1,6 @@
 # Offer [verb]
 
-*See also* [[Give.md|Give]]; [[Offering.md|Offering]]; [[Present [verb].md|Present [verb]]]; [[Sacrifice.md|Sacrifice]]
+*See also* [[Give.md|Give]]; [[Offering.md|Offering]]; [[Present (verb).md|Present (verb)]]; [[Sacrifice.md|Sacrifice]]
 
 *offer* him there for a burnt offering, [[Genesis 22.2|Genesis 22:2]].
 

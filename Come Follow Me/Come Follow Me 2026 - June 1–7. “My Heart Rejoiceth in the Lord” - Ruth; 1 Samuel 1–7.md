@@ -83,10 +83,6 @@ Other times, you may feel that the heavens are shut and that God does not want t
 - Ask your children how they would explain to someone how the Lord speaks to them. You could help them look for answers in [[D&C 6.22|Doctrine and Covenants 6:22–23]][[D&C 6.23|]]; [[D&C 8.2|8:2–3]][[D&C 8.3|]]; [[D&C 9.7|9:7–9]][[D&C 9.8|]][[D&C 9.9|]].
 
 > **Help your children learn to recognize the Spirit.** It’s not easy to discern between our own feelings and the Holy Ghost. Everyone struggles with this from time to time. Take every opportunity you can to help your children recognize when they are feeling the influence of the Spirit. For example, as you read [[1 Samuel 3.1|1 Samuel 3:1–10]][[1 Samuel 3.2|]][[1 Samuel 3.3|]][[1 Samuel 3.4|]][[1 Samuel 3.5|]][[1 Samuel 3.6|]][[1 Samuel 3.7|]][[1 Samuel 3.8|]][[1 Samuel 3.9|]][[1 Samuel 3.10|]] and the suggested verses in the Doctrine and Covenants, you could share experiences in which the Lord has taught you in your mind and heart.
->
->[
-
-](https://churchofjesuschrist.org/study/video/teaching-videos/2026-03-help-children-learn-to-recognize-the-holy-ghost?lang=eng)
 
 
 > For more, see this month’s issue of the *[Friend](https://churchofjesuschrist.org/study/magazines/friend?lang=eng)* magazine.

@@ -1,6 +1,6 @@
 # Brightness
 
-*See also* [[Light [noun].md|Light [noun]]]
+*See also* [[Light (noun).md|Light (noun)]]
 
 we wait … for *brightness*, but we walk in darkness, [[Isaiah 59.9|Isaiah 59:9]].
 

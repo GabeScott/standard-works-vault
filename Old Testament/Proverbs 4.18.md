@@ -7,5 +7,5 @@
 
 [^a]: [[2 Nephi 31.17|2 Ne. 31:18 (17–21)]][[2 Nephi 31.18|]][[2 Nephi 31.19|]][[2 Nephi 31.20|]][[2 Nephi 31.21|]].  
 [^b]: [[Righteousness|TG Righteousness]].  
-[^c]: [[Example, Ensample|TG Example]]; [[Light [noun]|Light [noun]]].  
+[^c]: [[Example, Ensample|TG Example]]; [[Light (noun)|Light (noun)]].  
 [^d]: [[Discernment, Spiritual|TG Discernment, Spiritual]].  

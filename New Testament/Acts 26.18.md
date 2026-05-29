@@ -6,4 +6,4 @@
 
 
 [^a]: [[Walking in Darkness|TG Walking in Darkness]].  
-[^b]: [[Light [noun]|TG Light [noun]]].  
+[^b]: [[Light (noun)|TG Light (noun)]].  

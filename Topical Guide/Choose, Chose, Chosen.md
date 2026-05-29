@@ -1,6 +1,6 @@
 # Choose, Chose, Chosen [verb]
 
-*See also* [[Agency.md|Agency]]; [[Chosen [noun].md|Chosen [noun]]]; [[Election.md|Election]]
+*See also* [[Agency.md|Agency]]; [[Chosen (noun).md|Chosen (noun)]]; [[Election.md|Election]]
 
 Lot *chose* him all the plain of Jordan, [[Genesis 13.11|Genesis 13:11]].
 

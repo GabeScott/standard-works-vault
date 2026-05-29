@@ -1,6 +1,6 @@
 # Inhabit
 
-*See also* [[Abide.md|Abide]]; [[Dwell.md|Dwell]]; [[Inhabitant.md|Inhabitant]]; [[Live [verb].md|Live [verb]]]
+*See also* [[Abide.md|Abide]]; [[Dwell.md|Dwell]]; [[Inhabitant.md|Inhabitant]]; [[Live (verb).md|Live (verb)]]
 
 wicked shall not *inhabit* the earth, [[Proverbs 10.30|Proverbs 10:30]].
 
