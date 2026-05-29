@@ -1,6 +1,6 @@
 # Voice
 
-*See also* [[Noise.md|Noise]]; [[Sound [noun, verb].md|Sound [noun, verb]]]
+*See also* [[Noise.md|Noise]]; [[Sound (noun, verb).md|Sound (noun, verb)]]
 
 they heard the *voice* of the Lord, [[Genesis 3.8|Genesis 3:8]] ([[Moses 4.14|Moses 4:14]]).
 

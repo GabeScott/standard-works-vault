@@ -1,6 +1,6 @@
 # Think, Thought
 
-*See also* [[Imagination.md|Imagination]]; [[Meditation.md|Meditation]]; [[Reason.md|Reason]]; [[Thought [noun].md|Thought [noun]]]
+*See also* [[Imagination.md|Imagination]]; [[Meditation.md|Meditation]]; [[Reason.md|Reason]]; [[Thought (noun).md|Thought (noun)]]
 
 ye *thought* evil against me, [[Genesis 50.20|Genesis 50:20]].
 

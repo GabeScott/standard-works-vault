@@ -7,5 +7,5 @@
 
 [^a]: [[2 Corinthians 4.3|2 Cor. 4:4 (3–4)]][[2 Corinthians 4.4|]]. [[Veil|TG Veil]].  
 [^b]: [[Unbelief, Unbelievers|TG Unbelief]].  
-[^c]: [[Light [noun]|TG Light [noun]]].  
+[^c]: [[Light (noun)|TG Light (noun)]].  
 [^d]: [[Jacob 7.21|Jacob 7:21]]; [[Mosiah 3.19|Mosiah 3:19]].  

@@ -10,6 +10,6 @@
 [^c]: [[Alma 19.6|Alma 19:6]]; [[Moroni 7.12|Moro. 7:12]]; [[D&C 93.38|D&C 93:39 (38–39)]][[D&C 93.39|]]. [[Spiritual Blindness|TG Spiritual Blindness]].  
 [^d]: [[Mind, Minded|TG Mind]].  
 [^e]: [[Unbelief, Unbelievers|TG Unbelief]].  
-[^f]: [[Light [noun]|TG Light [noun]]].  
+[^f]: [[Light (noun)|TG Light (noun)]].  
 [^g]: [[God, Body of, Corporeal Nature|TG God, Body of, Corporeal Nature]].  
 [^h]: [[Godhead|TG Godhead]].  

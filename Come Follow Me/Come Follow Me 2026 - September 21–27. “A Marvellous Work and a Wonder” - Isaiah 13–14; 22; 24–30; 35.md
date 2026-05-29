@@ -23,10 +23,6 @@ In Isaiah’s day, Babylon was a mighty kingdom with a powerful ruler. Now Babyl
 The teachings of Isaiah often refer to the Savior’s mission, including His atoning sacrifice, Resurrection, and Second Coming. What aspects of His mission come to mind as you read these verses: [[Isaiah 22.22|Isaiah 22:22–23]][[Isaiah 22.23|]]; [[Isaiah 24.21|24:21–23]][[Isaiah 24.22|]][[Isaiah 24.23|]]; [[Isaiah 25.6|25:6–8]][[Isaiah 25.7|]][[Isaiah 25.8|]]; [[Isaiah 26.19|26:19]]; [[Isaiah 28.16|28:16]]? What other passages do you find that remind you of the Savior?
 
 > **Give learners opportunities to bear testimony of Jesus Christ.** “To be a teacher of Jesus Christ’s gospel means to help others understand and rely on His teachings, redeeming power, and perfect love” (*Teaching in the Savior’s Way*, [8](https://churchofjesuschrist.org/study/manual/teaching-in-the-saviors-way-2022/04-part-1/06-help-learners-come-unto-christ?lang=eng&id=p3#p3)). One simple way to do that every time you teach is to ask a question like “What did you find in the scriptures this week that taught you something about the Savior?” Then let learners share their experiences and strengthen each other’s faith.
->
->[
-
-](https://churchofjesuschrist.org/study/video/teaching-videos/2026-03-give-learners-opportunities?lang=eng)
 
 
 [[Isaiah 24.1|Isaiah 24:1–12]][[Isaiah 24.2|]][[Isaiah 24.3|]][[Isaiah 24.4|]][[Isaiah 24.5|]][[Isaiah 24.6|]][[Isaiah 24.7|]][[Isaiah 24.8|]][[Isaiah 24.9|]][[Isaiah 24.10|]][[Isaiah 24.11|]][[Isaiah 24.12|]]; [[Isaiah 28.1|28:1–8]][[Isaiah 28.2|]][[Isaiah 28.3|]][[Isaiah 28.4|]][[Isaiah 28.5|]][[Isaiah 28.6|]][[Isaiah 28.7|]][[Isaiah 28.8|]]; [[Isaiah 29.7|29:7–13]][[Isaiah 29.8|]][[Isaiah 29.9|]][[Isaiah 29.10|]][[Isaiah 29.11|]][[Isaiah 29.12|]][[Isaiah 29.13|]]; [[Isaiah 30.8|30:8–14]][[Isaiah 30.9|]][[Isaiah 30.10|]][[Isaiah 30.11|]][[Isaiah 30.12|]][[Isaiah 30.13|]][[Isaiah 30.14|]]

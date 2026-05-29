@@ -6,4 +6,4 @@
 
 
 [^a]: [[Psalms 33.9|Ps. 33:9]].  
-[^b]: [[Light [noun]|TG Light [noun]]].  
+[^b]: [[Light (noun)|TG Light (noun)]].  

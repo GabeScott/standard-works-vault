@@ -6,4 +6,4 @@
 
 
 [^a]: [[Proverbs 20.20|Prov. 20:20]].  
-[^b]: [[Light [noun]|TG Light [noun]]].  
+[^b]: [[Light (noun)|TG Light (noun)]].  

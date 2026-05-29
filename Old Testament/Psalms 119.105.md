@@ -7,4 +7,4 @@
 
 [^a]: [[Alma 37.38|Alma 37:44 (38–46)]][[Alma 37.39|]][[Alma 37.40|]][[Alma 37.41|]][[Alma 37.42|]][[Alma 37.43|]][[Alma 37.44|]][[Alma 37.45|]][[Alma 37.46|]].  
 [^b]: [[Proverbs 6.23|Prov. 6:23]].  
-[^c]: [[Light [noun]|TG Light [noun]]].  
+[^c]: [[Light (noun)|TG Light (noun)]].  

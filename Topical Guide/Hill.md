@@ -1,6 +1,6 @@
 # Hill
 
-*See also* [[Mount [noun].md|Mount [noun]]]; [[Mountain.md|Mountain]]
+*See also* [[Mount (noun).md|Mount (noun)]]; [[Mountain.md|Mountain]]
 
 waters … upon the earth; and all the high *hills*, [[Genesis 7.19|Genesis 7:19]].
 

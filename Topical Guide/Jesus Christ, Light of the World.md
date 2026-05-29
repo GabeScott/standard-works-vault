@@ -1,6 +1,6 @@
 # Jesus Christ, Light of the World
 
-*See also* [[Light [noun].md|Light [noun]]]; [[Light of Christ.md|Light of Christ]]
+*See also* [[Light (noun).md|Light (noun)]]; [[Light of Christ.md|Light of Christ]]
 
 Lord is my *light* and my salvation, [[Psalms 27.1|Psalms 27:1]].
 

@@ -1,6 +1,6 @@
 # Scriptures, Study of
 
-*See also* [[Education.md|Education]]; [[God, Knowledge about.md|God, Knowledge about]]; [[Light [noun].md|Light [noun]]]; [[Study.md|Study]]
+*See also* [[Education.md|Education]]; [[God, Knowledge about.md|God, Knowledge about]]; [[Light (noun).md|Light (noun)]]; [[Study.md|Study]]
 
 *teach* them diligently unto thy children, [[Deuteronomy 6.7|Deuteronomy 6:7]].
 

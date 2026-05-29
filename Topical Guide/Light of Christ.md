@@ -1,6 +1,6 @@
 # Light of Christ
 
-*See also* [[God, Spirit of.md|God, Spirit of]]; [[Holy Spirit.md|Holy Spirit]]; [[Jesus Christ, Light of the World.md|Jesus Christ, Light of the World]]; [[Jesus Christ, Spirit of.md|Jesus Christ, Spirit of]]; [[Light [noun].md|Light [noun]]]; [[Lord, Spirit of.md|Lord, Spirit of]]
+*See also* [[God, Spirit of.md|God, Spirit of]]; [[Holy Spirit.md|Holy Spirit]]; [[Jesus Christ, Light of the World.md|Jesus Christ, Light of the World]]; [[Jesus Christ, Spirit of.md|Jesus Christ, Spirit of]]; [[Light (noun).md|Light (noun)]]; [[Lord, Spirit of.md|Lord, Spirit of]]
 
 Lord shall be unto thee an everlasting *light*, [[Isaiah 60.19|Isaiah 60:19]].
 

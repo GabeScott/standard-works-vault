@@ -1,6 +1,6 @@
 # Intelligence
 
-*See also* [[God, Glory of.md|God, Glory of]]; [[God, Intelligence of.md|God, Intelligence of]]; [[God, Omniscience of.md|God, Omniscience of]]; [[Knowledge.md|Knowledge]]; [[Light [noun].md|Light [noun]]]; [[Light of Christ.md|Light of Christ]]; [[Man, Antemortal Existence of.md|Man, Antemortal Existence of]]; [[Understanding.md|Understanding]]; [[Wisdom.md|Wisdom]]
+*See also* [[God, Glory of.md|God, Glory of]]; [[God, Intelligence of.md|God, Intelligence of]]; [[God, Omniscience of.md|God, Omniscience of]]; [[Knowledge.md|Knowledge]]; [[Light (noun).md|Light (noun)]]; [[Light of Christ.md|Light of Christ]]; [[Man, Antemortal Existence of.md|Man, Antemortal Existence of]]; [[Understanding.md|Understanding]]; [[Wisdom.md|Wisdom]]
 
 *intelligence* cleaveth unto *intelligence*, [[D&C 88.40|D&C 88:40]].
 

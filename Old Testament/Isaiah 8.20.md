@@ -7,4 +7,4 @@
 
 [^a]: [[Scriptures, Value of|TG Scriptures, Value of]].  
 [^b]: IE the spiritualist mediums (also in [[Isaiah 8.21|vv. 21–22]][[Isaiah 8.22|]]).  
-[^c]: [[Light [noun]|TG Light [noun]]].  
+[^c]: [[Light (noun)|TG Light (noun)]].  

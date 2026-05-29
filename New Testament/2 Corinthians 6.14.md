@@ -8,4 +8,4 @@
 [^a]: [[Marriage, Interfaith|TG Marriage, Interfaith]]; [[Marriage, Temporal|Marriage, Temporal]].  
 [^b]: [[Fellowshipping|TG Fellowshipping]].  
 [^c]: [[2 Kings 3.13|2 Kgs. 3:13]]; [[Ezekiel 14.3|Ezek. 14:3]].  
-[^d]: [[Light [noun]|TG Light [noun]]].  
+[^d]: [[Light (noun)|TG Light (noun)]].  

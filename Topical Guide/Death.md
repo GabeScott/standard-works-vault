@@ -1,6 +1,6 @@
 # Death
 
-*See also* [[Dead.md|Dead]]; [[Death, Power over.md|Death, Power over]]; [[Death, Spiritual, First.md|Death, Spiritual, First]]; [[Death, Spiritual, Second.md|Death, Spiritual, Second]]; [[Die.md|Die]]; [[Fall of Man.md|Fall of Man]]; [[Grave [noun].md|Grave [noun]]]; [[Immortality.md|Immortality]]; [[Mortality.md|Mortality]]
+*See also* [[Dead.md|Dead]]; [[Death, Power over.md|Death, Power over]]; [[Death, Spiritual, First.md|Death, Spiritual, First]]; [[Death, Spiritual, Second.md|Death, Spiritual, Second]]; [[Die.md|Die]]; [[Fall of Man.md|Fall of Man]]; [[Grave (noun).md|Grave (noun)]]; [[Immortality.md|Immortality]]; [[Mortality.md|Mortality]]
 
 giveth any of his seed unto Molech; he shall surely be put to *death*, [[Leviticus 20.2|Leviticus 20:2]].
 

@@ -46,10 +46,6 @@ In the dry region where the Israelites lived, people stored precious water in un
 [[Jeremiah 7.1|Jeremiah 7]][[Jeremiah 7.2|]][[Jeremiah 7.3|]][[Jeremiah 7.4|]][[Jeremiah 7.5|]][[Jeremiah 7.6|]][[Jeremiah 7.7|]][[Jeremiah 7.8|]][[Jeremiah 7.9|]][[Jeremiah 7.10|]][[Jeremiah 7.11|]][[Jeremiah 7.12|]][[Jeremiah 7.13|]][[Jeremiah 7.14|]][[Jeremiah 7.15|]][[Jeremiah 7.16|]][[Jeremiah 7.17|]][[Jeremiah 7.18|]][[Jeremiah 7.19|]][[Jeremiah 7.20|]][[Jeremiah 7.21|]][[Jeremiah 7.22|]][[Jeremiah 7.23|]][[Jeremiah 7.24|]][[Jeremiah 7.25|]][[Jeremiah 7.26|]][[Jeremiah 7.27|]][[Jeremiah 7.28|]][[Jeremiah 7.29|]][[Jeremiah 7.30|]][[Jeremiah 7.31|]][[Jeremiah 7.32|]][[Jeremiah 7.33|]][[Jeremiah 7.34|]] is addressed to people who were entering “the Lord’s house … to worship the Lord,” but their actions didn’t match their outward devotion (see [[Jeremiah 7.2|verses 2–11]][[Jeremiah 7.3|]][[Jeremiah 7.4|]][[Jeremiah 7.5|]][[Jeremiah 7.6|]][[Jeremiah 7.7|]][[Jeremiah 7.8|]][[Jeremiah 7.9|]][[Jeremiah 7.10|]][[Jeremiah 7.11|]]). What messages do you feel the Lord might have for you in [[Jeremiah 7.21|verses 21–23]][[Jeremiah 7.22|]][[Jeremiah 7.23|]]?
 
 > **Use object lessons.** The Lord’s prophets often compare spiritual truths to familiar objects. Consider doing the same as you learn and teach the gospel. For example, to visualize [[Jeremiah 2.13|Jeremiah 2:13]], you could put water in a cracked or broken container or drink from a drinking fountain. How is Jesus like a “fountain of living waters”? ([[Jeremiah 2.13|Jeremiah 2:13]]). How do we drink from His living water?
->
->[
-
-](https://churchofjesuschrist.org/study/video/teaching-videos/2026-03-use-object-lessons?lang=eng)
 
 
 [[Jeremiah 3.14|Jeremiah 3:14–18]][[Jeremiah 3.15|]][[Jeremiah 3.16|]][[Jeremiah 3.17|]][[Jeremiah 3.18|]]; [[Jeremiah 16.14|16:14–21]][[Jeremiah 16.15|]][[Jeremiah 16.16|]][[Jeremiah 16.17|]][[Jeremiah 16.18|]][[Jeremiah 16.19|]][[Jeremiah 16.20|]][[Jeremiah 16.21|]]

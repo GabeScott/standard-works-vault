@@ -8,6 +8,6 @@
 [^a]: [[D&C 1.38|D&C 1:38]].  
 [^b]: [[Servant|TG Servant]].  
 [^c]: [[Darkness, Spiritual|TG Darkness, Spiritual]].  
-[^d]: [[Light [noun]|TG Light [noun]]].  
+[^d]: [[Light (noun)|TG Light (noun)]].  
 [^e]: [[D&C 84.116|D&C 84:116]].  
 [^f]: HEB be supported by.  

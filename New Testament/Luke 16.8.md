@@ -6,4 +6,4 @@
 
 
 [^a]: [[Children of Light|TG Children of Light]].  
-[^b]: [[Light [noun]|TG Light [noun]]].  
+[^b]: [[Light (noun)|TG Light (noun)]].  

@@ -6,4 +6,4 @@
 
 
 [^a]: [[Isaiah 2.3|Isa. 2:3]]. [[God, Law of|TG God, Law of]].  
-[^b]: [[Light [noun]|TG Light [noun]]].  
+[^b]: [[Light (noun)|TG Light (noun)]].  

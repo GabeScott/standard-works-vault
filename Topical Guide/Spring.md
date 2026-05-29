@@ -1,6 +1,6 @@
 # Spring [noun]
 
-*See also* [[Fountain.md|Fountain]]; [[Well [noun].md|Well [noun]]]
+*See also* [[Fountain.md|Fountain]]; [[Well (noun).md|Well (noun)]]
 
 he gave her the upper *springs*, and the nether *springs*, [[Joshua 15.19|Joshua 15:19]] ([[Judges 1.15|Judges 1:15]]).
 

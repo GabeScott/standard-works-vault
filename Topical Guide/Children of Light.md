@@ -1,6 +1,6 @@
 # Children of Light
 
-*See also* [[Children.md|Children]]; [[Light [noun].md|Light [noun]]]
+*See also* [[Children.md|Children]]; [[Light (noun).md|Light (noun)]]
 
 Ye are the *light* of the world, [[Matthew 5.14|Matthew 5:14]] ([[D&C 103.9|D&C 103:9]]).
 
