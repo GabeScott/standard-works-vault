@@ -1,6 +1,6 @@
 # Conscience
 
-*See also* [[God, Gifts of.md|God, Gifts of]]; [[God, Spirit of.md|God, Spirit of]]; [[Heart.md|Heart]]; [[Inspiration.md|Inspiration]]; [[Mind.md|Mind]]; [[BD Conscience.md|BD Conscience]]
+*See also* [[God, Gifts of.md|God, Gifts of]]; [[God, Spirit of.md|God, Spirit of]]; [[Heart.md|Heart]]; [[Inspiration, Inspire.md|Inspiration, Inspire]]; [[Mind, Minded.md|Mind, Minded]]; [[BD Conscience.md|BD Conscience]]
 
 be as gods, *knowing* good and evil, [[Genesis 3.5|Genesis 3:5]] ([[Genesis 3.22|Genesis 3:22]]; [[Moses 4.11|Moses 4:11]]; [[Moses 4.28|Moses 4:28]]).
 

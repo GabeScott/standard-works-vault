@@ -1,6 +1,6 @@
 # Retribution
 
-*See also* [[Avenge.md|Avenge]]; [[Punish.md|Punish]]; [[Recompence.md|Recompence]]; [[Revenge.md|Revenge]]; [[Vengeance.md|Vengeance]]
+*See also* [[Avenge.md|Avenge]]; [[Punish, Punishment.md|Punish, Punishment]]; [[Recompence, Recompense.md|Recompence, Recompense]]; [[Revenge.md|Revenge]]; [[Vengeance.md|Vengeance]]
 
 in their *anger* they slew a man, [[Genesis 49.6|Genesis 49:6]].
 

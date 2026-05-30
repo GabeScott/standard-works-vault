@@ -1,6 +1,6 @@
 # Laziness
 
-*See also* [[Idleness.md|Idleness]]; [[Sleep.md|Sleep]]; [[Slothful.md|Slothful]]
+*See also* [[Idleness, Idle, Idler.md|Idleness, Idle, Idler]]; [[Sleep, Slept.md|Sleep, Slept]]; [[Slothful, Slothfulness.md|Slothful, Slothfulness]]
 
 Go to the ant, thou *sluggard*; consider her ways, [[Proverbs 6.6|Proverbs 6:6]].
 

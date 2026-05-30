@@ -1,6 +1,6 @@
 # Scorn, Scornful
 
-*See also* [[Derision.md|Derision]]; [[Laughter.md|Laughter]]; [[Reproach.md|Reproach]]; [[Scorner.md|Scorner]]
+*See also* [[Derision.md|Derision]]; [[Laughter, Laugh.md|Laughter, Laugh]]; [[Reproach.md|Reproach]]; [[Scorner.md|Scorner]]
 
 they laughed us to *scorn*, [[Nehemiah 2.19|Nehemiah 2:19]].
 

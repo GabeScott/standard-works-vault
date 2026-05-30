@@ -1,6 +1,6 @@
 # Leadership
 
-*See also* [[Bishop.md|Bishop]]; [[Delegation of Responsibility.md|Delegation of Responsibility]]; [[Elder.md|Elder]]; [[Governments.md|Governments]]; [[Jesus Christ, Head of the Church.md|Jesus Christ, Head of the Church]]; [[Priesthood, Keys of.md|Priesthood, Keys of]]; [[Shepherd.md|Shepherd]]; [[Watchman.md|Watchman]]
+*See also* [[Bishop.md|Bishop]]; [[Delegation of Responsibility.md|Delegation of Responsibility]]; [[Elder.md|Elder]]; [[Governments.md|Governments]]; [[Jesus Christ, Head of the Church.md|Jesus Christ, Head of the Church]]; [[Priesthood, Keys of.md|Priesthood, Keys of]]; [[Shepherd.md|Shepherd]]; [[Watchman, Watchmen.md|Watchman, Watchmen]]
 
 they shall bear the *burden* with thee, [[Exodus 18.22|Exodus 18:22]] ([[Numbers 11.17|Numbers 11:17]]).
 

@@ -1,6 +1,6 @@
 # Tribulation
 
-*See also* [[Affliction.md|Affliction]]; [[Anguish.md|Anguish]]; [[Distress.md|Distress]]; [[Grief.md|Grief]]; [[Misery.md|Misery]]; [[Oppression.md|Oppression]]; [[Persecution.md|Persecution]]; [[Sorrow.md|Sorrow]]; [[Suffering.md|Suffering]]; [[Trouble.md|Trouble]]
+*See also* [[Affliction.md|Affliction]]; [[Anguish.md|Anguish]]; [[Distress.md|Distress]]; [[Grief.md|Grief]]; [[Misery.md|Misery]]; [[Oppression, Oppress.md|Oppression, Oppress]]; [[Persecution, Persecute.md|Persecution, Persecute]]; [[Sorrow.md|Sorrow]]; [[Suffering.md|Suffering]]; [[Trouble.md|Trouble]]
 
 When thou art in *tribulation* … turn to the Lord, [[Deuteronomy 4.30|Deuteronomy 4:30]].
 

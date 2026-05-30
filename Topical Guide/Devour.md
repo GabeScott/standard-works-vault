@@ -1,6 +1,6 @@
 # Devour
 
-*See also* [[Consume.md|Consume]]; [[Destroy.md|Destroy]]; [[Eat.md|Eat]]; [[Waste.md|Waste]]
+*See also* [[Consume.md|Consume]]; [[Destroy.md|Destroy]]; [[Eat, Eaten.md|Eat, Eaten]]; [[Waste.md|Waste]]
 
 say, Some evil beast hath *devoured* him, [[Genesis 37.20|Genesis 37:20]].
 

@@ -1,6 +1,6 @@
 # Flourish
 
-*See also* [[Enlarge.md|Enlarge]]; [[Grow.md|Grow]]; [[Increase.md|Increase]]
+*See also* [[Enlarge.md|Enlarge]]; [[Grow, Grew, Grown.md|Grow, Grew, Grown]]; [[Increase.md|Increase]]
 
 In his days shall the righteous *flourish*, [[Psalms 72.7|Psalms 72:7]].
 

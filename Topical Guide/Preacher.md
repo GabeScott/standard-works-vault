@@ -1,6 +1,6 @@
 # Preacher
 
-*See also* [[Preaching.md|Preaching]]
+*See also* [[Preaching, Preach.md|Preaching, Preach]]
 
 words of the *Preacher*, the son of David, [[Ecclesiastes 1.1|Ecclesiastes 1:1]].
 

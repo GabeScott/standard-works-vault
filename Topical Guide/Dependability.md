@@ -1,6 +1,6 @@
 # Dependability
 
-*See also* [[Diligence.md|Diligence]]; [[Industry.md|Industry]]; [[Trustworthiness.md|Trustworthiness]]
+*See also* [[Diligence, Diligent, Diligently.md|Diligence, Diligent, Diligently]]; [[Industry, Industrious.md|Industry, Industrious]]; [[Trustworthiness.md|Trustworthiness]]
 
 better to trust in the Lord than to put *confidence* in man, [[Psalms 118.8|Psalms 118:8]].
 

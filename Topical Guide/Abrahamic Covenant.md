@@ -1,6 +1,6 @@
 # Abrahamic Covenant
 
-*See also* [[Covenants.md|Covenants]]; [[Israel, Mission of.md|Israel, Mission of]]; [[Seed of Abraham.md|Seed of Abraham]]; [[Separation.md|Separation]]; [[BD Abraham, covenant of.md|BD Abraham, covenant of]]
+*See also* [[Covenants.md|Covenants]]; [[Israel, Mission of.md|Israel, Mission of]]; [[Seed of Abraham.md|Seed of Abraham]]; [[Separation, Separate.md|Separation, Separate]]; [[BD Abraham, covenant of.md|BD Abraham, covenant of]]
 
 in thee shall all *families* … be blessed, [[Genesis 12.3|Genesis 12:3]].
 

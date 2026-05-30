@@ -1,6 +1,6 @@
 # Revoke
 
-*See also* [[Hardheartedness.md|Hardheartedness]]; [[Rebellion.md|Rebellion]]; [[Resist.md|Resist]]
+*See also* [[Hardheartedness, Harden, Hardness.md|Hardheartedness, Harden, Hardness]]; [[Rebellion, Rebel.md|Rebellion, Rebel]]; [[Resist.md|Resist]]
 
 I *revoke* not the judgments which I shall pass, [[D&C 19.5|D&C 19:5]].
 

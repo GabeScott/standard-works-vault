@@ -1,6 +1,6 @@
 # Heal, Healing
 
-*See also* [[Administrations to the Sick.md|Administrations to the Sick]]; [[Conversion.md|Conversion]]; [[Cure.md|Cure]]; [[Hands, Laying on of.md|Hands, Laying on of]]; [[Jesus Christ, Atonement through.md|Jesus Christ, Atonement through]]; [[Restore.md|Restore]]; [[Save.md|Save]]
+*See also* [[Administrations to the Sick.md|Administrations to the Sick]]; [[Conversion, Convert.md|Conversion, Convert]]; [[Cure.md|Cure]]; [[Hands, Laying on of.md|Hands, Laying on of]]; [[Jesus Christ, Atonement through.md|Jesus Christ, Atonement through]]; [[Restore.md|Restore]]; [[Save.md|Save]]
 
 I am the Lord that *healeth* thee, [[Exodus 15.26|Exodus 15:26]].
 

@@ -1,6 +1,6 @@
 # Fire
 
-*See also* [[Earth, Cleansing of.md|Earth, Cleansing of]]; [[Flame.md|Flame]]; [[God, Presence of.md|God, Presence of]]; [[God, Spirit of.md|God, Spirit of]]; [[Hell.md|Hell]]; [[Holy Ghost, Baptism of.md|Holy Ghost, Baptism of]]; [[Transfiguration.md|Transfiguration]]; [[World, End of.md|World, End of]]; [[BD Fire.md|BD Fire]]
+*See also* [[Earth, Cleansing of.md|Earth, Cleansing of]]; [[Flame, Flaming.md|Flame, Flaming]]; [[God, Presence of.md|God, Presence of]]; [[God, Spirit of.md|God, Spirit of]]; [[Hell.md|Hell]]; [[Holy Ghost, Baptism of.md|Holy Ghost, Baptism of]]; [[Transfiguration, Transfigured.md|Transfiguration, Transfigured]]; [[World, End of.md|World, End of]]; [[BD Fire.md|BD Fire]]
 
 rained upon Sodom … brimstone and *fire*, [[Genesis 19.24|Genesis 19:24]].
 

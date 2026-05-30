@@ -1,6 +1,6 @@
 # Submissiveness, Submit
 
-*See also* [[Family, Children, Duties of.md|Family, Children, Duties of]]; [[Humility.md|Humility]]; [[Obedience.md|Obedience]]; [[Subject.md|Subject]]; [[Subjection.md|Subjection]]; [[Yield.md|Yield]]
+*See also* [[Family, Children, Duties of.md|Family, Children, Duties of]]; [[Humility, Humble.md|Humility, Humble]]; [[Obedience, Obedient, Obey.md|Obedience, Obedient, Obey]]; [[Subject.md|Subject]]; [[Subjection.md|Subjection]]; [[Yield.md|Yield]]
 
 Return to thy mistress, and *submit* thyself, [[Genesis 16.9|Genesis 16:9]].
 

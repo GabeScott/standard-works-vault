@@ -1,6 +1,6 @@
 # Marriage, Interfaith
 
-*See also* [[Separation.md|Separation]]
+*See also* [[Separation, Separate.md|Separation, Separate]]
 
 took him a *wife* out of the land of Egypt, [[Genesis 21.21|Genesis 21:21]].
 

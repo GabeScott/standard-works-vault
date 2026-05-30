@@ -1,6 +1,6 @@
 # Save
 
-*See also* [[Deliver.md|Deliver]]; [[Redeem.md|Redeem]]
+*See also* [[Deliver, Deliverance.md|Deliver, Deliverance]]; [[Redeem, Redeemed.md|Redeem, Redeemed]]
 
 God sent me … to *save* your lives, [[Genesis 45.7|Genesis 45:7]].
 

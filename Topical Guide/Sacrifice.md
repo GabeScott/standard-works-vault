@@ -1,6 +1,6 @@
 # Sacrifice
 
-*See also* [[Blood, Symbolism of.md|Blood, Symbolism of]]; [[Jesus Christ, Atonement through.md|Jesus Christ, Atonement through]]; [[Jesus Christ, Types of, in Anticipation.md|Jesus Christ, Types of, in Anticipation]]; [[Oblation.md|Oblation]]; [[Offer.md|Offer]]; [[Offering.md|Offering]]; [[Passover.md|Passover]]; [[Propitiation.md|Propitiation]]; [[Reconciliation.md|Reconciliation]]; [[Self-Sacrifice.md|Self-Sacrifice]]; [[BD Sacrifices.md|BD Sacrifices]]
+*See also* [[Blood, Symbolism of.md|Blood, Symbolism of]]; [[Jesus Christ, Atonement through.md|Jesus Christ, Atonement through]]; [[Jesus Christ, Types of, in Anticipation.md|Jesus Christ, Types of, in Anticipation]]; [[Oblation.md|Oblation]]; [[Offer.md|Offer]]; [[Offering (noun).md|Offering (noun)]]; [[Passover.md|Passover]]; [[Propitiation.md|Propitiation]]; [[Reconciliation, Reconcile.md|Reconciliation, Reconcile]]; [[Self-Sacrifice.md|Self-Sacrifice]]; [[BD Sacrifices.md|BD Sacrifices]]
 
 bound Isaac his son, and laid him on the *altar*, [[Genesis 22.9|Genesis 22:9]].
 

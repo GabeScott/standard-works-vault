@@ -1,6 +1,6 @@
 # Mountain
 
-*See also* [[Hill.md|Hill]]; [[Mount (noun).md|Mount (noun)]]
+*See also* [[Hill.md|Hill]]; [[Mount.md|Mount]]
 
 waters prevail; and the *mountains* were covered, [[Genesis 7.20|Genesis 7:20]].
 

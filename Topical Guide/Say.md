@@ -1,6 +1,6 @@
 # Say
 
-*See also* [[Saying.md|Saying]]; [[Speak.md|Speak]]
+*See also* [[Saying.md|Saying]]; [[Speak, Spake, Spoken.md|Speak, Spake, Spoken]]
 
 teach thee what thou shalt *say*, [[Exodus 4.12|Exodus 4:12]].
 

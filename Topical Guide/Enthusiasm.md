@@ -1,3 +1,3 @@
 # Enthusiasm
 
-*See also* [[Dedication.md|Dedication]]; [[Diligence.md|Diligence]]; [[Initiative.md|Initiative]]; [[Zeal.md|Zeal]]
+*See also* [[Dedication, Dedicate.md|Dedication, Dedicate]]; [[Diligence, Diligent, Diligently.md|Diligence, Diligent, Diligently]]; [[Initiative.md|Initiative]]; [[Zeal, Zealous.md|Zeal, Zealous]]

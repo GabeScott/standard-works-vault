@@ -1,6 +1,6 @@
 # Harlot
 
-*See also* [[Adulterer.md|Adulterer]]; [[Whore.md|Whore]]
+*See also* [[Adulterer, Adultery.md|Adulterer, Adultery]]; [[Whore, Whoredom.md|Whore, Whoredom]]
 
 deal with our sister as with an *harlot*, [[Genesis 34.31|Genesis 34:31]].
 

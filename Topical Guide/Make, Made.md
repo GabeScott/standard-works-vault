@@ -1,6 +1,6 @@
 # Make, Made
 
-*See also* [[Creation.md|Creation]]; [[Fashion.md|Fashion]]; [[Form.md|Form]]; [[Maker.md|Maker]]
+*See also* [[Creation, Create.md|Creation, Create]]; [[Fashion.md|Fashion]]; [[Form.md|Form]]; [[Maker.md|Maker]]
 
 Let us *make* man in our image, [[Genesis 1.26|Genesis 1:26]] ([[Moses 2.26|Moses 2:26]]).
 

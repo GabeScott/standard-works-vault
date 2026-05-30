@@ -1,6 +1,6 @@
 # Adversary
 
-*See also* [[Adversity.md|Adversity]]; [[Devil.md|Devil]]; [[Enemies.md|Enemies]]; [[Foe.md|Foe]]
+*See also* [[Adversity.md|Adversity]]; [[Devil.md|Devil]]; [[Enemies, Enemy.md|Enemies, Enemy]]; [[Foe.md|Foe]]
 
 the Lord stirred up an *adversary* unto Solomon, [[1 Kings 11.14|1 Kings 11:14]].
 

@@ -1,6 +1,6 @@
 # Mourning, Mourn
 
-*See also* [[Despair.md|Despair]]; [[Grief.md|Grief]]; [[Lamentation.md|Lamentation]]; [[Sorrow.md|Sorrow]]; [[Weep.md|Weep]]
+*See also* [[Despair.md|Despair]]; [[Grief.md|Grief]]; [[Lamentation.md|Lamentation]]; [[Sorrow.md|Sorrow]]; [[Weep, Wept.md|Weep, Wept]]
 
 go down into the grave … *mourning*, [[Genesis 37.35|Genesis 37:35]].
 

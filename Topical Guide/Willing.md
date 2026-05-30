@@ -1,6 +1,6 @@
 # Willing
 
-*See also* [[Diligence.md|Diligence]]; [[Initiative.md|Initiative]]; [[Will.md|Will]]; [[Willingly.md|Willingly]]
+*See also* [[Diligence, Diligent, Diligently.md|Diligence, Diligent, Diligently]]; [[Initiative.md|Initiative]]; [[Will.md|Will]]; [[Willingly.md|Willingly]]
 
 whosoever is of a *willing* heart, let him bring it, [[Exodus 35.5|Exodus 35:5]].
 

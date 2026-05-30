@@ -1,6 +1,6 @@
 # Scourge
 
-*See also* [[Chastening.md|Chastening]]; [[Cruelty.md|Cruelty]]; [[Persecution.md|Persecution]]
+*See also* [[Chastening.md|Chastening]]; [[Cruelty, Cruel.md|Cruelty, Cruel]]; [[Persecution, Persecute.md|Persecution, Persecute]]
 
 lieth carnally with a woman … she shall be *scourged*, [[Leviticus 19.20|Leviticus 19:20]].
 

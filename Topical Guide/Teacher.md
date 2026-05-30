@@ -1,6 +1,6 @@
 # Teacher
 
-*See also* [[Master.md|Master]]; [[Teacher, Aaronic Priesthood.md|Teacher, Aaronic Priesthood]]; [[Teaching.md|Teaching]]; [[BD Rabbi.md|BD Rabbi]]
+*See also* [[Master.md|Master]]; [[Teacher, Aaronic Priesthood.md|Teacher, Aaronic Priesthood]]; [[Teaching, Teach, Taught.md|Teaching, Teach, Taught]]; [[BD Rabbi.md|BD Rabbi]]
 
 *teach* them … the work, [[Exodus 18.20|Exodus 18:20]].
 

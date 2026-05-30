@@ -1,6 +1,6 @@
 # Peace
 
-*See also* [[Comfort.md|Comfort]]; [[Contentment.md|Contentment]]; [[Order.md|Order]]; [[Peacemakers.md|Peacemakers]]; [[Peace of God.md|Peace of God]]; [[Silence.md|Silence]]
+*See also* [[Comfort.md|Comfort]]; [[Contentment.md|Contentment]]; [[Order.md|Order]]; [[Peacemakers.md|Peacemakers]]; [[Peace of God.md|Peace of God]]; [[Silence, Silent.md|Silence, Silent]]
 
 speak *peace* to their neighbours, [[Psalms 28.3|Psalms 28:3]].
 

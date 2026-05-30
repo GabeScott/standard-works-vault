@@ -1,6 +1,6 @@
 # Self-Mastery
 
-*See also* [[Abstain.md|Abstain]]; [[Temperance.md|Temperance]]
+*See also* [[Abstain, Abstinence.md|Abstain, Abstinence]]; [[Temperance, Temperate.md|Temperance, Temperate]]
 
 *Cease* from anger, and forsake wrath, [[Psalms 37.8|Psalms 37:8]].
 

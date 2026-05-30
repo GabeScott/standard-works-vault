@@ -1,6 +1,6 @@
 # Slothful, Slothfulness
 
-*See also* [[Apathy.md|Apathy]]; [[Idleness.md|Idleness]]; [[Laziness.md|Laziness]]; [[Sluggard.md|Sluggard]]
+*See also* [[Apathy.md|Apathy]]; [[Idleness, Idle, Idler.md|Idleness, Idle, Idler]]; [[Laziness.md|Laziness]]; [[Sluggard.md|Sluggard]]
 
 be not *slothful* to go, [[Judges 18.9|Judges 18:9]].
 

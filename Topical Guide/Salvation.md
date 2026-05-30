@@ -1,6 +1,6 @@
 # Salvation
 
-*See also* [[Baptism, Essential.md|Baptism, Essential]]; [[Deliver.md|Deliver]]; [[Jesus Christ, Atonement through.md|Jesus Christ, Atonement through]]; [[Jesus Christ, Mission of.md|Jesus Christ, Mission of]]; [[Jesus Christ, Redeemer.md|Jesus Christ, Redeemer]]; [[Jesus Christ, Savior.md|Jesus Christ, Savior]]; [[Redemption.md|Redemption]]; [[Repent.md|Repent]]; [[Save.md|Save]]
+*See also* [[Baptism, Essential.md|Baptism, Essential]]; [[Deliver, Deliverance.md|Deliver, Deliverance]]; [[Jesus Christ, Atonement through.md|Jesus Christ, Atonement through]]; [[Jesus Christ, Mission of.md|Jesus Christ, Mission of]]; [[Jesus Christ, Redeemer.md|Jesus Christ, Redeemer]]; [[Jesus Christ, Savior.md|Jesus Christ, Savior]]; [[Redemption.md|Redemption]]; [[Repent, Repentance.md|Repent, Repentance]]; [[Save.md|Save]]
 
 I have waited for thy *salvation*, [[Genesis 49.18|Genesis 49:18]].
 

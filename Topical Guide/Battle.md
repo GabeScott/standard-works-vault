@@ -1,6 +1,6 @@
 # Battle
 
-*See also* [[Fight.md|Fight]]; [[God to Fight Our Battles.md|God to Fight Our Battles]]; [[Strife.md|Strife]]; [[War.md|War]]
+*See also* [[Fight, Fought.md|Fight, Fought]]; [[God to Fight Our Battles.md|God to Fight Our Battles]]; [[Strife.md|Strife]]; [[War.md|War]]
 
 goest out to *battle* against thine enemies, [[Deuteronomy 20.1|Deuteronomy 20:1]].
 

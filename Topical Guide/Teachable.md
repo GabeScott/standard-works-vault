@@ -1,6 +1,6 @@
 # Teachable
 
-*See also* [[Believe.md|Believe]]; [[Contrite Heart.md|Contrite Heart]]; [[Humility.md|Humility]]; [[Learn.md|Learn]]; [[Meek.md|Meek]]
+*See also* [[Believe.md|Believe]]; [[Contrite Heart.md|Contrite Heart]]; [[Humility, Humble.md|Humility, Humble]]; [[Learn, Learning.md|Learn, Learning]]; [[Meek, Meekness.md|Meek, Meekness]]
 
 stand still, that I may *reason* with you, [[1 Samuel 12.7|1 Samuel 12:7]].
 

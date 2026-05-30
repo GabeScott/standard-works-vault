@@ -1,6 +1,6 @@
 # Excellent
 
-*See also* [[Glorious.md|Glorious]]; [[Great.md|Great]]; [[Honorable.md|Honorable]]; [[Mighty.md|Mighty]]; [[Noble.md|Noble]]
+*See also* [[Glorious.md|Glorious]]; [[Great, Greater, Greatest.md|Great, Greater, Greatest]]; [[Honorable.md|Honorable]]; [[Mighty, Mightier.md|Mighty, Mightier]]; [[Noble.md|Noble]]
 
 Lord, how *excellent* is thy name, [[Psalms 8.1|Psalms 8:1]].
 

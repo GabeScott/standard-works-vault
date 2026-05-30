@@ -1,6 +1,6 @@
 # Jesus Christ, Redeemer
 
-*See also* [[Forgive.md|Forgive]]; [[Jesus Christ, Atonement through.md|Jesus Christ, Atonement through]]; [[Jesus Christ, Savior.md|Jesus Christ, Savior]]; [[Redemption.md|Redemption]]
+*See also* [[Forgive, Forgiveness.md|Forgive, Forgiveness]]; [[Jesus Christ, Atonement through.md|Jesus Christ, Atonement through]]; [[Jesus Christ, Savior.md|Jesus Christ, Savior]]; [[Redemption.md|Redemption]]
 
 I know that my *redeemer* liveth, [[Job 19.25|Job 19:25]].
 

@@ -1,6 +1,6 @@
 # Direct, Direction
 
-*See also* [[Guidance, Divine.md|Guidance, Divine]]; [[Guide.md|Guide]]; [[Lead.md|Lead]]; [[Order.md|Order]]
+*See also* [[Guidance, Divine.md|Guidance, Divine]]; [[Guide.md|Guide]]; [[Lead, Led.md|Lead, Led]]; [[Order.md|Order]]
 
 he shall *direct* thy paths, [[Proverbs 3.6|Proverbs 3:6]].
 

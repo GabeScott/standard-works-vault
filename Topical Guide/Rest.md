@@ -1,6 +1,6 @@
 # Rest
 
-*See also* [[Comfort.md|Comfort]]; [[Earth, Purpose of.md|Earth, Purpose of]]; [[Earth, Renewal of.md|Earth, Renewal of]]; [[God, Glory of.md|God, Glory of]]; [[Paradise.md|Paradise]]; [[Peace.md|Peace]]; [[Quietness.md|Quietness]]; [[Sabbath.md|Sabbath]]
+*See also* [[Comfort.md|Comfort]]; [[Earth, Purpose of.md|Earth, Purpose of]]; [[Earth, Renewal of.md|Earth, Renewal of]]; [[God, Glory of.md|God, Glory of]]; [[Paradise, Paradisiacal.md|Paradise, Paradisiacal]]; [[Peace.md|Peace]]; [[Quietness.md|Quietness]]; [[Sabbath.md|Sabbath]]
 
 he *rested* on the seventh day, [[Genesis 2.2|Genesis 2:2]] ([[Exodus 20.11|Exodus 20:11]]; [[Exodus 31.17|Exodus 31:17]]; [[Hebrews 4.4|Hebrews 4:4]]; [[Moses 3.2|Moses 3:2]]; [[Abraham 5.2|Abraham 5:2]]).
 

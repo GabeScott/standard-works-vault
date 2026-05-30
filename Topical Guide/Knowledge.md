@@ -1,6 +1,6 @@
 # Knowledge
 
-*See also* [[Discernment, Spiritual.md|Discernment, Spiritual]]; [[Earth, Purpose of.md|Earth, Purpose of]]; [[Education.md|Education]]; [[God, Intelligence of.md|God, Intelligence of]]; [[God, Knowledge about.md|God, Knowledge about]]; [[God, Omniscience of.md|God, Omniscience of]]; [[Holy Ghost, Gifts of.md|Holy Ghost, Gifts of]]; [[Ignorance.md|Ignorance]]; [[Intelligence.md|Intelligence]]; [[Learn.md|Learn]]; [[Mysteries of Godliness.md|Mysteries of Godliness]]; [[Scriptures, Value of.md|Scriptures, Value of]]; [[Study.md|Study]]; [[Testimony.md|Testimony]]; [[Understanding.md|Understanding]]; [[Wisdom.md|Wisdom]]; [[BD Knowledge.md|BD Knowledge]]
+*See also* [[Discernment, Spiritual.md|Discernment, Spiritual]]; [[Earth, Purpose of.md|Earth, Purpose of]]; [[Education.md|Education]]; [[God, Intelligence of.md|God, Intelligence of]]; [[God, Knowledge about.md|God, Knowledge about]]; [[God, Omniscience of.md|God, Omniscience of]]; [[Holy Ghost, Gifts of.md|Holy Ghost, Gifts of]]; [[Ignorance, Ignorant.md|Ignorance, Ignorant]]; [[Intelligence.md|Intelligence]]; [[Learn, Learning.md|Learn, Learning]]; [[Mysteries of Godliness.md|Mysteries of Godliness]]; [[Scriptures, Value of.md|Scriptures, Value of]]; [[Study.md|Study]]; [[Testimony.md|Testimony]]; [[Understanding.md|Understanding]]; [[Wisdom.md|Wisdom]]; [[BD Knowledge.md|BD Knowledge]]
 
 tree of *knowledge* of good and evil, [[Genesis 2.9|Genesis 2:9]] ([[Moses 3.9|Moses 3:9]]; [[Abraham 5.9|Abraham 5:9]]).
 

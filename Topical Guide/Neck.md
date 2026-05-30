@@ -1,6 +1,6 @@
 # Neck
 
-*See also* [[Stiffnecked.md|Stiffnecked]]
+*See also* [[Stiffnecked, Stiffneckedness.md|Stiffnecked, Stiffneckedness]]
 
 Pharaoh … put a gold chain about his *neck*, [[Genesis 41.42|Genesis 41:42]].
 

@@ -1,6 +1,6 @@
 # Israel, Bondage of, in Egypt
 
-*See also* [[Bondage, Physical.md|Bondage, Physical]]; [[Israel, Bondage of, in Other Lands.md|Israel, Bondage of, in Other Lands]]; [[Israel, Deliverance of.md|Israel, Deliverance of]]; [[Slavery.md|Slavery]]
+*See also* [[Bondage, Physical.md|Bondage, Physical]]; [[Israel, Bondage of, in Other Lands.md|Israel, Bondage of, in Other Lands]]; [[Israel, Deliverance of.md|Israel, Deliverance of]]; [[Slavery, Slave.md|Slavery, Slave]]
 
 thy seed shall be a *stranger* … four hundred years, [[Genesis 15.13|Genesis 15:13]] ([[Leviticus 19.34|Leviticus 19:34]]).
 

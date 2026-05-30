@@ -1,6 +1,6 @@
 # Generosity
 
-*See also* [[Almsgiving.md|Almsgiving]]; [[Benevolence.md|Benevolence]]; [[Charity.md|Charity]]; [[Give.md|Give]]
+*See also* [[Almsgiving.md|Almsgiving]]; [[Benevolence.md|Benevolence]]; [[Charity.md|Charity]]; [[Give, Gave, Given.md|Give, Gave, Given]]
 
 man that *giveth* it willingly with his heart, [[Exodus 25.2|Exodus 25:2]].
 

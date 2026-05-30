@@ -1,6 +1,6 @@
 # Man, Potential to Become like Heavenly Father
 
-*See also* [[Father.md|Father]]; [[Immortality.md|Immortality]]; [[Perfection.md|Perfection]]
+*See also* [[Father.md|Father]]; [[Immortality, Immortal.md|Immortality, Immortal]]; [[Perfection, Perfect, Perfectly.md|Perfection, Perfect, Perfectly]]
 
 let them have *dominion*, [[Genesis 1.26|Genesis 1:26]] ([[Moses 2.26|Moses 2:26]]).
 

@@ -1,6 +1,6 @@
 # Infirmity
 
-*See also* [[Adversity.md|Adversity]]; [[Disease.md|Disease]]; [[Health.md|Health]]; [[Sickness.md|Sickness]]; [[Weakness.md|Weakness]]
+*See also* [[Adversity.md|Adversity]]; [[Disease, Diseased.md|Disease, Diseased]]; [[Health.md|Health]]; [[Sickness, Sick.md|Sickness, Sick]]; [[Weakness.md|Weakness]]
 
 spirit of a man will sustain his *infirmity*, [[Proverbs 18.14|Proverbs 18:14]].
 

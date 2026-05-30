@@ -1,6 +1,6 @@
 # Witness of the Father
 
-*See also* [[Witness.md|Witness]]
+*See also* [[Witness, Witnesses.md|Witness, Witnesses]]
 
 Behold my *servant*, whom I uphold, [[Isaiah 42.1|Isaiah 42:1]].
 

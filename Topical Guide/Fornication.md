@@ -1,6 +1,6 @@
 # Fornication
 
-*See also* [[Adulterer.md|Adulterer]]; [[Chastity.md|Chastity]]; [[Lust.md|Lust]]; [[Sexual Immorality.md|Sexual Immorality]]; [[Whore.md|Whore]]
+*See also* [[Adulterer, Adultery.md|Adulterer, Adultery]]; [[Chastity, Chaste.md|Chastity, Chaste]]; [[Lust.md|Lust]]; [[Sexual Immorality.md|Sexual Immorality]]; [[Whore, Whoredom.md|Whore, Whoredom]]
 
 *goeth after* her straightway, as an ox goeth to the slaughter, [[Proverbs 7.22|Proverbs 7:22]].
 

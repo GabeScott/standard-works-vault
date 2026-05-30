@@ -1,6 +1,6 @@
 # Rebuke
 
-*See also* [[Chastening.md|Chastening]]; [[Reproach.md|Reproach]]; [[Reproof.md|Reproof]]
+*See also* [[Chastening.md|Chastening]]; [[Reproach.md|Reproach]]; [[Reproof, Reprove.md|Reproof, Reprove]]
 
 thou shalt … *rebuke* thy neighbour, [[Leviticus 19.17|Leviticus 19:17]].
 

@@ -1,6 +1,6 @@
 # Pardon
 
-*See also* [[Forgive.md|Forgive]]; [[Remission of Sins.md|Remission of Sins]]
+*See also* [[Forgive, Forgiveness.md|Forgive, Forgiveness]]; [[Remission of Sins.md|Remission of Sins]]
 
 he will not *pardon* your transgressions, [[Exodus 23.21|Exodus 23:21]].
 

@@ -1,6 +1,6 @@
 # Return
 
-*See also* [[Israel, Gathering of.md|Israel, Gathering of]]; [[Israel, Restoration of.md|Israel, Restoration of]]; [[Lands of Inheritance.md|Lands of Inheritance]]; [[Repent.md|Repent]]; [[Turn.md|Turn]]
+*See also* [[Israel, Gathering of.md|Israel, Gathering of]]; [[Israel, Restoration of.md|Israel, Restoration of]]; [[Lands of Inheritance.md|Lands of Inheritance]]; [[Repent, Repentance.md|Repent, Repentance]]; [[Turn.md|Turn]]
 
 unto dust shalt thou *return*, [[Genesis 3.19|Genesis 3:19]] ([[Moses 4.25|Moses 4:25]]).
 

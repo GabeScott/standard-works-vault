@@ -1,6 +1,6 @@
 # Oil
 
-*See also* [[Anointing.md|Anointing]]
+*See also* [[Anointing, Anoint.md|Anointing, Anoint]]
 
 *Oil* for the light, spices for anointing *oil*, [[Exodus 25.6|Exodus 25:6]].
 

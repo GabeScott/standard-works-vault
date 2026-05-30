@@ -1,6 +1,6 @@
 # Worthiness, Worthy
 
-*See also* [[Cleanliness.md|Cleanliness]]; [[Dependability.md|Dependability]]; [[Faithfulness.md|Faithfulness]]; [[Fit.md|Fit]]; [[Honorable.md|Honorable]]; [[Meet (adjective).md|Meet (adjective)]]; [[Noble.md|Noble]]; [[Priesthood, Qualifying for.md|Priesthood, Qualifying for]]; [[Purification.md|Purification]]; [[Repent.md|Repent]]; [[Righteousness.md|Righteousness]]
+*See also* [[Cleanliness.md|Cleanliness]]; [[Dependability.md|Dependability]]; [[Faithfulness.md|Faithfulness]]; [[Fit.md|Fit]]; [[Honorable.md|Honorable]]; [[Meet.md|Meet]]; [[Noble.md|Noble]]; [[Priesthood, Qualifying for.md|Priesthood, Qualifying for]]; [[Purification, Purify, Purifying.md|Purification, Purify, Purifying]]; [[Repent, Repentance.md|Repent, Repentance]]; [[Righteousness.md|Righteousness]]
 
 I am not *worthy* of the least of all the mercies, [[Genesis 32.10|Genesis 32:10]].
 

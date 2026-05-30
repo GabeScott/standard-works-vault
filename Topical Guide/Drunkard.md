@@ -1,6 +1,6 @@
 # Drunkard
 
-*See also* [[Drink.md|Drink]]; [[Drunk.md|Drunk]]; [[Drunkenness.md|Drunkenness]]
+*See also* [[Drink, Drank, Drunk.md|Drink, Drank, Drunk]]; [[Drunk, Drunken.md|Drunk, Drunken]]; [[Drunkenness.md|Drunkenness]]
 
 he is a glutton, and a *drunkard*, [[Deuteronomy 21.20|Deuteronomy 21:20]].
 

@@ -1,6 +1,6 @@
 # Word of Wisdom
 
-*See also* [[Abstain.md|Abstain]]; [[Drunkenness.md|Drunkenness]]; [[Food.md|Food]]; [[Health.md|Health]]; [[Meat.md|Meat]]; [[Temperance.md|Temperance]]; [[Wine.md|Wine]]; [[Wisdom.md|Wisdom]]
+*See also* [[Abstain, Abstinence.md|Abstain, Abstinence]]; [[Drunkenness.md|Drunkenness]]; [[Food.md|Food]]; [[Health.md|Health]]; [[Meat.md|Meat]]; [[Temperance, Temperate.md|Temperance, Temperate]]; [[Wine.md|Wine]]; [[Wisdom.md|Wisdom]]
 
 to you it shall be for *meat*, [[Genesis 1.29|Genesis 1:29]] ([[Moses 2.29|Moses 2:29]]; [[Abraham 4.29|Abraham 4:29]]).
 

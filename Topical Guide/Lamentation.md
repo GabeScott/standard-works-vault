@@ -1,6 +1,6 @@
 # Lamentation
 
-*See also* [[Lament.md|Lament]]; [[Mourning.md|Mourning]]; [[Wail.md|Wail]]; [[Weep.md|Weep]]
+*See also* [[Lament.md|Lament]]; [[Mourning, Mourn.md|Mourning, Mourn]]; [[Wail, Wailing.md|Wail, Wailing]]; [[Weep, Wept.md|Weep, Wept]]
 
 David lamented with this *lamentation* over Saul, [[2 Samuel 1.17|2 Samuel 1:17]].
 

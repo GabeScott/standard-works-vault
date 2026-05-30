@@ -1,6 +1,6 @@
 # Ungodly
 
-*See also* [[Wickedness.md|Wickedness]]
+*See also* [[Wickedness, Wicked.md|Wickedness, Wicked]]
 
 *ungodly* are … like the chaff, [[Psalms 1.4|Psalms 1:4]].
 

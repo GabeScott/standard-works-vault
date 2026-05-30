@@ -1,6 +1,6 @@
 # Bondage, Spiritual
 
-*See also* [[Guilt.md|Guilt]]; [[Slavery.md|Slavery]]; [[Spiritual Blindness.md|Spiritual Blindness]]
+*See also* [[Guilt, Guilty.md|Guilt, Guilty]]; [[Slavery, Slave.md|Slavery, Slave]]; [[Spiritual Blindness.md|Spiritual Blindness]]
 
 Jerusalem: loose thyself from the *bands* of thy neck, [[Isaiah 52.2|Isaiah 52:2]].
 

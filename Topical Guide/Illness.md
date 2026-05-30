@@ -1,3 +1,3 @@
 # Illness
 
-*See also* [[Sickness.md|Sickness]]
+*See also* [[Sickness, Sick.md|Sickness, Sick]]

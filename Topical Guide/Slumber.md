@@ -1,6 +1,6 @@
 # Slumber
 
-*See also* [[Sleep.md|Sleep]]
+*See also* [[Sleep, Slept.md|Sleep, Slept]]
 
 he that keepeth thee will not *slumber*, [[Psalms 121.3|Psalms 121:3]].
 

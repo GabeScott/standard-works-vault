@@ -1,6 +1,6 @@
 # Forbear, Forbearance
 
-*See also* [[Forgive.md|Forgive]]; [[Long-Suffering.md|Long-Suffering]]; [[Patience.md|Patience]]
+*See also* [[Forgive, Forgiveness.md|Forgive, Forgiveness]]; [[Long-Suffering.md|Long-Suffering]]; [[Patience, Patient, Patiently.md|Patience, Patient, Patiently]]
 
 Thou shalt not *avenge*, nor bear any grudge, [[Leviticus 19.18|Leviticus 19:18]].
 

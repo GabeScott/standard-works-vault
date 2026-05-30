@@ -1,6 +1,6 @@
 # Fellowship
 
-*See also* [[Fellowshipping.md|Fellowshipping]]; [[Friendship.md|Friendship]]
+*See also* [[Fellowshipping.md|Fellowshipping]]; [[Friendship, Friend.md|Friendship, Friend]]
 
 I would not that ye should have *fellowship* with devils, [[1 Corinthians 10.20|1 Corinthians 10:20]].
 

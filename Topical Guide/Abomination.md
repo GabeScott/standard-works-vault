@@ -1,6 +1,6 @@
 # Abomination
 
-*See also* [[Abomination of Desolation.md|Abomination of Desolation]]; [[Adulterer.md|Adulterer]]; [[Devil, Church of.md|Devil, Church of]]; [[Evil.md|Evil]]; [[Fornication.md|Fornication]]; [[Homosexual Behavior.md|Homosexual Behavior]]; [[Idolatry.md|Idolatry]]; [[Sexual Immorality.md|Sexual Immorality]]; [[Shame.md|Shame]]; [[Sin.md|Sin]]; [[Superstitions.md|Superstitions]]; [[Whore.md|Whore]]; [[BD Abomination.md|BD Abomination]]
+*See also* [[Abomination of Desolation.md|Abomination of Desolation]]; [[Adulterer, Adultery.md|Adulterer, Adultery]]; [[Devil, Church of.md|Devil, Church of]]; [[Evil.md|Evil]]; [[Fornication.md|Fornication]]; [[Homosexual Behavior.md|Homosexual Behavior]]; [[Idolatry, Idol.md|Idolatry, Idol]]; [[Sexual Immorality.md|Sexual Immorality]]; [[Shame.md|Shame]]; [[Sin.md|Sin]]; [[Superstitions.md|Superstitions]]; [[Whore, Whoredom.md|Whore, Whoredom]]; [[BD Abomination.md|BD Abomination]]
 
 shepherd is an *abomination* unto the Egyptians, [[Genesis 46.34|Genesis 46:34]].
 

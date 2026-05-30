@@ -1,6 +1,6 @@
 # Companion
 
-*See also* [[Brotherhood and Sisterhood.md|Brotherhood and Sisterhood]]; [[Fellowshipping.md|Fellowshipping]]; [[Friendship.md|Friendship]]; [[Holy Ghost, Mission of.md|Holy Ghost, Mission of]]; [[Marriage, Marry.md|Marriage, Marry]]
+*See also* [[Brotherhood and Sisterhood.md|Brotherhood and Sisterhood]]; [[Fellowshipping.md|Fellowshipping]]; [[Friendship, Friend.md|Friendship, Friend]]; [[Holy Ghost, Mission of.md|Holy Ghost, Mission of]]; [[Marriage, Marry.md|Marriage, Marry]]
 
 Samson’s wife was given to his *companion*, [[Judges 14.20|Judges 14:20]].
 

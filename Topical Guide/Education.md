@@ -1,6 +1,6 @@
 # Education
 
-*See also* [[Edification.md|Edification]]; [[Teaching.md|Teaching]]; [[BD Education.md|BD Education]]
+*See also* [[Edification, Edify.md|Edification, Edify]]; [[Teaching, Teach, Taught.md|Teaching, Teach, Taught]]; [[BD Education.md|BD Education]]
 
 wise man will hear, and will increase *learning*, [[Proverbs 1.5|Proverbs 1:5]].
 

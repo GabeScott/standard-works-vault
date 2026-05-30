@@ -1,6 +1,6 @@
 # Weight
 
-*See also* [[Measure.md|Measure]]; [[Weigh.md|Weigh]]; [[Weighty.md|Weighty]]; [[BD Weights and measures.md|BD Weights and measures]]
+*See also* [[Measure.md|Measure]]; [[Weigh.md|Weigh]]; [[Weighty, Weightier.md|Weighty, Weightier]]; [[BD Weights and measures.md|BD Weights and measures]]
 
 Just balances, just *weights* … shall ye have, [[Leviticus 19.36|Leviticus 19:36]].
 

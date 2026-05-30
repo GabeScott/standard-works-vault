@@ -1,6 +1,6 @@
 # Steadfastness, Steadfast
 
-*See also* [[Commitment.md|Commitment]]; [[Courage.md|Courage]]; [[Dedication.md|Dedication]]; [[Dependability.md|Dependability]]; [[Diligence.md|Diligence]]; [[Endure.md|Endure]]; [[Faithfulness.md|Faithfulness]]; [[Integrity.md|Integrity]]; [[Loyalty.md|Loyalty]]; [[Obedience.md|Obedience]]; [[Perseverance.md|Perseverance]]
+*See also* [[Commitment.md|Commitment]]; [[Courage, Courageous.md|Courage, Courageous]]; [[Dedication, Dedicate.md|Dedication, Dedicate]]; [[Dependability.md|Dependability]]; [[Diligence, Diligent, Diligently.md|Diligence, Diligent, Diligently]]; [[Endure.md|Endure]]; [[Faithfulness.md|Faithfulness]]; [[Integrity.md|Integrity]]; [[Loyalty.md|Loyalty]]; [[Obedience, Obedient, Obey.md|Obedience, Obedient, Obey]]; [[Perseverance.md|Perseverance]]
 
 she was *steadfastly* minded to go, [[Ruth 1.18|Ruth 1:18]].
 

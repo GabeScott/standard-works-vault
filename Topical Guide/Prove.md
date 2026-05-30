@@ -1,6 +1,6 @@
 # Prove
 
-*See also* [[Examine.md|Examine]]; [[Temptation.md|Temptation]]; [[Test.md|Test]]; [[Try.md|Try]]
+*See also* [[Examine.md|Examine]]; [[Temptation.md|Temptation]]; [[Test, Try, Prove.md|Test, Try, Prove]]; [[Try, Tried.md|Try, Tried]]
 
 ye shall be *proved*, [[Genesis 42.15|Genesis 42:15]].
 

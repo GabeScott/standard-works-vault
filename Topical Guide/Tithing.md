@@ -1,6 +1,6 @@
 # Tithing
 
-*See also* [[Family, Managing Finances in.md|Family, Managing Finances in]]; [[Offering.md|Offering]]; [[Tenth.md|Tenth]]; [[BD Tithe.md|BD Tithe]]
+*See also* [[Family, Managing Finances in.md|Family, Managing Finances in]]; [[Offering (noun).md|Offering (noun)]]; [[Tenth.md|Tenth]]; [[BD Tithe.md|BD Tithe]]
 
 gave him *tithes* of all, [[Genesis 14.20|Genesis 14:20]] ([[Hebrews 7.2|Hebrews 7:2]]; [[Alma 13.15|Alma 13:15]]).
 

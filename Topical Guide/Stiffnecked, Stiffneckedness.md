@@ -1,6 +1,6 @@
 # Stiffnecked, Stiffneckedness
 
-*See also* [[Hardheartedness.md|Hardheartedness]]; [[Rebellion.md|Rebellion]]; [[Stubbornness.md|Stubbornness]]
+*See also* [[Hardheartedness, Harden, Hardness.md|Hardheartedness, Harden, Hardness]]; [[Rebellion, Rebel.md|Rebellion, Rebel]]; [[Stubbornness, Stubborn.md|Stubbornness, Stubborn]]
 
 it is a *stiffnecked* people, [[Exodus 32.9|Exodus 32:9]] ([[Exodus 34.9|Exodus 34:9]]).
 

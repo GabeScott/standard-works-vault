@@ -1,6 +1,6 @@
 # Punish, Punishment
 
-*See also* [[Accountability.md|Accountability]]; [[Chastening.md|Chastening]]; [[Correction.md|Correction]]; [[Curse.md|Curse]]; [[Damnation.md|Damnation]]; [[God, Justice of.md|God, Justice of]]; [[Hell.md|Hell]]; [[Reproof.md|Reproof]]; [[Retribution.md|Retribution]]; [[Spirits in Prison.md|Spirits in Prison]]; [[Vengeance.md|Vengeance]]
+*See also* [[Accountability.md|Accountability]]; [[Chastening.md|Chastening]]; [[Correction.md|Correction]]; [[Curse.md|Curse]]; [[Damnation, Damned.md|Damnation, Damned]]; [[God, Justice of.md|God, Justice of]]; [[Hell.md|Hell]]; [[Reproof, Reprove.md|Reproof, Reprove]]; [[Retribution.md|Retribution]]; [[Spirits in Prison.md|Spirits in Prison]]; [[Vengeance.md|Vengeance]]
 
 Cain said … My *punishment* is greater than I can bear, [[Genesis 4.13|Genesis 4:13]] ([[Moses 5.38|Moses 5:38]]).
 

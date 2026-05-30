@@ -1,6 +1,6 @@
 # Pollution, Pollute
 
-*See also* [[Corruption.md|Corruption]]; [[Defile.md|Defile]]; [[Filthiness.md|Filthiness]]; [[Profane.md|Profane]]; [[Sacrilege.md|Sacrilege]]
+*See also* [[Corruption.md|Corruption]]; [[Defile.md|Defile]]; [[Filthiness, Filthy.md|Filthiness, Filthy]]; [[Profane.md|Profane]]; [[Sacrilege.md|Sacrilege]]
 
 neither shall ye *pollute* the holy things, [[Numbers 18.32|Numbers 18:32]].
 

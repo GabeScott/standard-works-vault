@@ -1,6 +1,6 @@
 # Righteousness
 
-*See also* [[Equity.md|Equity]]; [[God, Perfection of.md|God, Perfection of]]; [[God, the Standard of Righteousness.md|God, the Standard of Righteousness]]; [[Godliness.md|Godliness]]; [[Good Works.md|Good Works]]; [[Holiness.md|Holiness]]; [[Honesty.md|Honesty]]; [[Integrity.md|Integrity]]; [[Judgment.md|Judgment]]; [[Priesthood, Qualifying for.md|Priesthood, Qualifying for]]; [[Righteous.md|Righteous]]; [[Sanctification.md|Sanctification]]; [[Truth.md|Truth]]; [[Uprightness.md|Uprightness]]; [[Walking with God.md|Walking with God]]
+*See also* [[Equity.md|Equity]]; [[God, Perfection of.md|God, Perfection of]]; [[God, the Standard of Righteousness.md|God, the Standard of Righteousness]]; [[Godliness, Godly.md|Godliness, Godly]]; [[Good Works.md|Good Works]]; [[Holiness.md|Holiness]]; [[Honesty.md|Honesty]]; [[Integrity.md|Integrity]]; [[Judgment.md|Judgment]]; [[Priesthood, Qualifying for.md|Priesthood, Qualifying for]]; [[Righteous.md|Righteous]]; [[Sanctification, Sanctify.md|Sanctification, Sanctify]]; [[Truth.md|Truth]]; [[Uprightness.md|Uprightness]]; [[Walking with God.md|Walking with God]]
 
 counted it to him for *righteousness*, [[Genesis 15.6|Genesis 15:6]] ([[Romans 4.3|Romans 4:3]]; [[Galatians 3.6|Galatians 3:6]]; [[James 2.23|James 2:23]]; [[D&C 132.36|D&C 132:36]]).
 

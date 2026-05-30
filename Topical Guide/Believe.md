@@ -1,6 +1,6 @@
 # Believe
 
-*See also* [[Assurance.md|Assurance]]; [[Baptism, Qualifications for.md|Baptism, Qualifications for]]; [[Confidence.md|Confidence]]; [[Faith.md|Faith]]; [[Trust.md|Trust]]; [[Trust in God.md|Trust in God]]; [[Unbelief.md|Unbelief]]
+*See also* [[Assurance.md|Assurance]]; [[Baptism, Qualifications for.md|Baptism, Qualifications for]]; [[Confidence.md|Confidence]]; [[Faith.md|Faith]]; [[Trust.md|Trust]]; [[Trust in God.md|Trust in God]]; [[Unbelief, Unbelievers.md|Unbelief, Unbelievers]]
 
 he *believed* in the Lord, [[Genesis 15.6|Genesis 15:6]].
 

@@ -1,6 +1,6 @@
 # Talk
 
-*See also* [[Speak.md|Speak]]; [[Utter.md|Utter]]
+*See also* [[Speak, Spake, Spoken.md|Speak, Spake, Spoken]]; [[Utter.md|Utter]]
 
 I have *talked* with you from heaven, [[Exodus 20.22|Exodus 20:22]].
 

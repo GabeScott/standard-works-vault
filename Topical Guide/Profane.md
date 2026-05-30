@@ -1,6 +1,6 @@
 # Profane
 
-*See also* [[Corrupt.md|Corrupt]]; [[Defile.md|Defile]]; [[Pollution.md|Pollution]]; [[Profanity.md|Profanity]]
+*See also* [[Corrupt.md|Corrupt]]; [[Defile.md|Defile]]; [[Pollution, Pollute.md|Pollution, Pollute]]; [[Profanity.md|Profanity]]
 
 I have *profaned* the princes of the sanctuary, [[Isaiah 43.28|Isaiah 43:28]].
 

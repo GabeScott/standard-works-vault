@@ -1,6 +1,6 @@
 # Duty
 
-*See also* [[Dependability.md|Dependability]]; [[Family, Children, Duties of.md|Family, Children, Duties of]]; [[Family, Children, Responsibilities toward.md|Family, Children, Responsibilities toward]]; [[Leadership.md|Leadership]]; [[Obedience.md|Obedience]]; [[Priesthood, Magnifying Callings within.md|Priesthood, Magnifying Callings within]]
+*See also* [[Dependability.md|Dependability]]; [[Family, Children, Duties of.md|Family, Children, Duties of]]; [[Family, Children, Responsibilities toward.md|Family, Children, Responsibilities toward]]; [[Leadership.md|Leadership]]; [[Obedience, Obedient, Obey.md|Obedience, Obedient, Obey]]; [[Priesthood, Magnifying Callings within.md|Priesthood, Magnifying Callings within]]
 
 what doth … God *require* of thee, but to fear the Lord, [[Deuteronomy 10.12|Deuteronomy 10:12]].
 

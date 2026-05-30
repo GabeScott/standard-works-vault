@@ -1,6 +1,6 @@
 # Lead, Led
 
-*See also* [[Direct.md|Direct]]; [[Guide.md|Guide]]; [[Leader.md|Leader]]; [[Leadership.md|Leadership]]
+*See also* [[Direct, Direction.md|Direct, Direction]]; [[Guide.md|Guide]]; [[Leader.md|Leader]]; [[Leadership.md|Leadership]]
 
 Lord *led* me to the house of my master’s, [[Genesis 24.27|Genesis 24:27]].
 

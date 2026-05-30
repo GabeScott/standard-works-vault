@@ -1,6 +1,6 @@
 # Condemnation
 
-*See also* [[Condemn.md|Condemn]]; [[Damnation.md|Damnation]]; [[Hell.md|Hell]]; [[Punish.md|Punish]]
+*See also* [[Condemn.md|Condemn]]; [[Damnation, Damned.md|Damnation, Damned]]; [[Hell.md|Hell]]; [[Punish, Punishment.md|Punish, Punishment]]
 
 fear God, seeing thou art in the same *condemnation*, [[Luke 23.40|Luke 23:40]].
 

@@ -1,6 +1,6 @@
 # Foe
 
-*See also* [[Adversary.md|Adversary]]; [[Enemies.md|Enemies]]
+*See also* [[Adversary.md|Adversary]]; [[Enemies, Enemy.md|Enemies, Enemy]]
 
 man’s *foes* shall be they of his own household, [[Matthew 10.36|Matthew 10:36]].
 

@@ -1,6 +1,6 @@
 # Debt
 
-*See also* [[Lend.md|Lend]]; [[Usury.md|Usury]]
+*See also* [[Lend, Lent.md|Lend, Lent]]; [[Usury.md|Usury]]
 
 If thou *lend* money to any of my people that is poor, [[Exodus 22.25|Exodus 22:25]].
 

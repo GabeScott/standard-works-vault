@@ -1,6 +1,6 @@
 # Sluggard
 
-*See also* [[Slothful.md|Slothful]]
+*See also* [[Slothful, Slothfulness.md|Slothful, Slothfulness]]
 
 Go to the ant, thou *sluggard*; consider her ways, [[Proverbs 6.6|Proverbs 6:6]].
 

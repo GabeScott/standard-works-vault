@@ -1,6 +1,6 @@
 # Honesty
 
-*See also* [[Deceit.md|Deceit]]; [[Dependability.md|Dependability]]; [[False.md|False]]; [[Gossip.md|Gossip]]; [[Guile.md|Guile]]; [[Integrity.md|Integrity]]; [[Lying.md|Lying]]; [[Sincere.md|Sincere]]; [[True.md|True]]; [[Trust.md|Trust]]; [[Truth.md|Truth]]
+*See also* [[Deceit, Deceive.md|Deceit, Deceive]]; [[Dependability.md|Dependability]]; [[False.md|False]]; [[Gossip.md|Gossip]]; [[Guile.md|Guile]]; [[Integrity.md|Integrity]]; [[Lying, Liar, Lie.md|Lying, Liar, Lie]]; [[Sincere, Sincerity.md|Sincere, Sincerity]]; [[True.md|True]]; [[Trust.md|Trust]]; [[Truth.md|Truth]]
 
 meet thine enemy’s ox or his ass going astray … *bring* it back, [[Exodus 23.4|Exodus 23:4]].
 

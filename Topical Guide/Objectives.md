@@ -1,6 +1,6 @@
 # Objectives
 
-*See also* [[Eternal Life.md|Eternal Life]]; [[Joy.md|Joy]]; [[Motivations.md|Motivations]]; [[Obedience.md|Obedience]]; [[Service.md|Service]]; [[Treasure.md|Treasure]]; [[Wisdom.md|Wisdom]]
+*See also* [[Eternal Life.md|Eternal Life]]; [[Joy.md|Joy]]; [[Motivations.md|Motivations]]; [[Obedience, Obedient, Obey.md|Obedience, Obedient, Obey]]; [[Service.md|Service]]; [[Treasure.md|Treasure]]; [[Wisdom.md|Wisdom]]
 
 Be ye therefore *perfect*, [[Matthew 5.48|Matthew 5:48]] ([[3 Nephi 12.48|3 Nephi 12:48]]).
 

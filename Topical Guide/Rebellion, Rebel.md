@@ -1,6 +1,6 @@
 # Rebellion, Rebel
 
-*See also* [[Apostasy of Individuals.md|Apostasy of Individuals]]; [[Contention.md|Contention]]; [[Council in Heaven.md|Council in Heaven]]; [[Disobedience.md|Disobedience]]; [[Excommunication.md|Excommunication]]; [[Holy Ghost, Unpardonable Sin against.md|Holy Ghost, Unpardonable Sin against]]; [[Murmuring.md|Murmuring]]; [[Obedience.md|Obedience]]; [[Stiffnecked.md|Stiffnecked]]
+*See also* [[Apostasy of Individuals.md|Apostasy of Individuals]]; [[Contention.md|Contention]]; [[Council in Heaven.md|Council in Heaven]]; [[Disobedience, Disobey.md|Disobedience, Disobey]]; [[Excommunication.md|Excommunication]]; [[Holy Ghost, Unpardonable Sin against.md|Holy Ghost, Unpardonable Sin against]]; [[Murmuring, Murmur.md|Murmuring, Murmur]]; [[Obedience, Obedient, Obey.md|Obedience, Obedient, Obey]]; [[Stiffnecked, Stiffneckedness.md|Stiffnecked, Stiffneckedness]]
 
 they will not *believe* me, nor hearken, [[Exodus 4.1|Exodus 4:1]].
 

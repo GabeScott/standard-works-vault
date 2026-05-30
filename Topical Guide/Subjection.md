@@ -1,6 +1,6 @@
 # Subjection
 
-*See also* [[Obedience.md|Obedience]]; [[Subject.md|Subject]]
+*See also* [[Obedience, Obedient, Obey.md|Obedience, Obedient, Obey]]; [[Subject.md|Subject]]
 
 they were brought into *subjection*, [[Psalms 106.42|Psalms 106:42]].
 

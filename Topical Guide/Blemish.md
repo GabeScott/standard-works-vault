@@ -1,6 +1,6 @@
 # Blemish
 
-*See also* [[Spot.md|Spot]]
+*See also* [[Spot, Spotted.md|Spot, Spotted]]
 
 Your lamb shall be without *blemish*, [[Exodus 12.5|Exodus 12:5]].
 

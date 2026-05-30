@@ -1,6 +1,6 @@
 # Commitment
 
-*See also* [[Dedication.md|Dedication]]; [[Diligence.md|Diligence]]
+*See also* [[Dedication, Dedicate.md|Dedication, Dedicate]]; [[Diligence, Diligent, Diligently.md|Diligence, Diligent, Diligently]]
 
 Caleb … hath *followed* me fully, [[Numbers 14.24|Numbers 14:24]].
 

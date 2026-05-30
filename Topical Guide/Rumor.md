@@ -1,6 +1,6 @@
 # Rumor
 
-*See also* [[Communication.md|Communication]]; [[Gossip.md|Gossip]]; [[Lying.md|Lying]]; [[Report.md|Report]]
+*See also* [[Communication.md|Communication]]; [[Gossip.md|Gossip]]; [[Lying, Liar, Lie.md|Lying, Liar, Lie]]; [[Report.md|Report]]
 
 he shall hear a *rumour*, [[2 Kings 19.7|2 Kings 19:7]] ([[Isaiah 37.7|Isaiah 37:7]]).
 

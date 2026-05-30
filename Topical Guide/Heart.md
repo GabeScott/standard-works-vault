@@ -1,6 +1,6 @@
 # Heart
 
-*See also* [[Conversion.md|Conversion]]; [[Hardheartedness.md|Hardheartedness]]; [[Man, New, Spiritually Reborn.md|Man, New, Spiritually Reborn]]
+*See also* [[Conversion, Convert.md|Conversion, Convert]]; [[Hardheartedness, Harden, Hardness.md|Hardheartedness, Harden, Hardness]]; [[Man, New, Spiritually Reborn.md|Man, New, Spiritually Reborn]]
 
 every imagination … of his *heart* was only evil, [[Genesis 6.5|Genesis 6:5]].
 

@@ -1,6 +1,6 @@
 # Laughter, Laugh
 
-*See also* [[Happiness.md|Happiness]]; [[Levity.md|Levity]]; [[Scorn.md|Scorn]]
+*See also* [[Happiness, Happy.md|Happiness, Happy]]; [[Levity.md|Levity]]; [[Scorn, Scornful.md|Scorn, Scornful]]
 
 Abraham fell upon his face, and *laughed*, [[Genesis 17.17|Genesis 17:17]].
 

@@ -1,6 +1,6 @@
 # Goodness
 
-*See also* [[Good.md|Good]]; [[Virtue.md|Virtue]]
+*See also* [[Good.md|Good]]; [[Virtue, Virtuous.md|Virtue, Virtuous]]
 
 I will make all my *goodness* pass before thee, [[Exodus 33.19|Exodus 33:19]].
 

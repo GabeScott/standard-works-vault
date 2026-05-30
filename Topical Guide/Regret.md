@@ -1,3 +1,3 @@
 # Regret
 
-*See also* [[Guilt.md|Guilt]]; [[Repent.md|Repent]]; [[Sorrow.md|Sorrow]]
+*See also* [[Guilt, Guilty.md|Guilt, Guilty]]; [[Repent, Repentance.md|Repent, Repentance]]; [[Sorrow.md|Sorrow]]

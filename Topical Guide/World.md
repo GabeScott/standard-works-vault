@@ -1,6 +1,6 @@
 # World
 
-*See also* [[Astronomy.md|Astronomy]]; [[Creation.md|Creation]]; [[Earth, Destiny of.md|Earth, Destiny of]]; [[Earth, Purpose of.md|Earth, Purpose of]]; [[God, Creator.md|God, Creator]]; [[God, Works of.md|God, Works of]]; [[Spirit Creation.md|Spirit Creation]]; [[Spirits in Prison.md|Spirits in Prison]]; [[Vineyard of the Lord.md|Vineyard of the Lord]]; [[World, End of.md|World, End of]]; [[Worldliness.md|Worldliness]]
+*See also* [[Astronomy.md|Astronomy]]; [[Creation, Create.md|Creation, Create]]; [[Earth, Destiny of.md|Earth, Destiny of]]; [[Earth, Purpose of.md|Earth, Purpose of]]; [[God, Creator.md|God, Creator]]; [[God, Works of.md|God, Works of]]; [[Spirit Creation.md|Spirit Creation]]; [[Spirits in Prison.md|Spirits in Prison]]; [[Vineyard of the Lord.md|Vineyard of the Lord]]; [[World, End of.md|World, End of]]; [[Worldliness.md|Worldliness]]
 
 words to the end of the *world*, [[Psalms 19.4|Psalms 19:4]] ([[Romans 10.18|Romans 10:18]]).
 

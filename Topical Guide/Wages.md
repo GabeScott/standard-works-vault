@@ -1,6 +1,6 @@
 # Wages
 
-*See also* [[Blessing.md|Blessing]]; [[Hire.md|Hire]]; [[Money.md|Money]]; [[Recompence.md|Recompence]]; [[Reward.md|Reward]]; [[Support.md|Support]]
+*See also* [[Blessing.md|Blessing]]; [[Hire, Hireling.md|Hire, Hireling]]; [[Money.md|Money]]; [[Recompence, Recompense.md|Recompence, Recompense]]; [[Reward.md|Reward]]; [[Support.md|Support]]
 
 what shall thy *wages* be, [[Genesis 29.15|Genesis 29:15]].
 

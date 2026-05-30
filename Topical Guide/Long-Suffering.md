@@ -1,6 +1,6 @@
 # Long-Suffering
 
-*See also* [[Patience.md|Patience]]
+*See also* [[Patience, Patient, Patiently.md|Patience, Patient, Patiently]]
 
 Lord God, merciful and gracious, *longsuffering*, [[Exodus 34.6|Exodus 34:6]].
 

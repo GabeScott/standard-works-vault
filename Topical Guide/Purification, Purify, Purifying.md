@@ -1,6 +1,6 @@
 # Purification, Purify, Purifying
 
-*See also* [[Clean.md|Clean]]; [[Cleanliness.md|Cleanliness]]; [[Cleanse.md|Cleanse]]; [[Hallow.md|Hallow]]; [[Purity.md|Purity]]; [[Sanctification.md|Sanctification]]; [[Wash.md|Wash]]; [[BD Purification.md|BD Purification]]
+*See also* [[Clean.md|Clean]]; [[Cleanliness.md|Cleanliness]]; [[Cleanse.md|Cleanse]]; [[Hallow, Hallowed.md|Hallow, Hallowed]]; [[Purity, Pure.md|Purity, Pure]]; [[Sanctification, Sanctify.md|Sanctification, Sanctify]]; [[Wash, Washing.md|Wash, Washing]]; [[BD Purification.md|BD Purification]]
 
 days of her *purifying* are fulfilled, [[Leviticus 12.6|Leviticus 12:6]].
 

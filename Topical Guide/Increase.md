@@ -1,6 +1,6 @@
 # Increase
 
-*See also* [[Blessing.md|Blessing]]; [[Enlarge.md|Enlarge]]; [[Flourish.md|Flourish]]; [[Grow.md|Grow]]; [[Multiply.md|Multiply]]; [[Reward.md|Reward]]; [[Tithing.md|Tithing]]; [[Wages.md|Wages]]
+*See also* [[Blessing.md|Blessing]]; [[Enlarge.md|Enlarge]]; [[Flourish.md|Flourish]]; [[Grow, Grew, Grown.md|Grow, Grew, Grown]]; [[Multiply.md|Multiply]]; [[Reward.md|Reward]]; [[Tithing.md|Tithing]]; [[Wages.md|Wages]]
 
 *increase*, that ye shall give the fifth part, [[Genesis 47.24|Genesis 47:24]].
 

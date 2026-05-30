@@ -1,6 +1,6 @@
 # Danger
 
-*See also* [[Jeopardy.md|Jeopardy]]; [[Peril.md|Peril]]
+*See also* [[Jeopardy.md|Jeopardy]]; [[Peril, Perilous.md|Peril, Perilous]]
 
 shall kill shall be in *danger* of the judgment, [[Matthew 5.21|Matthew 5:21]] ([[3 Nephi 12.21|3 Nephi 12:21]]).
 

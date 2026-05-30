@@ -1,6 +1,6 @@
 # Communication
 
-*See also* [[God, Access to.md|God, Access to]]; [[Gossip.md|Gossip]]; [[Language.md|Language]]; [[Prayer.md|Prayer]]; [[Speech.md|Speech]]
+*See also* [[God, Access to.md|God, Access to]]; [[Gossip.md|Gossip]]; [[Language.md|Language]]; [[Prayer, Pray.md|Prayer, Pray]]; [[Speech.md|Speech]]
 
 confound their *language*, that they may not understand, [[Genesis 11.7|Genesis 11:7]].
 

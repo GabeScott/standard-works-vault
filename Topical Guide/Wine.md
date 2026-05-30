@@ -1,6 +1,6 @@
 # Wine
 
-*See also* [[Drunkenness.md|Drunkenness]]; [[Winebibber.md|Winebibber]]; [[Winepress.md|Winepress]]; [[Word of Wisdom.md|Word of Wisdom]]
+*See also* [[Drunkenness.md|Drunkenness]]; [[Winebibber.md|Winebibber]]; [[Winepress, Winefat.md|Winepress, Winefat]]; [[Word of Wisdom.md|Word of Wisdom]]
 
 Do not drink *wine*, [[Leviticus 10.9|Leviticus 10:9]].
 

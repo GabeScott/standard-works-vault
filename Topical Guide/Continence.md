@@ -1,3 +1,3 @@
 # Continence
 
-*See also* [[Chastity.md|Chastity]]; [[Self-Mastery.md|Self-Mastery]]
+*See also* [[Chastity, Chaste.md|Chastity, Chaste]]; [[Self-Mastery.md|Self-Mastery]]

@@ -1,6 +1,6 @@
 # Part
 
-*See also* [[Divide.md|Divide]]; [[Portion.md|Portion]]; [[Separation.md|Separation]]
+*See also* [[Divide.md|Divide]]; [[Portion.md|Portion]]; [[Separation, Separate.md|Separation, Separate]]
 
 neither shalt thou have any *part* among them: I am thy *part*, [[Numbers 18.20|Numbers 18:20]].
 

@@ -1,6 +1,6 @@
 # Device
 
-*See also* [[Imagination.md|Imagination]]
+*See also* [[Imagination, Imagine.md|Imagination, Imagine]]
 
 *device* that he had devised against the Jews, [[Esther 8.3|Esther 8:3]].
 

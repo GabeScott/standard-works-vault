@@ -1,6 +1,6 @@
 # Correction
 
-*See also* [[Chastening.md|Chastening]]; [[Family, Children, Responsibilities toward.md|Family, Children, Responsibilities toward]]; [[Family, Love within.md|Family, Love within]]; [[Punish.md|Punish]]
+*See also* [[Chastening.md|Chastening]]; [[Family, Children, Responsibilities toward.md|Family, Children, Responsibilities toward]]; [[Family, Love within.md|Family, Love within]]; [[Punish, Punishment.md|Punish, Punishment]]
 
 neither be weary of his *correction*, [[Proverbs 3.11|Proverbs 3:11]].
 

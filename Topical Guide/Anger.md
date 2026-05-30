@@ -1,6 +1,6 @@
 # Anger
 
-*See also* [[God, Indignation of.md|God, Indignation of]]; [[Indignation.md|Indignation]]; [[Provoking.md|Provoking]]; [[Rage.md|Rage]]; [[Wrath.md|Wrath]]
+*See also* [[God, Indignation of.md|God, Indignation of]]; [[Indignation.md|Indignation]]; [[Provoking, Provoke.md|Provoking, Provoke]]; [[Rage.md|Rage]]; [[Wrath.md|Wrath]]
 
 Until thy brother’s *anger* turn away, [[Genesis 27.45|Genesis 27:45]].
 

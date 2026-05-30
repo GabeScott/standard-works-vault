@@ -1,6 +1,6 @@
 # Intercession
 
-*See also* [[Holy Ghost, Mission of.md|Holy Ghost, Mission of]]; [[Jesus Christ, Atonement through.md|Jesus Christ, Atonement through]]; [[Jesus Christ, Mission of.md|Jesus Christ, Mission of]]; [[Meditation.md|Meditation]]; [[Prayer.md|Prayer]]; [[Supplication.md|Supplication]]
+*See also* [[Holy Ghost, Mission of.md|Holy Ghost, Mission of]]; [[Jesus Christ, Atonement through.md|Jesus Christ, Atonement through]]; [[Jesus Christ, Mission of.md|Jesus Christ, Mission of]]; [[Meditation, Meditate.md|Meditation, Meditate]]; [[Prayer, Pray.md|Prayer, Pray]]; [[Supplication.md|Supplication]]
 
 made *intercession* for the transgressors, [[Isaiah 53.12|Isaiah 53:12]] ([[Mosiah 14.12|Mosiah 14:12]]).
 

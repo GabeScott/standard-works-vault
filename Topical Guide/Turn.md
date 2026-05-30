@@ -1,6 +1,6 @@
 # Turn
 
-*See also* [[Change.md|Change]]; [[Repent.md|Repent]]; [[Return.md|Return]]
+*See also* [[Change.md|Change]]; [[Repent, Repentance.md|Repent, Repentance]]; [[Return.md|Return]]
 
 in the river, and they shall be *turned* to blood, [[Exodus 7.17|Exodus 7:17]].
 

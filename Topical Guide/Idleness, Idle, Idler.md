@@ -1,6 +1,6 @@
 # Idleness, Idle, Idler
 
-*See also* [[Apathy.md|Apathy]]; [[Laziness.md|Laziness]]; [[Procrastination.md|Procrastination]]; [[Sleep.md|Sleep]]; [[Slothful.md|Slothful]]
+*See also* [[Apathy.md|Apathy]]; [[Laziness.md|Laziness]]; [[Procrastination, Procrastinate.md|Procrastination, Procrastinate]]; [[Sleep, Slept.md|Sleep, Slept]]; [[Slothful, Slothfulness.md|Slothful, Slothfulness]]
 
 an *idle* soul shall suffer hunger, [[Proverbs 19.15|Proverbs 19:15]].
 

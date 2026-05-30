@@ -1,6 +1,6 @@
 # Sacrilege
 
-*See also* [[Blaspheme.md|Blaspheme]]; [[Defile.md|Defile]]; [[Pollution.md|Pollution]]; [[Profanity.md|Profanity]]
+*See also* [[Blaspheme, Blasphemous, Blasphemy.md|Blaspheme, Blasphemous, Blasphemy]]; [[Defile.md|Defile]]; [[Pollution, Pollute.md|Pollution, Pollute]]; [[Profanity.md|Profanity]]
 
 not take the name of the Lord thy God in *vain*, [[Exodus 20.7|Exodus 20:7]].
 

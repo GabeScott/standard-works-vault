@@ -1,6 +1,6 @@
 # Hate
 
-*See also* [[Abhor.md|Abhor]]; [[Despise.md|Despise]]; [[Malice.md|Malice]]; [[Persecution.md|Persecution]]; [[Reviling.md|Reviling]]
+*See also* [[Abhor.md|Abhor]]; [[Despise.md|Despise]]; [[Malice.md|Malice]]; [[Persecution, Persecute.md|Persecution, Persecute]]; [[Reviling, Revile.md|Reviling, Revile]]
 
 seed possess the gate of those which *hate* them, [[Genesis 24.60|Genesis 24:60]].
 

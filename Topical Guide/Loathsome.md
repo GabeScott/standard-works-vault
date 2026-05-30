@@ -1,6 +1,6 @@
 # Loathsome
 
-*See also* [[Abominable.md|Abominable]]; [[Base.md|Base]]; [[Vile.md|Vile]]; [[Wickedness.md|Wickedness]]
+*See also* [[Abominable.md|Abominable]]; [[Base.md|Base]]; [[Vile, Viler, Vilest.md|Vile, Viler, Vilest]]; [[Wickedness, Wicked.md|Wickedness, Wicked]]
 
 a wicked man is *loathsome*, [[Proverbs 13.5|Proverbs 13:5]].
 

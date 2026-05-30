@@ -1,6 +1,6 @@
 # Restrain
 
-*See also* [[Hinder.md|Hinder]]; [[Withhold.md|Withhold]]
+*See also* [[Hinder.md|Hinder]]; [[Withhold, Withheld, Withholden.md|Withhold, Withheld, Withholden]]
 
 his sons made themselves vile, and he *restrained* them not, [[1 Samuel 3.13|1 Samuel 3:13]].
 

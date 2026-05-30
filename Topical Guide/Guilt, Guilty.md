@@ -1,6 +1,6 @@
 # Guilt, Guilty
 
-*See also* [[Bondage, Spiritual.md|Bondage, Spiritual]]; [[Guiltless.md|Guiltless]]; [[Repent.md|Repent]]; [[Shame.md|Shame]]
+*See also* [[Bondage, Spiritual.md|Bondage, Spiritual]]; [[Guiltless.md|Guiltless]]; [[Repent, Repentance.md|Repent, Repentance]]; [[Shame.md|Shame]]
 
 We are verily *guilty* concerning our brother, [[Genesis 42.21|Genesis 42:21]].
 

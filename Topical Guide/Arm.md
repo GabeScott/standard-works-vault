@@ -1,6 +1,6 @@
 # Arm
 
-*See also* [[Might.md|Might]]; [[Power.md|Power]]; [[Strength.md|Strength]]; [[Trust Not in the Arm of Flesh.md|Trust Not in the Arm of Flesh]]
+*See also* [[Might.md|Might]]; [[Power, Powerful.md|Power, Powerful]]; [[Strength.md|Strength]]; [[Trust Not in the Arm of Flesh.md|Trust Not in the Arm of Flesh]]
 
 by the greatness of thine *arm*, [[Exodus 15.16|Exodus 15:16]].
 

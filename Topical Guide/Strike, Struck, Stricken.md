@@ -1,6 +1,6 @@
 # Strike, Struck, Stricken
 
-*See also* [[Smite.md|Smite]]
+*See also* [[Smite, Smote, Smitten.md|Smite, Smote, Smitten]]
 
 Lord … shall *strike* through kings, [[Psalms 110.5|Psalms 110:5]].
 

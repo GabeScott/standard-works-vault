@@ -1,6 +1,6 @@
 # Search
 
-*See also* [[Inquire.md|Inquire]]; [[Scriptures, Study of.md|Scriptures, Study of]]; [[Seek.md|Seek]]; [[Study.md|Study]]
+*See also* [[Inquire.md|Inquire]]; [[Scriptures, Study of.md|Scriptures, Study of]]; [[Seek, Sought.md|Seek, Sought]]; [[Study.md|Study]]
 
 images … Laban *searched* all the tent, but found them not, [[Genesis 31.34|Genesis 31:34]].
 

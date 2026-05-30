@@ -1,6 +1,6 @@
 # Remission of Sins
 
-*See also* [[Baptism.md|Baptism]]; [[Forgive.md|Forgive]]; [[Holy Ghost, Mission of.md|Holy Ghost, Mission of]]; [[Pardon.md|Pardon]]; [[Repent.md|Repent]]
+*See also* [[Baptism.md|Baptism]]; [[Forgive, Forgiveness.md|Forgive, Forgiveness]]; [[Holy Ghost, Mission of.md|Holy Ghost, Mission of]]; [[Pardon.md|Pardon]]; [[Repent, Repentance.md|Repent, Repentance]]
 
 my blood … shed for many for the *remission of sins*, [[Matthew 26.28|Matthew 26:28]] ([[D&C 27.2|D&C 27:2]]).
 

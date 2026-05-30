@@ -1,6 +1,6 @@
 # Gather
 
-*See also* [[Bring.md|Bring]]; [[Israel, Gathering of.md|Israel, Gathering of]]
+*See also* [[Bring, Brought.md|Bring, Brought]]; [[Israel, Gathering of.md|Israel, Gathering of]]
 
 Joseph *gathered* corn as the sand of the sea, [[Genesis 41.49|Genesis 41:49]].
 

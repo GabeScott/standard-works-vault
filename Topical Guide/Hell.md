@@ -1,6 +1,6 @@
 # Hell
 
-*See also* [[Damnation.md|Damnation]]; [[Death, Spiritual, Second.md|Death, Spiritual, Second]]; [[Sons of Perdition.md|Sons of Perdition]]; [[Spirits in Prison.md|Spirits in Prison]]; [[BD Hell.md|BD Hell]]
+*See also* [[Damnation, Damned.md|Damnation, Damned]]; [[Death, Spiritual, Second.md|Death, Spiritual, Second]]; [[Sons of Perdition.md|Sons of Perdition]]; [[Spirits in Prison.md|Spirits in Prison]]; [[BD Hell.md|BD Hell]]
 
 shall burn unto the lowest *hell*, [[Deuteronomy 32.22|Deuteronomy 32:22]].
 

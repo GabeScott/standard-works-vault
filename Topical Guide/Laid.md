@@ -1,3 +1,3 @@
 # Laid
 
-*See also* [[Lay.md|Lay]]
+*See also* [[Lay, Laid.md|Lay, Laid]]

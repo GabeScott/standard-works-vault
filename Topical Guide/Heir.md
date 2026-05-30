@@ -1,6 +1,6 @@
 # Heir
 
-*See also* [[Birthright.md|Birthright]]; [[Election.md|Election]]; [[Exaltation.md|Exaltation]]; [[Offspring.md|Offspring]]; [[Seed.md|Seed]]
+*See also* [[Birthright.md|Birthright]]; [[Election, Elect.md|Election, Elect]]; [[Exaltation.md|Exaltation]]; [[Offspring.md|Offspring]]; [[Seed.md|Seed]]
 
 one born in my house is mine *heir*, [[Genesis 15.3|Genesis 15:3]].
 

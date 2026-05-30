@@ -1,6 +1,6 @@
 # Record
 
-*See also* [[Account.md|Account]]; [[Book of Life.md|Book of Life]]; [[Book of Mormon.md|Book of Mormon]]; [[Book of Remembrance.md|Book of Remembrance]]; [[Genealogy and Temple Work.md|Genealogy and Temple Work]]; [[Reckon.md|Reckon]]; [[Record Keeping.md|Record Keeping]]; [[Scriptures, Writing of.md|Scriptures, Writing of]]
+*See also* [[Account.md|Account]]; [[Book of Life.md|Book of Life]]; [[Book of Mormon.md|Book of Mormon]]; [[Book of Remembrance.md|Book of Remembrance]]; [[Genealogy and Temple Work.md|Genealogy and Temple Work]]; [[Reckon, Reckoning.md|Reckon, Reckoning]]; [[Record Keeping.md|Record Keeping]]; [[Scriptures, Writing of.md|Scriptures, Writing of]]
 
 in all places where I *record* my name, [[Exodus 20.24|Exodus 20:24]].
 

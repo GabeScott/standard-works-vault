@@ -1,3 +1,3 @@
 # Social Pressure
 
-*See also* [[Example.md|Example]]; [[Peer Influence.md|Peer Influence]]
+*See also* [[Example, Ensample.md|Example, Ensample]]; [[Peer Influence.md|Peer Influence]]

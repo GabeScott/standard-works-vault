@@ -1,6 +1,6 @@
 # Robber
 
-*See also* [[Thief.md|Thief]]
+*See also* [[Thief, Thieves.md|Thief, Thieves]]
 
 Is this house … become a den of *robbers*, [[Jeremiah 7.11|Jeremiah 7:11]].
 

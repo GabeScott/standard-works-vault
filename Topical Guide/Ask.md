@@ -1,6 +1,6 @@
 # Ask
 
-*See also* [[Beg.md|Beg]]; [[Beseech.md|Beseech]]; [[Entreat.md|Entreat]]; [[Inquire.md|Inquire]]; [[Petition.md|Petition]]; [[Plead.md|Plead]]; [[Prayer.md|Prayer]]; [[Problem-Solving.md|Problem-Solving]]; [[Question.md|Question]]; [[Request.md|Request]]; [[Seek.md|Seek]]
+*See also* [[Beg.md|Beg]]; [[Beseech, Besought.md|Beseech, Besought]]; [[Entreat.md|Entreat]]; [[Inquire.md|Inquire]]; [[Petition.md|Petition]]; [[Plead.md|Plead]]; [[Prayer, Pray.md|Prayer, Pray]]; [[Problem-Solving.md|Problem-Solving]]; [[Question.md|Question]]; [[Request.md|Request]]; [[Seek, Sought.md|Seek, Sought]]
 
 when thy son *asketh* thee, [[Exodus 13.14|Exodus 13:14]].
 

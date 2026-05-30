@@ -1,6 +1,6 @@
 # Gift
 
-*See also* [[Bribe.md|Bribe]]; [[Contribution.md|Contribution]]; [[Generosity.md|Generosity]]; [[Give.md|Give]]; [[God, Gifts of.md|God, Gifts of]]; [[Grace.md|Grace]]; [[Holy Ghost, Gift of.md|Holy Ghost, Gift of]]; [[Holy Ghost, Gifts of.md|Holy Ghost, Gifts of]]; [[Holy Ghost, Mission of.md|Holy Ghost, Mission of]]; [[Offering.md|Offering]]; [[Present (noun).md|Present (noun)]]; [[Talents.md|Talents]]
+*See also* [[Bribe, Bribery.md|Bribe, Bribery]]; [[Contribution.md|Contribution]]; [[Generosity.md|Generosity]]; [[Give, Gave, Given.md|Give, Gave, Given]]; [[God, Gifts of.md|God, Gifts of]]; [[Grace.md|Grace]]; [[Holy Ghost, Gift of.md|Holy Ghost, Gift of]]; [[Holy Ghost, Gifts of.md|Holy Ghost, Gifts of]]; [[Holy Ghost, Mission of.md|Holy Ghost, Mission of]]; [[Offering (noun).md|Offering (noun)]]; [[Present (noun).md|Present (noun)]]; [[Talents.md|Talents]]
 
 take no *gift*: for the *gift* blindeth, [[Exodus 23.8|Exodus 23:8]] ([[Deuteronomy 16.19|Deuteronomy 16:19]]).
 

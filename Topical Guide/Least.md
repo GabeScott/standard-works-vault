@@ -1,6 +1,6 @@
 # Least
 
-*See also* [[Less.md|Less]]
+*See also* [[Less, Lesser.md|Less, Lesser]]
 
 not worthy of the *least* of all the mercies, [[Genesis 32.10|Genesis 32:10]].
 

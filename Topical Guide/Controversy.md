@@ -1,6 +1,6 @@
 # Controversy
 
-*See also* [[Disputations.md|Disputations]]
+*See also* [[Disputations, Dispute.md|Disputations, Dispute]]
 
 matters of *controversy* within thy gates, [[Deuteronomy 17.8|Deuteronomy 17:8]].
 

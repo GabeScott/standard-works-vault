@@ -1,6 +1,6 @@
 # Gossip
 
-*See also* [[Backbiting.md|Backbiting]]; [[False.md|False]]; [[Lying.md|Lying]]; [[Slander.md|Slander]]
+*See also* [[Backbiting.md|Backbiting]]; [[False.md|False]]; [[Lying, Liar, Lie.md|Lying, Liar, Lie]]; [[Slander.md|Slander]]
 
 not go up and down as a *talebearer*, [[Leviticus 19.16|Leviticus 19:16]].
 

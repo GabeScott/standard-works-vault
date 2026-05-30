@@ -1,6 +1,6 @@
 # Guiltless
 
-*See also* [[Guilt.md|Guilt]]; [[Innocence.md|Innocence]]
+*See also* [[Guilt, Guilty.md|Guilt, Guilty]]; [[Innocence, Innocent.md|Innocence, Innocent]]
 
 Lord will not hold him *guiltless*, [[Exodus 20.7|Exodus 20:7]] ([[Deuteronomy 5.11|Deuteronomy 5:11]]).
 

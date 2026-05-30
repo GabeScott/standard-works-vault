@@ -1,6 +1,6 @@
 # Minister
 
-*See also* [[Angels, Ministering.md|Angels, Ministering]]; [[Ministration.md|Ministration]]; [[Ministry.md|Ministry]]; [[Servant.md|Servant]]; [[Serve.md|Serve]]; [[Stewardship.md|Stewardship]]
+*See also* [[Angels, Ministering.md|Angels, Ministering]]; [[Ministration.md|Ministration]]; [[Ministry.md|Ministry]]; [[Servant.md|Servant]]; [[Serve.md|Serve]]; [[Stewardship, Steward.md|Stewardship, Steward]]
 
 he may *minister* unto me in the priest’s office, [[Exodus 28.1|Exodus 28:1]].
 

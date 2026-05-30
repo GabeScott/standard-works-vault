@@ -1,6 +1,6 @@
 # Cruelty, Cruel
 
-*See also* [[Oppression.md|Oppression]]; [[Persecution.md|Persecution]]; [[Scourge.md|Scourge]]
+*See also* [[Oppression, Oppress.md|Oppression, Oppress]]; [[Persecution, Persecute.md|Persecution, Persecute]]; [[Scourge.md|Scourge]]
 
 instruments of *cruelty*, [[Genesis 49.5|Genesis 49:5]].
 

@@ -1,6 +1,6 @@
 # Well [noun]
 
-*See also* [[Fountain.md|Fountain]]; [[Spring (noun).md|Spring (noun)]]; [[Water.md|Water]]
+*See also* [[Fountain.md|Fountain]]; [[Spring.md|Spring]]; [[Water.md|Water]]
 
 *well* was called Beer-lahai-roi, [[Genesis 16.14|Genesis 16:14]].
 

@@ -1,6 +1,6 @@
 # Just
 
-*See also* [[God, Justice of.md|God, Justice of]]; [[Judgment.md|Judgment]]; [[Justice.md|Justice]]; [[Perfection.md|Perfection]]; [[Righteous.md|Righteous]]; [[Upright.md|Upright]]
+*See also* [[God, Justice of.md|God, Justice of]]; [[Judgment.md|Judgment]]; [[Justice.md|Justice]]; [[Perfection, Perfect, Perfectly.md|Perfection, Perfect, Perfectly]]; [[Righteous.md|Righteous]]; [[Upright.md|Upright]]
 
 Noah was a *just* man and perfect, [[Genesis 6.9|Genesis 6:9]] ([[Moses 8.27|Moses 8:27]]).
 

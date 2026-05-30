@@ -1,6 +1,6 @@
 # Vengeance
 
-*See also* [[God, Justice of.md|God, Justice of]]; [[Punish.md|Punish]]; [[Retribution.md|Retribution]]
+*See also* [[God, Justice of.md|God, Justice of]]; [[Punish, Punishment.md|Punish, Punishment]]; [[Retribution.md|Retribution]]
 
 whosoever slayeth Cain, *vengeance* shall be taken, [[Genesis 4.15|Genesis 4:15]] ([[Moses 5.40|Moses 5:40]]).
 

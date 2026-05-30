@@ -1,6 +1,6 @@
 # Weakness
 
-*See also* [[Humility.md|Humility]]; [[Infirmity.md|Infirmity]]; [[Strength.md|Strength]]
+*See also* [[Humility, Humble.md|Humility, Humble]]; [[Infirmity.md|Infirmity]]; [[Strength.md|Strength]]
 
 *weakness* of God is stronger than men, [[1 Corinthians 1.25|1 Corinthians 1:25]].
 

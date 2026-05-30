@@ -1,6 +1,6 @@
 # God, Access to
 
-*See also* [[Prayer.md|Prayer]]
+*See also* [[Prayer, Pray.md|Prayer, Pray]]
 
 Enoch *walked* with God, [[Genesis 5.24|Genesis 5:24]].
 

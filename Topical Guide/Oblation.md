@@ -1,6 +1,6 @@
 # Oblation
 
-*See also* [[Offering.md|Offering]]; [[Sacrifice.md|Sacrifice]]
+*See also* [[Offering (noun).md|Offering (noun)]]; [[Sacrifice.md|Sacrifice]]
 
 Israel to offer their *oblations* unto the Lord, [[Leviticus 7.38|Leviticus 7:38]].
 

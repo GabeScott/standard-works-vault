@@ -1,6 +1,6 @@
 # Grant
 
-*See also* [[Give.md|Give]]
+*See also* [[Give, Gave, Given.md|Give, Gave, Given]]
 
 *Grant* thee according to thine own heart, [[Psalms 20.4|Psalms 20:4]].
 

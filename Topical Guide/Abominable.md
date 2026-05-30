@@ -1,6 +1,6 @@
 # Abominable
 
-*See also* [[Vile.md|Vile]]; [[Wickedness.md|Wickedness]]
+*See also* [[Vile, Viler, Vilest.md|Vile, Viler, Vilest]]; [[Wickedness, Wicked.md|Wickedness, Wicked]]
 
 ye commit not any one of these *abominable* customs, [[Leviticus 18.30|Leviticus 18:30]].
 

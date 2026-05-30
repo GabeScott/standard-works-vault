@@ -1,6 +1,6 @@
 # Faith
 
-*See also* [[Assurance.md|Assurance]]; [[Baptism, Qualifications for.md|Baptism, Qualifications for]]; [[Believe.md|Believe]]; [[Confidence.md|Confidence]]; [[Faithful.md|Faithful]]; [[Faithfulness.md|Faithfulness]]; [[Obedience.md|Obedience]]; [[Trust.md|Trust]]; [[Trust in God.md|Trust in God]]; [[BD Faith.md|BD Faith]]
+*See also* [[Assurance.md|Assurance]]; [[Baptism, Qualifications for.md|Baptism, Qualifications for]]; [[Believe.md|Believe]]; [[Confidence.md|Confidence]]; [[Faithful.md|Faithful]]; [[Faithfulness.md|Faithfulness]]; [[Obedience, Obedient, Obey.md|Obedience, Obedient, Obey]]; [[Trust.md|Trust]]; [[Trust in God.md|Trust in God]]; [[BD Faith.md|BD Faith]]
 
 children in whom is no *faith*, [[Deuteronomy 32.20|Deuteronomy 32:20]].
 

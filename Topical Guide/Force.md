@@ -1,6 +1,6 @@
 # Force
 
-*See also* [[Power.md|Power]]; [[Strength.md|Strength]]
+*See also* [[Power, Powerful.md|Power, Powerful]]; [[Strength.md|Strength]]
 
 take by *force* thy daughters from me, [[Genesis 31.31|Genesis 31:31]].
 

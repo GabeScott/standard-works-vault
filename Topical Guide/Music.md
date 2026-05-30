@@ -1,6 +1,6 @@
 # Music
 
-*See also* [[Musical Instruments.md|Musical Instruments]]; [[Singing.md|Singing]]; [[BD Music.md|BD Music]]
+*See also* [[Musical Instruments.md|Musical Instruments]]; [[Singing, Sing, Sang, Sung.md|Singing, Sing, Sang, Sung]]; [[BD Music.md|BD Music]]
 
 to appoint … the singers with instruments of *musick*, [[1 Chronicles 15.16|1 Chronicles 15:16]].
 

@@ -1,6 +1,6 @@
 # Trespass
 
-*See also* [[Offense.md|Offense]]; [[Sin.md|Sin]]; [[Transgress.md|Transgress]]
+*See also* [[Offense, Offend, Offender.md|Offense, Offend, Offender]]; [[Sin.md|Sin]]; [[Transgress, Transgression.md|Transgress, Transgression]]
 
 he shall bring his *trespass* offering unto the Lord, [[Leviticus 5.6|Leviticus 5:6]].
 

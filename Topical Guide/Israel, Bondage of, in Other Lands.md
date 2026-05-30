@@ -1,6 +1,6 @@
 # Israel, Bondage of, in Other Lands
 
-*See also* [[Bondage, Physical.md|Bondage, Physical]]; [[Israel, Bondage of, in Egypt.md|Israel, Bondage of, in Egypt]]; [[Israel, Deliverance of.md|Israel, Deliverance of]]; [[Slavery.md|Slavery]]
+*See also* [[Bondage, Physical.md|Bondage, Physical]]; [[Israel, Bondage of, in Egypt.md|Israel, Bondage of, in Egypt]]; [[Israel, Deliverance of.md|Israel, Deliverance of]]; [[Slavery, Slave.md|Slavery, Slave]]
 
 king of Assyria … carried them captive to *Assyria*, [[2 Kings 15.29|2 Kings 15:29]].
 

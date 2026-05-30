@@ -1,6 +1,6 @@
 # Meek, Meekness
 
-*See also* [[Contrite Heart.md|Contrite Heart]]; [[Humility.md|Humility]]; [[Poor in Spirit.md|Poor in Spirit]]; [[Teachable.md|Teachable]]
+*See also* [[Contrite Heart.md|Contrite Heart]]; [[Humility, Humble.md|Humility, Humble]]; [[Poor in Spirit.md|Poor in Spirit]]; [[Teachable.md|Teachable]]
 
 Moses was very *meek*, [[Numbers 12.3|Numbers 12:3]].
 

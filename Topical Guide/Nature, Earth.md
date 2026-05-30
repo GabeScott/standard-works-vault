@@ -1,6 +1,6 @@
 # Nature, Earth
 
-*See also* [[Astronomy.md|Astronomy]]; [[Creation.md|Creation]]; [[Nature, Human.md|Nature, Human]]
+*See also* [[Astronomy.md|Astronomy]]; [[Creation, Create.md|Creation, Create]]; [[Nature, Human.md|Nature, Human]]
 
 God created the heaven and the *earth*, [[Genesis 1.1|Genesis 1:1]] ([[Moses 2.1|Moses 2:1]]; [[Abraham 4.1|Abraham 4:1]]).
 

@@ -1,6 +1,6 @@
 # Might
 
-*See also* [[Arm.md|Arm]]; [[Authority.md|Authority]]; [[Mightily.md|Mightily]]; [[Mighty.md|Mighty]]; [[Power.md|Power]]; [[Strength.md|Strength]]
+*See also* [[Arm.md|Arm]]; [[Authority.md|Authority]]; [[Mightily.md|Mightily]]; [[Mighty, Mightier.md|Mighty, Mightier]]; [[Power, Powerful.md|Power, Powerful]]; [[Strength.md|Strength]]
 
 Reuben, thou art my firstborn, my *might*, [[Genesis 49.3|Genesis 49:3]].
 

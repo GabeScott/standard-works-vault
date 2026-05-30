@@ -1,6 +1,6 @@
 # Pride
 
-*See also* [[Boast.md|Boast]]; [[Conceit.md|Conceit]]; [[Envy.md|Envy]]; [[Hardheartedness.md|Hardheartedness]]; [[Haughtiness.md|Haughtiness]]
+*See also* [[Boast, Boasting.md|Boast, Boasting]]; [[Conceit.md|Conceit]]; [[Envy, Envious.md|Envy, Envious]]; [[Hardheartedness, Harden, Hardness.md|Hardheartedness, Harden, Hardness]]; [[Haughtiness, Haughty.md|Haughtiness, Haughty]]
 
 I will break the *pride* of your power, [[Leviticus 26.19|Leviticus 26:19]].
 

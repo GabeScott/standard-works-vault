@@ -1,6 +1,6 @@
 # Science
 
-*See also* [[Education.md|Education]]; [[Knowledge.md|Knowledge]]; [[Learn.md|Learn]]; [[Truth.md|Truth]]
+*See also* [[Education.md|Education]]; [[Knowledge.md|Knowledge]]; [[Learn, Learning.md|Learn, Learning]]; [[Truth.md|Truth]]
 
 Children … cunning in knowledge, and understanding *science*, [[Daniel 1.4|Daniel 1:4]].
 

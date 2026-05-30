@@ -1,6 +1,6 @@
 # Opposition
 
-*See also* [[Adversity.md|Adversity]]; [[Probation.md|Probation]]
+*See also* [[Adversity.md|Adversity]]; [[Probation, Probationary.md|Probation, Probationary]]
 
 tree of life … and the tree of *knowledge* of good and evil, [[Genesis 2.9|Genesis 2:9]] ([[Moses 3.9|Moses 3:9]]; [[Abraham 5.9|Abraham 5:9]]).
 

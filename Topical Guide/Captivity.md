@@ -1,6 +1,6 @@
 # Captivity
 
-*See also* [[Bondage, Physical.md|Bondage, Physical]]; [[Bondage, Spiritual.md|Bondage, Spiritual]]; [[Captive.md|Captive]]; [[Israel, Bondage of, in Egypt.md|Israel, Bondage of, in Egypt]]; [[Israel, Bondage of, in Other Lands.md|Israel, Bondage of, in Other Lands]]; [[Israel, Scattering of.md|Israel, Scattering of]]; [[Slavery.md|Slavery]]
+*See also* [[Bondage, Physical.md|Bondage, Physical]]; [[Bondage, Spiritual.md|Bondage, Spiritual]]; [[Captive.md|Captive]]; [[Israel, Bondage of, in Egypt.md|Israel, Bondage of, in Egypt]]; [[Israel, Bondage of, in Other Lands.md|Israel, Bondage of, in Other Lands]]; [[Israel, Scattering of.md|Israel, Scattering of]]; [[Slavery, Slave.md|Slavery, Slave]]
 
 God will turn thy *captivity*, [[Deuteronomy 30.3|Deuteronomy 30:3]].
 

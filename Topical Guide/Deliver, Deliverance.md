@@ -1,6 +1,6 @@
 # Deliver, Deliverance
 
-*See also* [[Israel, Deliverance of.md|Israel, Deliverance of]]; [[Jesus Christ, Redeemer.md|Jesus Christ, Redeemer]]; [[Jesus Christ, Savior.md|Jesus Christ, Savior]]; [[Protection, Divine.md|Protection, Divine]]; [[Redeem.md|Redeem]]; [[Redemption.md|Redemption]]; [[Salvation.md|Salvation]]; [[Save.md|Save]]
+*See also* [[Israel, Deliverance of.md|Israel, Deliverance of]]; [[Jesus Christ, Redeemer.md|Jesus Christ, Redeemer]]; [[Jesus Christ, Savior.md|Jesus Christ, Savior]]; [[Protection, Divine.md|Protection, Divine]]; [[Redeem, Redeemed.md|Redeem, Redeemed]]; [[Redemption.md|Redemption]]; [[Salvation.md|Salvation]]; [[Save.md|Save]]
 
 *Deliver* me … from the hand of my brother, [[Genesis 32.11|Genesis 32:11]].
 

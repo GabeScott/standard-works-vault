@@ -1,6 +1,6 @@
 # Consecration
 
-*See also* [[Anointing.md|Anointing]]; [[Consecrate.md|Consecrate]]; [[Dedication.md|Dedication]]; [[Priesthood, Authority.md|Priesthood, Authority]]; [[Setting Apart.md|Setting Apart]]; [[Zion.md|Zion]]
+*See also* [[Anointing, Anoint.md|Anointing, Anoint]]; [[Consecrate.md|Consecrate]]; [[Dedication, Dedicate.md|Dedication, Dedicate]]; [[Priesthood, Authority.md|Priesthood, Authority]]; [[Setting Apart.md|Setting Apart]]; [[Zion, Sion.md|Zion, Sion]]
 
 had all things *common*, [[Acts 2.44|Acts 2:44]] ([[3 Nephi 26.19|3 Nephi 26:19]]; [[4 Nephi 1.3|4 Nephi 1:3]]).
 

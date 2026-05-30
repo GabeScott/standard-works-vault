@@ -1,6 +1,6 @@
 # Fail
 
-*See also* [[Adversity.md|Adversity]]; [[Despair.md|Despair]]; [[Opposition.md|Opposition]]; [[Perseverance.md|Perseverance]]; [[Test.md|Test]]
+*See also* [[Adversity.md|Adversity]]; [[Despair.md|Despair]]; [[Opposition.md|Opposition]]; [[Perseverance.md|Perseverance]]; [[Test, Try, Prove.md|Test, Try, Prove]]
 
 give you for your cattle, if money *fail*, [[Genesis 47.16|Genesis 47:16]].
 

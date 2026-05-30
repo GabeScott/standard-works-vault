@@ -1,6 +1,6 @@
 # Strife
 
-*See also* [[Battle.md|Battle]]; [[Contention.md|Contention]]; [[Disputations.md|Disputations]]; [[Envy.md|Envy]]; [[Fight.md|Fight]]; [[Reviling.md|Reviling]]; [[Strive.md|Strive]]; [[War.md|War]]
+*See also* [[Battle.md|Battle]]; [[Contention.md|Contention]]; [[Disputations, Dispute.md|Disputations, Dispute]]; [[Envy, Envious.md|Envy, Envious]]; [[Fight, Fought.md|Fight, Fought]]; [[Reviling, Revile.md|Reviling, Revile]]; [[Strive, Strove, Striven.md|Strive, Strove, Striven]]; [[War.md|War]]
 
 Let there be no *strife* … between me and thee, [[Genesis 13.8|Genesis 13:8]].
 

@@ -1,6 +1,6 @@
 # Order
 
-*See also* [[Charge.md|Charge]]; [[Church Organization.md|Church Organization]]; [[Command.md|Command]]; [[Consecration.md|Consecration]]; [[Decree.md|Decree]]; [[Family, Children, Responsibilities toward.md|Family, Children, Responsibilities toward]]; [[Govern.md|Govern]]; [[Law.md|Law]]; [[Ordinance.md|Ordinance]]; [[Peace.md|Peace]]; [[Statute.md|Statute]]; [[Unity.md|Unity]]; [[Zion.md|Zion]]
+*See also* [[Charge.md|Charge]]; [[Church Organization.md|Church Organization]]; [[Command.md|Command]]; [[Consecration.md|Consecration]]; [[Decree.md|Decree]]; [[Family, Children, Responsibilities toward.md|Family, Children, Responsibilities toward]]; [[Govern.md|Govern]]; [[Law.md|Law]]; [[Ordinance.md|Ordinance]]; [[Peace.md|Peace]]; [[Statute.md|Statute]]; [[Unity.md|Unity]]; [[Zion, Sion.md|Zion, Sion]]
 
 seed was in itself, after his *kind*, [[Genesis 1.12|Genesis 1:12]] ([[Genesis 1.24|Genesis 1:24]]; [[Moses 2.12|Moses 2:12]]; [[Abraham 4.12|Abraham 4:12]]).
 

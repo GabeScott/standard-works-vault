@@ -1,6 +1,6 @@
 # Carry, Carried
 
-*See also* [[Bear (verb).md|Bear (verb)]]
+*See also* [[Bear, Bare, Born, Borne.md|Bear, Bare, Born, Borne]]
 
 he *carried* away all his cattle, [[Genesis 31.18|Genesis 31:18]].
 

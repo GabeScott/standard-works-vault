@@ -1,6 +1,6 @@
 # Retain
 
-*See also* [[Keep.md|Keep]]
+*See also* [[Keep, Kept.md|Keep, Kept]]
 
 Dost thou still *retain* thine integrity, [[Job 2.9|Job 2:9]].
 

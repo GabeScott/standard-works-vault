@@ -1,6 +1,6 @@
 # Mocking, Mock, Mocker, Mockery
 
-*See also* [[Persecution.md|Persecution]]; [[Profanity.md|Profanity]]
+*See also* [[Persecution, Persecute.md|Persecution, Persecute]]; [[Profanity.md|Profanity]]
 
 he seemed as one that *mocked* unto his sons in law, [[Genesis 19.14|Genesis 19:14]].
 

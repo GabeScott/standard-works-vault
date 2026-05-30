@@ -1,6 +1,6 @@
 # Joy
 
-*See also* [[Cheerful.md|Cheerful]]; [[Delight.md|Delight]]; [[Gladness.md|Gladness]]; [[Happiness.md|Happiness]]; [[Pleasure.md|Pleasure]]
+*See also* [[Cheerful, Cheerfulness.md|Cheerful, Cheerfulness]]; [[Delight.md|Delight]]; [[Gladness.md|Gladness]]; [[Happiness, Happy.md|Happiness, Happy]]; [[Pleasure.md|Pleasure]]
 
 thou servedst not the Lord thy God with *joyfulness*, [[Deuteronomy 28.47|Deuteronomy 28:47]].
 

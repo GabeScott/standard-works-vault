@@ -1,6 +1,6 @@
 # Service
 
-*See also* [[Commitment.md|Commitment]]; [[Dedication.md|Dedication]]; [[Duty.md|Duty]]; [[Good Works.md|Good Works]]; [[Priesthood, Magnifying Callings within.md|Priesthood, Magnifying Callings within]]; [[Self-Sacrifice.md|Self-Sacrifice]]; [[Servant.md|Servant]]; [[Serve.md|Serve]]; [[Work.md|Work]]; [[Worship.md|Worship]]
+*See also* [[Commitment.md|Commitment]]; [[Dedication, Dedicate.md|Dedication, Dedicate]]; [[Duty.md|Duty]]; [[Good Works.md|Good Works]]; [[Priesthood, Magnifying Callings within.md|Priesthood, Magnifying Callings within]]; [[Self-Sacrifice.md|Self-Sacrifice]]; [[Servant.md|Servant]]; [[Serve.md|Serve]]; [[Work.md|Work]]; [[Worship.md|Worship]]
 
 children of Israel, to do the *service*, [[Numbers 3.8|Numbers 3:8]].
 

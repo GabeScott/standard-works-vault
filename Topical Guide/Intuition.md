@@ -1,3 +1,3 @@
 # Intuition
 
-*See also* [[Guidance, Divine.md|Guidance, Divine]]; [[Inspiration.md|Inspiration]]; [[Revelation.md|Revelation]]
+*See also* [[Guidance, Divine.md|Guidance, Divine]]; [[Inspiration, Inspire.md|Inspiration, Inspire]]; [[Revelation.md|Revelation]]

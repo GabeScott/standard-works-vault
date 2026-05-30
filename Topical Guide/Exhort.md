@@ -1,6 +1,6 @@
 # Exhort
 
-*See also* [[Exhortation.md|Exhortation]]; [[Warn.md|Warn]]
+*See also* [[Exhortation.md|Exhortation]]; [[Warn, Warnings.md|Warn, Warnings]]
 
 *exhorting* them to continue in the faith, [[Acts 14.22|Acts 14:22]].
 

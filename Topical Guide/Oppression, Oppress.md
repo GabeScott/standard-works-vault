@@ -1,6 +1,6 @@
 # Oppression, Oppress
 
-*See also* [[Affliction.md|Affliction]]; [[Cruelty.md|Cruelty]]; [[Despise.md|Despise]]; [[Injustice.md|Injustice]]; [[Persecution.md|Persecution]]; [[Tribulation.md|Tribulation]]
+*See also* [[Affliction.md|Affliction]]; [[Cruelty, Cruel.md|Cruelty, Cruel]]; [[Despise.md|Despise]]; [[Injustice.md|Injustice]]; [[Persecution, Persecute.md|Persecution, Persecute]]; [[Tribulation.md|Tribulation]]
 
 I have also seen the *oppression* wherewith the Egyptians, [[Exodus 3.9|Exodus 3:9]].
 

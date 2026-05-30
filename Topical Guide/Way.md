@@ -1,6 +1,6 @@
 # Way
 
-*See also* [[Door.md|Door]]; [[Example.md|Example]]; [[Gate.md|Gate]]; [[Highway.md|Highway]]; [[Means.md|Means]]; [[Path.md|Path]]; [[Road.md|Road]]; [[Street.md|Street]]; [[Walk.md|Walk]]; [[Wayside.md|Wayside]]
+*See also* [[Door.md|Door]]; [[Example, Ensample.md|Example, Ensample]]; [[Gate.md|Gate]]; [[Highway.md|Highway]]; [[Means.md|Means]]; [[Path.md|Path]]; [[Road.md|Road]]; [[Street.md|Street]]; [[Walk.md|Walk]]; [[Wayside.md|Wayside]]
 
 flaming sword … to keep the *way* of the tree of life, [[Genesis 3.24|Genesis 3:24]] ([[Alma 42.2|Alma 42:2]]; [[Moses 4.31|Moses 4:31]]).
 

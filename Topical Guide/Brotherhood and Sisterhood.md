@@ -1,6 +1,6 @@
 # Brotherhood and Sisterhood
 
-*See also* [[Fellowshipping.md|Fellowshipping]]; [[Friendship.md|Friendship]]; [[Neighbor.md|Neighbor]]
+*See also* [[Fellowshipping.md|Fellowshipping]]; [[Friendship, Friend.md|Friendship, Friend]]; [[Neighbor.md|Neighbor]]
 
 Am I my *brother’s* keeper, [[Genesis 4.9|Genesis 4:9]] ([[Moses 5.34|Moses 5:34]]).
 

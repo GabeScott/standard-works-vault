@@ -1,6 +1,6 @@
 # Charity
 
-*See also* [[Almsgiving.md|Almsgiving]]; [[Benevolence.md|Benevolence]]; [[Compassion.md|Compassion]]; [[Generosity.md|Generosity]]; [[God, Love of.md|God, Love of]]; [[Love.md|Love]]; [[Mercy.md|Mercy]]; [[Poor.md|Poor]]; [[Welfare.md|Welfare]]
+*See also* [[Almsgiving.md|Almsgiving]]; [[Benevolence.md|Benevolence]]; [[Compassion.md|Compassion]]; [[Generosity.md|Generosity]]; [[God, Love of.md|God, Love of]]; [[Love.md|Love]]; [[Mercy, Merciful.md|Mercy, Merciful]]; [[Poor.md|Poor]]; [[Welfare.md|Welfare]]
 
 thou shalt *love* thy neighbour as thyself, [[Leviticus 19.18|Leviticus 19:18]] ([[Matthew 5.43|Matthew 5:43]]; [[Matthew 19.19|Matthew 19:19]]; [[Matthew 22.39|Matthew 22:39]]; [[Mark 12.31|Mark 12:31]]; [[Luke 10.27|Luke 10:27]]; [[Romans 13.9|Romans 13:9]]; [[Galatians 5.14|Galatians 5:14]]; [[3 Nephi 12.43|3 Nephi 12:43]]).
 

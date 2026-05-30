@@ -1,6 +1,6 @@
 # Lowly
 
-*See also* [[Humility.md|Humility]]
+*See also* [[Humility, Humble.md|Humility, Humble]]
 
 he giveth grace unto the *lowly*, [[Proverbs 3.34|Proverbs 3:34]].
 

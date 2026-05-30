@@ -1,6 +1,6 @@
 # Authority
 
-*See also* [[Called of God.md|Called of God]]; [[Delegation of Responsibility.md|Delegation of Responsibility]]; [[Dominion.md|Dominion]]; [[Governments.md|Governments]]; [[Hands, Laying on of.md|Hands, Laying on of]]; [[Jesus Christ, Authority of.md|Jesus Christ, Authority of]]; [[Jesus Christ, Teaching Mode of.md|Jesus Christ, Teaching Mode of]]; [[Leadership.md|Leadership]]; [[Power.md|Power]]; [[Priesthood, Authority.md|Priesthood, Authority]]; [[Priesthood, Keys of.md|Priesthood, Keys of]]; [[Priesthood, Power of.md|Priesthood, Power of]]; [[Reign.md|Reign]]; [[Rule.md|Rule]]; [[Unrighteous Dominion.md|Unrighteous Dominion]]
+*See also* [[Called of God.md|Called of God]]; [[Delegation of Responsibility.md|Delegation of Responsibility]]; [[Dominion.md|Dominion]]; [[Governments.md|Governments]]; [[Hands, Laying on of.md|Hands, Laying on of]]; [[Jesus Christ, Authority of.md|Jesus Christ, Authority of]]; [[Jesus Christ, Teaching Mode of.md|Jesus Christ, Teaching Mode of]]; [[Leadership.md|Leadership]]; [[Power, Powerful.md|Power, Powerful]]; [[Priesthood, Authority.md|Priesthood, Authority]]; [[Priesthood, Keys of.md|Priesthood, Keys of]]; [[Priesthood, Power of.md|Priesthood, Power of]]; [[Reign.md|Reign]]; [[Rule.md|Rule]]; [[Unrighteous Dominion.md|Unrighteous Dominion]]
 
 I have *sent* thee, [[Exodus 3.12|Exodus 3:12]].
 

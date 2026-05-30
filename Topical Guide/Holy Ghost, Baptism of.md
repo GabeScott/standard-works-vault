@@ -1,6 +1,6 @@
 # Holy Ghost, Baptism of
 
-*See also* [[Conversion.md|Conversion]]; [[Holy Ghost, Gift of.md|Holy Ghost, Gift of]]; [[Man, New, Spiritually Reborn.md|Man, New, Spiritually Reborn]]; [[Sanctification.md|Sanctification]]
+*See also* [[Conversion, Convert.md|Conversion, Convert]]; [[Holy Ghost, Gift of.md|Holy Ghost, Gift of]]; [[Man, New, Spiritually Reborn.md|Man, New, Spiritually Reborn]]; [[Sanctification, Sanctify.md|Sanctification, Sanctify]]
 
 *baptize* you with the *Holy Ghost*, and with fire, [[Matthew 3.11|Matthew 3:11]] ([[2 Nephi 31.13|2 Nephi 31:13]]; [[3 Nephi 9.20|3 Nephi 9:20]]; [[3 Nephi 11.35|3 Nephi 11:35]]; [[3 Nephi 12.1|3 Nephi 12:1]]; [[3 Nephi 19.13|3 Nephi 19:13]]; [[D&C 19.31|D&C 19:31]]; [[D&C 33.11|D&C 33:11]]; [[D&C 39.6|D&C 39:6]]; [[Moses 6.66|Moses 6:66]]).
 

@@ -1,6 +1,6 @@
 # Reap
 
-*See also* [[Harvest.md|Harvest]]; [[Reaper.md|Reaper]]; [[Sow.md|Sow]]
+*See also* [[Harvest.md|Harvest]]; [[Reaper.md|Reaper]]; [[Sow, Sown.md|Sow, Sown]]
 
 when ye *reap* the harvest, [[Leviticus 19.9|Leviticus 19:9]] ([[Leviticus 23.22|Leviticus 23:22]]).
 

@@ -1,6 +1,6 @@
 # Slander
 
-*See also* [[Backbiting.md|Backbiting]]; [[Deceit.md|Deceit]]; [[False.md|False]]; [[Gossip.md|Gossip]]; [[Lying.md|Lying]]
+*See also* [[Backbiting.md|Backbiting]]; [[Deceit, Deceive.md|Deceit, Deceive]]; [[False.md|False]]; [[Gossip.md|Gossip]]; [[Lying, Liar, Lie.md|Lying, Liar, Lie]]
 
 they might have matter for an *evil report*, [[Nehemiah 6.13|Nehemiah 6:13]].
 

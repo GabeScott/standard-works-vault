@@ -1,6 +1,6 @@
 # Eternal Life
 
-*See also* [[Earth, Purpose of.md|Earth, Purpose of]]; [[Election.md|Election]]; [[Everlasting.md|Everlasting]]; [[Exaltation.md|Exaltation]]; [[Family, Eternal.md|Family, Eternal]]
+*See also* [[Earth, Purpose of.md|Earth, Purpose of]]; [[Election, Elect.md|Election, Elect]]; [[Everlasting.md|Everlasting]]; [[Exaltation.md|Exaltation]]; [[Family, Eternal.md|Family, Eternal]]
 
 who among us shall dwell with *everlasting* burnings, [[Isaiah 33.14|Isaiah 33:14]].
 

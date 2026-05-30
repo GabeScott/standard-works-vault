@@ -1,6 +1,6 @@
 # Prison
 
-*See also* [[Dungeon.md|Dungeon]]; [[Hell.md|Hell]]; [[Prisoner.md|Prisoner]]; [[Punish.md|Punish]]; [[Salvation for the Dead.md|Salvation for the Dead]]; [[Spirits in Prison.md|Spirits in Prison]]
+*See also* [[Dungeon.md|Dungeon]]; [[Hell.md|Hell]]; [[Prisoner.md|Prisoner]]; [[Punish, Punishment.md|Punish, Punishment]]; [[Salvation for the Dead.md|Salvation for the Dead]]; [[Spirits in Prison.md|Spirits in Prison]]
 
 Joseph’s master … put him into the *prison*, [[Genesis 39.20|Genesis 39:20]].
 

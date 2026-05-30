@@ -1,6 +1,6 @@
 # Sincere, Sincerity
 
-*See also* [[Flatter.md|Flatter]]; [[Guile.md|Guile]]; [[Honesty.md|Honesty]]; [[Integrity.md|Integrity]]
+*See also* [[Flatter, Flattery.md|Flatter, Flattery]]; [[Guile.md|Guile]]; [[Honesty.md|Honesty]]; [[Integrity.md|Integrity]]
 
 fear the Lord, and serve him in *sincerity*, [[Joshua 24.14|Joshua 24:14]].
 

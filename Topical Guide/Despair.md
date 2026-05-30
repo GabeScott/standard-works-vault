@@ -1,6 +1,6 @@
 # Despair
 
-*See also* [[Mourning.md|Mourning]]; [[Sorrow.md|Sorrow]]
+*See also* [[Mourning, Mourn.md|Mourning, Mourn]]; [[Sorrow.md|Sorrow]]
 
 Let the day *perish* wherein I was born, [[Job 3.3|Job 3:3]].
 

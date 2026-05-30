@@ -1,6 +1,6 @@
 # Flatter, Flattery
 
-*See also* [[Hypocrisy.md|Hypocrisy]]; [[Sincere.md|Sincere]]
+*See also* [[Hypocrisy, Hypocrite.md|Hypocrisy, Hypocrite]]; [[Sincere, Sincerity.md|Sincere, Sincerity]]
 
 speaketh *flattery* to his friends, [[Job 17.5|Job 17:5]].
 

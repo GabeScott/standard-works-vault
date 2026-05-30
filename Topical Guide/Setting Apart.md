@@ -1,6 +1,6 @@
 # Setting Apart
 
-*See also* [[Consecrate.md|Consecrate]]; [[Consecration.md|Consecration]]; [[Ordinance.md|Ordinance]]; [[Separation.md|Separation]]
+*See also* [[Consecrate.md|Consecrate]]; [[Consecration.md|Consecration]]; [[Ordinance.md|Ordinance]]; [[Separation, Separate.md|Separation, Separate]]
 
 law of the Nazarite … for his *separation*, [[Numbers 6.21|Numbers 6:21]].
 

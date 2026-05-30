@@ -1,6 +1,6 @@
 # Lay, Laid
 
-*See also* [[Hands, Laying on of.md|Hands, Laying on of]]; [[Lie.md|Lie]]
+*See also* [[Hands, Laying on of.md|Hands, Laying on of]]; [[Lie, Lay, Lain.md|Lie, Lay, Lain]]
 
 Abraham took the wood … and *laid* it upon Isaac, [[Genesis 22.6|Genesis 22:6]] ([[Genesis 22.9|Genesis 22:9]]).
 

@@ -1,6 +1,6 @@
 # Responsibility
 
-*See also* [[Accountability.md|Accountability]]; [[Dependability.md|Dependability]]; [[Duty.md|Duty]]; [[Leadership.md|Leadership]]; [[Marriage, Fatherhood.md|Marriage, Fatherhood]]; [[Marriage, Motherhood.md|Marriage, Motherhood]]; [[Steadfastness.md|Steadfastness]]; [[Stewardship.md|Stewardship]]
+*See also* [[Accountability.md|Accountability]]; [[Dependability.md|Dependability]]; [[Duty.md|Duty]]; [[Leadership.md|Leadership]]; [[Marriage, Fatherhood.md|Marriage, Fatherhood]]; [[Marriage, Motherhood.md|Marriage, Motherhood]]; [[Steadfastness, Steadfast.md|Steadfastness, Steadfast]]; [[Stewardship, Steward.md|Stewardship, Steward]]
 
 taking upon us the *responsibility*, [[Jacob 1.19|Jacob 1:19]].
 

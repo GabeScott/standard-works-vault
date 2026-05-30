@@ -1,6 +1,6 @@
 # Humility, Humble
 
-*See also* [[Contrite Heart.md|Contrite Heart]]; [[Meek.md|Meek]]; [[Poor in Spirit.md|Poor in Spirit]]; [[Submissiveness.md|Submissiveness]]; [[Teachable.md|Teachable]]
+*See also* [[Contrite Heart.md|Contrite Heart]]; [[Meek, Meekness.md|Meek, Meekness]]; [[Poor in Spirit.md|Poor in Spirit]]; [[Submissiveness, Submit.md|Submissiveness, Submit]]; [[Teachable.md|Teachable]]
 
 thou refuse to *humble* thyself before me, [[Exodus 10.3|Exodus 10:3]].
 

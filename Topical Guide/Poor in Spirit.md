@@ -1,6 +1,6 @@
 # Poor in Spirit
 
-*See also* [[Meek.md|Meek]]
+*See also* [[Meek, Meekness.md|Meek, Meekness]]
 
 Blessed are the *poor in spirit*, [[Matthew 5.3|Matthew 5:3]] ([[Luke 6.20|Luke 6:20]]).
 

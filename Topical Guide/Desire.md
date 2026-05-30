@@ -1,6 +1,6 @@
 # Desire
 
-*See also* [[Covet.md|Covet]]; [[Motivations.md|Motivations]]; [[Purpose.md|Purpose]]
+*See also* [[Covet, Covetousness.md|Covet, Covetousness]]; [[Motivations.md|Motivations]]; [[Purpose.md|Purpose]]
 
 tree to be *desired* to make one wise, [[Genesis 3.6|Genesis 3:6]] ([[Moses 4.12|Moses 4:12]]).
 

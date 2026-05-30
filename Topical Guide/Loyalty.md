@@ -1,6 +1,6 @@
 # Loyalty
 
-*See also* [[Faithfulness.md|Faithfulness]]; [[Obedience.md|Obedience]]; [[Steadfastness.md|Steadfastness]]; [[Trustworthiness.md|Trustworthiness]]
+*See also* [[Faithfulness.md|Faithfulness]]; [[Obedience, Obedient, Obey.md|Obedience, Obedient, Obey]]; [[Steadfastness, Steadfast.md|Steadfastness, Steadfast]]; [[Trustworthiness.md|Trustworthiness]]
 
 they shall *keep* the way of the Lord, [[Genesis 18.19|Genesis 18:19]].
 

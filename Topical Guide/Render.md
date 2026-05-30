@@ -1,6 +1,6 @@
 # Render
 
-*See also* [[Good Works.md|Good Works]]; [[Recompence.md|Recompence]]
+*See also* [[Good Works.md|Good Works]]; [[Recompence, Recompense.md|Recompence, Recompense]]
 
 Lord *render* to every man his righteousness, [[1 Samuel 26.23|1 Samuel 26:23]].
 

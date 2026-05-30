@@ -1,6 +1,6 @@
 # Build, Built
 
-*See also* [[Edification.md|Edification]]
+*See also* [[Edification, Edify.md|Edification, Edify]]
 
 let us *build* us a city and a tower, [[Genesis 11.4|Genesis 11:4]].
 

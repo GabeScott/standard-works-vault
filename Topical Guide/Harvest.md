@@ -1,6 +1,6 @@
 # Harvest
 
-*See also* [[Good Works.md|Good Works]]; [[Missionary Work.md|Missionary Work]]; [[Reap.md|Reap]]; [[Sow.md|Sow]]
+*See also* [[Good Works.md|Good Works]]; [[Missionary Work.md|Missionary Work]]; [[Reap.md|Reap]]; [[Sow, Sown.md|Sow, Sown]]
 
 seedtime and *harvest* … shall not cease, [[Genesis 8.22|Genesis 8:22]].
 

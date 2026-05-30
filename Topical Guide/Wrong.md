@@ -1,6 +1,6 @@
 # Wrong
 
-*See also* [[False.md|False]]; [[Injustice.md|Injustice]]; [[Lying.md|Lying]]
+*See also* [[False.md|False]]; [[Injustice.md|Injustice]]; [[Lying, Liar, Lie.md|Lying, Liar, Lie]]
 
 do no *wrong*, do no violence to the stranger, [[Jeremiah 22.3|Jeremiah 22:3]].
 

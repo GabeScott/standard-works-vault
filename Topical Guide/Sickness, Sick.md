@@ -1,6 +1,6 @@
 # Sickness, Sick
 
-*See also* [[Administrations to the Sick.md|Administrations to the Sick]]; [[Disease.md|Disease]]; [[Heal.md|Heal]]; [[Health.md|Health]]; [[Infirmity.md|Infirmity]]; [[Leprosy.md|Leprosy]]
+*See also* [[Administrations to the Sick.md|Administrations to the Sick]]; [[Disease, Diseased.md|Disease, Diseased]]; [[Heal, Healing.md|Heal, Healing]]; [[Health.md|Health]]; [[Infirmity.md|Infirmity]]; [[Leprosy, Leper, Leprous.md|Leprosy, Leper, Leprous]]
 
 will take *sickness* away from the midst of thee, [[Exodus 23.25|Exodus 23:25]] ([[Deuteronomy 7.15|Deuteronomy 7:15]]).
 

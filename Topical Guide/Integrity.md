@@ -1,6 +1,6 @@
 # Integrity
 
-*See also* [[Honesty.md|Honesty]]; [[Hypocrisy.md|Hypocrisy]]; [[Perfection.md|Perfection]]; [[Righteousness.md|Righteousness]]; [[Sincere.md|Sincere]]; [[Uprightness.md|Uprightness]]
+*See also* [[Honesty.md|Honesty]]; [[Hypocrisy, Hypocrite.md|Hypocrisy, Hypocrite]]; [[Perfection, Perfect, Perfectly.md|Perfection, Perfect, Perfectly]]; [[Righteousness.md|Righteousness]]; [[Sincere, Sincerity.md|Sincere, Sincerity]]; [[Uprightness.md|Uprightness]]
 
 in the *integrity* of my heart … have I done this, [[Genesis 20.5|Genesis 20:5]].
 

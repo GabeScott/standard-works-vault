@@ -1,6 +1,6 @@
 # Foreordination
 
-*See also* [[Called of God.md|Called of God]]; [[Council in Heaven.md|Council in Heaven]]; [[Election.md|Election]]; [[Jesus Christ, Authority of.md|Jesus Christ, Authority of]]; [[Jesus Christ, Foreordained.md|Jesus Christ, Foreordained]]; [[Man, Antemortal Existence of.md|Man, Antemortal Existence of]]
+*See also* [[Called of God.md|Called of God]]; [[Council in Heaven.md|Council in Heaven]]; [[Election, Elect.md|Election, Elect]]; [[Jesus Christ, Authority of.md|Jesus Christ, Authority of]]; [[Jesus Christ, Foreordained.md|Jesus Christ, Foreordained]]; [[Man, Antemortal Existence of.md|Man, Antemortal Existence of]]
 
 he set the *bounds* of the people, [[Deuteronomy 32.8|Deuteronomy 32:8]].
 

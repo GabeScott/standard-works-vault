@@ -1,3 +1,3 @@
 # Priority
 
-*See also* [[Commitment.md|Commitment]]; [[Dedication.md|Dedication]]; [[Objectives.md|Objectives]]
+*See also* [[Commitment.md|Commitment]]; [[Dedication, Dedicate.md|Dedication, Dedicate]]; [[Objectives.md|Objectives]]

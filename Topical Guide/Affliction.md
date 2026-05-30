@@ -1,6 +1,6 @@
 # Affliction
 
-*See also* [[Adversity.md|Adversity]]; [[Afflicted.md|Afflicted]]; [[Anguish.md|Anguish]]; [[Chastening.md|Chastening]]; [[Distress.md|Distress]]; [[Oppression.md|Oppression]]; [[Persecution.md|Persecution]]; [[Perseverance.md|Perseverance]]; [[Sorrow.md|Sorrow]]; [[Suffering.md|Suffering]]; [[Tribulation.md|Tribulation]]; [[Trouble.md|Trouble]]
+*See also* [[Adversity.md|Adversity]]; [[Afflicted.md|Afflicted]]; [[Anguish.md|Anguish]]; [[Chastening.md|Chastening]]; [[Distress.md|Distress]]; [[Oppression, Oppress.md|Oppression, Oppress]]; [[Persecution, Persecute.md|Persecution, Persecute]]; [[Perseverance.md|Perseverance]]; [[Sorrow.md|Sorrow]]; [[Suffering.md|Suffering]]; [[Tribulation.md|Tribulation]]; [[Trouble.md|Trouble]]
 
 seen the *affliction* of my people, [[Exodus 3.7|Exodus 3:7]].
 

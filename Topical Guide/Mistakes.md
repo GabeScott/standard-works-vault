@@ -1,3 +1,3 @@
 # Mistakes
 
-*See also* [[Guilt.md|Guilt]]; [[Repent.md|Repent]]; [[Sin.md|Sin]]; [[Transgress.md|Transgress]]
+*See also* [[Guilt, Guilty.md|Guilt, Guilty]]; [[Repent, Repentance.md|Repent, Repentance]]; [[Sin.md|Sin]]; [[Transgress, Transgression.md|Transgress, Transgression]]

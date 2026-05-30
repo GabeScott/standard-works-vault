@@ -1,3 +1,3 @@
 # Endurance
 
-*See also* [[Adversity.md|Adversity]]; [[Endure.md|Endure]]; [[Obedience.md|Obedience]]; [[Perseverance.md|Perseverance]]; [[Steadfastness.md|Steadfastness]]
+*See also* [[Adversity.md|Adversity]]; [[Endure.md|Endure]]; [[Obedience, Obedient, Obey.md|Obedience, Obedient, Obey]]; [[Perseverance.md|Perseverance]]; [[Steadfastness, Steadfast.md|Steadfastness, Steadfast]]

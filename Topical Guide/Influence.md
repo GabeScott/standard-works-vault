@@ -1,6 +1,6 @@
 # Influence
 
-*See also* [[Example.md|Example]]; [[Peer Influence.md|Peer Influence]]
+*See also* [[Example, Ensample.md|Example, Ensample]]; [[Peer Influence.md|Peer Influence]]
 
 No power or *influence* can or ought to be maintained, [[D&C 121.41|D&C 121:41]].
 

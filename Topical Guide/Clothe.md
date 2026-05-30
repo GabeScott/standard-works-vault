@@ -1,6 +1,6 @@
 # Clothe
 
-*See also* [[Array.md|Array]]; [[Gird.md|Gird]]
+*See also* [[Array.md|Array]]; [[Gird, Girt.md|Gird, Girt]]
 
 he hath *clothed* me with the garments of salvation, [[Isaiah 61.10|Isaiah 61:10]].
 

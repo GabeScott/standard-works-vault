@@ -1,6 +1,6 @@
 # Gladness
 
-*See also* [[Cheerful.md|Cheerful]]; [[Delight.md|Delight]]; [[Glad.md|Glad]]; [[Happiness.md|Happiness]]; [[Joy.md|Joy]]; [[Pleasure.md|Pleasure]]
+*See also* [[Cheerful, Cheerfulness.md|Cheerful, Cheerfulness]]; [[Delight.md|Delight]]; [[Glad.md|Glad]]; [[Happiness, Happy.md|Happiness, Happy]]; [[Joy.md|Joy]]; [[Pleasure.md|Pleasure]]
 
 anointed thee with the oil of *gladness*, [[Psalms 45.7|Psalms 45:7]] ([[Hebrews 1.9|Hebrews 1:9]]).
 

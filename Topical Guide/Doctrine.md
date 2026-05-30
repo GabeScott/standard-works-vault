@@ -1,6 +1,6 @@
 # Doctrine
 
-*See also* [[Gospel.md|Gospel]]; [[Teaching.md|Teaching]]; [[Truth.md|Truth]]
+*See also* [[Gospel.md|Gospel]]; [[Teaching, Teach, Taught.md|Teaching, Teach, Taught]]; [[Truth.md|Truth]]
 
 My *doctrine* shall drop as the rain, [[Deuteronomy 32.2|Deuteronomy 32:2]].
 

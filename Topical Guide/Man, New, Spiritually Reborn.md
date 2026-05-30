@@ -1,6 +1,6 @@
 # Man, New, Spiritually Reborn
 
-*See also* [[Conversion.md|Conversion]]; [[Holy Ghost, Baptism of.md|Holy Ghost, Baptism of]]; [[Sanctification.md|Sanctification]]
+*See also* [[Conversion, Convert.md|Conversion, Convert]]; [[Holy Ghost, Baptism of.md|Holy Ghost, Baptism of]]; [[Sanctification, Sanctify.md|Sanctification, Sanctify]]
 
 God gave him another *heart*, [[1 Samuel 10.9|1 Samuel 10:9]].
 

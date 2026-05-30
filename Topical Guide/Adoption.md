@@ -1,6 +1,6 @@
 # Adoption
 
-*See also* [[Abrahamic Covenant.md|Abrahamic Covenant]]; [[Election.md|Election]]; [[Israel, Mission of.md|Israel, Mission of]]; [[Sons and Daughters of God.md|Sons and Daughters of God]]; [[BD Adoption.md|BD Adoption]]
+*See also* [[Abrahamic Covenant.md|Abrahamic Covenant]]; [[Election, Elect.md|Election, Elect]]; [[Israel, Mission of.md|Israel, Mission of]]; [[Sons and Daughters of God.md|Sons and Daughters of God]]; [[BD Adoption.md|BD Adoption]]
 
 ye have received the Spirit of *adoption*, [[Romans 8.15|Romans 8:15]].
 

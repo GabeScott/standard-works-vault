@@ -1,6 +1,6 @@
 # Vanity
 
-*See also* [[Apparel.md|Apparel]]; [[Deceit.md|Deceit]]; [[Flatter.md|Flatter]]; [[Foolishness.md|Foolishness]]; [[Haughtiness.md|Haughtiness]]; [[Hypocrisy.md|Hypocrisy]]; [[Pride.md|Pride]]; [[Vain.md|Vain]]
+*See also* [[Apparel.md|Apparel]]; [[Deceit, Deceive.md|Deceit, Deceive]]; [[Flatter, Flattery.md|Flatter, Flattery]]; [[Foolishness.md|Foolishness]]; [[Haughtiness, Haughty.md|Haughtiness, Haughty]]; [[Hypocrisy, Hypocrite.md|Hypocrisy, Hypocrite]]; [[Pride.md|Pride]]; [[Vain.md|Vain]]
 
 they have provoked me to anger with their *vanities*, [[Deuteronomy 32.21|Deuteronomy 32:21]].
 

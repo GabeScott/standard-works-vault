@@ -1,6 +1,6 @@
 # Record Keeping
 
-*See also* [[Write.md|Write]]
+*See also* [[Write, Wrote, Written.md|Write, Wrote, Written]]
 
 Moses *wrote* all the words of the Lord, [[Exodus 24.4|Exodus 24:4]].
 

@@ -1,6 +1,6 @@
 # Tomb
 
-*See also* [[Grave (noun).md|Grave (noun)]]; [[Sepulchre.md|Sepulchre]]
+*See also* [[Grave.md|Grave]]; [[Sepulchre.md|Sepulchre]]
 
 two possessed with devils, coming out of the *tombs*, [[Matthew 8.28|Matthew 8:28]] ([[Mark 5.2|Mark 5:2]]; [[Luke 8.27|Luke 8:27]]).
 

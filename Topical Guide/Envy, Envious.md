@@ -1,6 +1,6 @@
 # Envy, Envious
 
-*See also* [[Covet.md|Covet]]; [[Jealous.md|Jealous]]
+*See also* [[Covet, Covetousness.md|Covet, Covetousness]]; [[Jealous, Jealousy.md|Jealous, Jealousy]]
 
 Rachel *envied* her sister, [[Genesis 30.1|Genesis 30:1]].
 

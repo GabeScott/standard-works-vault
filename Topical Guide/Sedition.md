@@ -1,6 +1,6 @@
 # Sedition
 
-*See also* [[Insurrection.md|Insurrection]]; [[Rebellion.md|Rebellion]]
+*See also* [[Insurrection.md|Insurrection]]; [[Rebellion, Rebel.md|Rebellion, Rebel]]
 
 they have moved *sedition* within the same of old time, [[Ezra 4.15|Ezra 4:15]].
 

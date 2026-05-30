@@ -1,6 +1,6 @@
 # Watchman, Watchmen
 
-*See also* [[Warn.md|Warn]]
+*See also* [[Warn, Warnings.md|Warn, Warnings]]
 
 *watchman* cried, and told the king, [[2 Samuel 18.25|2 Samuel 18:25]].
 

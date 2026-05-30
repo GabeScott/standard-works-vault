@@ -1,6 +1,6 @@
 # Discern
 
-*See also* [[Discernment, Spiritual.md|Discernment, Spiritual]]; [[Judge.md|Judge]]; [[Know.md|Know]]; [[Perceive.md|Perceive]]; [[See.md|See]]
+*See also* [[Discernment, Spiritual.md|Discernment, Spiritual]]; [[Judge.md|Judge]]; [[Know, Knew, Known.md|Know, Knew, Known]]; [[Perceive.md|Perceive]]; [[See, Saw, Seen.md|See, Saw, Seen]]
 
 ye can *discern* the face of the sky, [[Matthew 16.3|Matthew 16:3]] ([[Luke 12.56|Luke 12:56]]).
 

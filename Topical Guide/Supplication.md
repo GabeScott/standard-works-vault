@@ -1,6 +1,6 @@
 # Supplication
 
-*See also* [[Prayer.md|Prayer]]
+*See also* [[Prayer, Pray.md|Prayer, Pray]]
 
 we do not present our *supplications* before thee, [[Daniel 9.18|Daniel 9:18]].
 

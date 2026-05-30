@@ -1,6 +1,6 @@
 # Reconciliation, Reconcile
 
-*See also* [[Forgive.md|Forgive]]; [[Jesus Christ, Atonement through.md|Jesus Christ, Atonement through]]; [[Jesus Christ, Mission of.md|Jesus Christ, Mission of]]; [[Jesus Christ, Redeemer.md|Jesus Christ, Redeemer]]; [[Propitiation.md|Propitiation]]; [[Sacrifice.md|Sacrifice]]
+*See also* [[Forgive, Forgiveness.md|Forgive, Forgiveness]]; [[Jesus Christ, Atonement through.md|Jesus Christ, Atonement through]]; [[Jesus Christ, Mission of.md|Jesus Christ, Mission of]]; [[Jesus Christ, Redeemer.md|Jesus Christ, Redeemer]]; [[Propitiation.md|Propitiation]]; [[Sacrifice.md|Sacrifice]]
 
 him that hateth thee … thou shalt surely *help*, [[Exodus 23.5|Exodus 23:5]].
 

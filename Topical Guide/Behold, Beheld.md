@@ -1,6 +1,6 @@
 # Behold, Beheld
 
-*See also* [[Look.md|Look]]; [[Observe.md|Observe]]; [[See.md|See]]
+*See also* [[Look.md|Look]]; [[Observe.md|Observe]]; [[See, Saw, Seen.md|See, Saw, Seen]]
 
 when he *beheld* the serpent of brass, he lived, [[Numbers 21.9|Numbers 21:9]].
 

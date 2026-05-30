@@ -1,6 +1,6 @@
 # Unbelief, Unbelievers
 
-*See also* [[Doubt.md|Doubt]]; [[Fear of God.md|Fear of God]]; [[Hardheartedness.md|Hardheartedness]]; [[Stiffnecked.md|Stiffnecked]]
+*See also* [[Doubt, Doubtful.md|Doubt, Doubtful]]; [[Fear of God.md|Fear of God]]; [[Hardheartedness, Harden, Hardness.md|Hardheartedness, Harden, Hardness]]; [[Stiffnecked, Stiffneckedness.md|Stiffnecked, Stiffneckedness]]
 
 Moses answered … they will *not believe* me, [[Exodus 4.1|Exodus 4:1]].
 

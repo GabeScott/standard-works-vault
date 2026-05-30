@@ -1,6 +1,6 @@
 # Damnation, Damned
 
-*See also* [[Condemnation.md|Condemnation]]; [[Curse.md|Curse]]; [[Hell.md|Hell]]; [[Punish.md|Punish]]; [[Spirits in Prison.md|Spirits in Prison]]; [[BD Damnation.md|BD Damnation]]
+*See also* [[Condemnation.md|Condemnation]]; [[Curse.md|Curse]]; [[Hell.md|Hell]]; [[Punish, Punishment.md|Punish, Punishment]]; [[Spirits in Prison.md|Spirits in Prison]]; [[BD Damnation.md|BD Damnation]]
 
 ye shall receive the greater *damnation*, [[Matthew 23.14|Matthew 23:14]] ([[Luke 20.47|Luke 20:47]]).
 

@@ -1,6 +1,6 @@
 # Sad
 
-*See also* [[Despair.md|Despair]]; [[Mourning.md|Mourning]]; [[Sorrow.md|Sorrow]]
+*See also* [[Despair.md|Despair]]; [[Mourning, Mourn.md|Mourning, Mourn]]; [[Sorrow.md|Sorrow]]
 
 Joseph … looked upon them, and, behold, they were *sad*, [[Genesis 40.6|Genesis 40:6]].
 

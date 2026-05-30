@@ -1,6 +1,6 @@
 # Homosexual Behavior
 
-*See also* [[Chastity.md|Chastity]]; [[Sexual Immorality.md|Sexual Immorality]]
+*See also* [[Chastity, Chaste.md|Chastity, Chaste]]; [[Sexual Immorality.md|Sexual Immorality]]
 
 bring them out unto us, that we may *know* them, [[Genesis 19.5|Genesis 19:5]].
 

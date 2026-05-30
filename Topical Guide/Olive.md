@@ -1,6 +1,6 @@
 # Olive
 
-*See also* [[Olivet.md|Olivet]]; [[BD Olive tree.md|BD Olive tree]]
+*See also* [[Olivet, Olives, Mount of.md|Olivet, Olives, Mount of]]; [[BD Olive tree.md|BD Olive tree]]
 
 thou, being a wild *olive* tree, wert grafted, [[Romans 11.17|Romans 11:17]].
 

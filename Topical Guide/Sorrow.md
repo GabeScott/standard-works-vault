@@ -1,6 +1,6 @@
 # Sorrow
 
-*See also* [[Adversity.md|Adversity]]; [[Anguish.md|Anguish]]; [[Despair.md|Despair]]; [[Grief.md|Grief]]; [[Misery.md|Misery]]; [[Mourning.md|Mourning]]; [[Pain.md|Pain]]; [[Suffering.md|Suffering]]; [[Tribulation.md|Tribulation]]; [[Trouble.md|Trouble]]
+*See also* [[Adversity.md|Adversity]]; [[Anguish.md|Anguish]]; [[Despair.md|Despair]]; [[Grief.md|Grief]]; [[Misery.md|Misery]]; [[Mourning, Mourn.md|Mourning, Mourn]]; [[Pain.md|Pain]]; [[Suffering.md|Suffering]]; [[Tribulation.md|Tribulation]]; [[Trouble.md|Trouble]]
 
 I will greatly multiply thy *sorrow* and thy conception, [[Genesis 3.16|Genesis 3:16]] ([[Moses 4.22|Moses 4:22]]).
 

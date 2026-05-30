@@ -1,6 +1,6 @@
 # Plead
 
-*See also* [[Ask.md|Ask]]; [[Beg.md|Beg]]; [[Beseech.md|Beseech]]; [[Entreat.md|Entreat]]; [[Petition.md|Petition]]
+*See also* [[Ask.md|Ask]]; [[Beg.md|Beg]]; [[Beseech, Besought.md|Beseech, Besought]]; [[Entreat.md|Entreat]]; [[Petition.md|Petition]]
 
 Will ye *plead* for Baal, [[Judges 6.31|Judges 6:31]].
 

@@ -1,6 +1,6 @@
 # Teaching with the Spirit
 
-*See also* [[Jesus Christ, Teaching Mode of.md|Jesus Christ, Teaching Mode of]]; [[Teaching.md|Teaching]]
+*See also* [[Jesus Christ, Teaching Mode of.md|Jesus Christ, Teaching Mode of]]; [[Teaching, Teach, Taught.md|Teaching, Teach, Taught]]
 
 *Spirit* of the Lord spake by me, [[2 Samuel 23.2|2 Samuel 23:2]].
 

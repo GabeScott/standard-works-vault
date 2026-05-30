@@ -1,6 +1,6 @@
 # Woman, Women
 
-*See also* [[Creation.md|Creation]]; [[Female.md|Female]]; [[Man, Physical Creation of.md|Man, Physical Creation of]]; [[Marriage, Motherhood.md|Marriage, Motherhood]]; [[Marriage, Wives.md|Marriage, Wives]]; [[Prophetess.md|Prophetess]]
+*See also* [[Creation, Create.md|Creation, Create]]; [[Female.md|Female]]; [[Man, Physical Creation of.md|Man, Physical Creation of]]; [[Marriage, Motherhood.md|Marriage, Motherhood]]; [[Marriage, Wives.md|Marriage, Wives]]; [[Prophetess.md|Prophetess]]
 
 male and *female* created he them, [[Genesis 1.27|Genesis 1:27]] ([[Moses 2.27|Moses 2:27]]; [[Moses 6.9|Moses 6:9]]; [[Abraham 4.27|Abraham 4:27]]).
 

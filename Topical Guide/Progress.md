@@ -1,6 +1,6 @@
 # Progress
 
-*See also* [[Godliness.md|Godliness]]; [[Man, Potential to Become like Heavenly Father.md|Man, Potential to Become like Heavenly Father]]; [[Perfection.md|Perfection]]
+*See also* [[Godliness, Godly.md|Godliness, Godly]]; [[Man, Potential to Become like Heavenly Father.md|Man, Potential to Become like Heavenly Father]]; [[Perfection, Perfect, Perfectly.md|Perfection, Perfect, Perfectly]]
 
 church began to fail in its *progress*, [[Alma 4.10|Alma 4:10]].
 

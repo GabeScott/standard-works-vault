@@ -1,6 +1,6 @@
 # Missionary Work
 
-*See also* [[Abrahamic Covenant.md|Abrahamic Covenant]]; [[Fellowshipping.md|Fellowshipping]]; [[Israel, Gathering of.md|Israel, Gathering of]]; [[Israel, Mission of.md|Israel, Mission of]]; [[Mission of Early Saints.md|Mission of Early Saints]]; [[Mission of Latter-day Saints.md|Mission of Latter-day Saints]]; [[Preaching.md|Preaching]]; [[Warn.md|Warn]]; [[Worth of Souls.md|Worth of Souls]]
+*See also* [[Abrahamic Covenant.md|Abrahamic Covenant]]; [[Fellowshipping.md|Fellowshipping]]; [[Israel, Gathering of.md|Israel, Gathering of]]; [[Israel, Mission of.md|Israel, Mission of]]; [[Mission of Early Saints.md|Mission of Early Saints]]; [[Mission of Latter-day Saints.md|Mission of Latter-day Saints]]; [[Preaching, Preach.md|Preaching, Preach]]; [[Warn, Warnings.md|Warn, Warnings]]; [[Worth of Souls.md|Worth of Souls]]
 
 he will *teach* us of his ways, [[Isaiah 2.3|Isaiah 2:3]] ([[Micah 4.2|Micah 4:2]]; [[2 Nephi 12.3|2 Nephi 12:3]]).
 

@@ -1,6 +1,6 @@
 # Cut
 
-*See also* [[Hew.md|Hew]]
+*See also* [[Hew, Hewn.md|Hew, Hewn]]
 
 uncircumcised … shall be *cut* off from his people, [[Genesis 17.14|Genesis 17:14]].
 

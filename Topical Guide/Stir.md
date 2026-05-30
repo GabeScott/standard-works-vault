@@ -1,6 +1,6 @@
 # Stir
 
-*See also* [[Kindle.md|Kindle]]; [[Provoking.md|Provoking]]
+*See also* [[Kindle.md|Kindle]]; [[Provoking, Provoke.md|Provoking, Provoke]]
 
 every one whose heart *stirred* him up, [[Exodus 35.21|Exodus 35:21]].
 

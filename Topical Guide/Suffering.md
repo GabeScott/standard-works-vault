@@ -1,6 +1,6 @@
 # Suffering
 
-*See also* [[Adversity.md|Adversity]]; [[Affliction.md|Affliction]]; [[Anguish.md|Anguish]]; [[Chastening.md|Chastening]]; [[Despair.md|Despair]]; [[Distress.md|Distress]]; [[Forbear.md|Forbear]]; [[Jesus Christ, Redeemer.md|Jesus Christ, Redeemer]]; [[Misery.md|Misery]]; [[Mocking.md|Mocking]]; [[Pain.md|Pain]]; [[Persecution.md|Persecution]]; [[Tribulation.md|Tribulation]]; [[Trouble.md|Trouble]]
+*See also* [[Adversity.md|Adversity]]; [[Affliction.md|Affliction]]; [[Anguish.md|Anguish]]; [[Chastening.md|Chastening]]; [[Despair.md|Despair]]; [[Distress.md|Distress]]; [[Forbear, Forbearance.md|Forbear, Forbearance]]; [[Jesus Christ, Redeemer.md|Jesus Christ, Redeemer]]; [[Misery.md|Misery]]; [[Mocking, Mock, Mocker, Mockery.md|Mocking, Mock, Mocker, Mockery]]; [[Pain.md|Pain]]; [[Persecution, Persecute.md|Persecution, Persecute]]; [[Tribulation.md|Tribulation]]; [[Trouble.md|Trouble]]
 
 smote Job with sore *boils*, [[Job 2.7|Job 2:7]].
 

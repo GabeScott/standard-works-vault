@@ -1,6 +1,6 @@
 # Multiply
 
-*See also* [[Flourish.md|Flourish]]; [[Grow.md|Grow]]; [[Increase.md|Increase]]
+*See also* [[Flourish.md|Flourish]]; [[Grow, Grew, Grown.md|Grow, Grew, Grown]]; [[Increase.md|Increase]]
 
 Be fruitful, and *multiply*, [[Genesis 1.22|Genesis 1:22]] ([[Genesis 1.28|Genesis 1:28]]; [[Genesis 8.17|Genesis 8:17]]; [[Genesis 9.1|Genesis 9:1]]; [[Moses 2.22|Moses 2:22]]; [[Moses 2.28|Moses 2:28]]; [[Abraham 4.22|Abraham 4:22]]).
 

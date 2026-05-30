@@ -1,6 +1,6 @@
 # Holy, Holier, Holiest
 
-*See also* [[Clean.md|Clean]]; [[Hallow.md|Hallow]]; [[Holiness.md|Holiness]]; [[Purity.md|Purity]]
+*See also* [[Clean.md|Clean]]; [[Hallow, Hallowed.md|Hallow, Hallowed]]; [[Holiness.md|Holiness]]; [[Purity, Pure.md|Purity, Pure]]
 
 whereon thou standest is *holy* ground, [[Exodus 3.5|Exodus 3:5]] ([[Joshua 5.15|Joshua 5:15]]; [[Acts 7.33|Acts 7:33]]; [[D&C 115.7|D&C 115:7]]).
 

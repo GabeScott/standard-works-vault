@@ -1,6 +1,6 @@
 # Israelite
 
-*See also* [[Hebrew.md|Hebrew]]; [[Jew.md|Jew]]
+*See also* [[Hebrew.md|Hebrew]]; [[Jew, Jewish.md|Jew, Jewish]]
 
 an *Israelite* indeed, in whom is no guile, [[John 1.47|John 1:47]].
 

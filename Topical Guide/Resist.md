@@ -1,6 +1,6 @@
 # Resist
 
-*See also* [[Hardheartedness.md|Hardheartedness]]; [[Rebellion.md|Rebellion]]; [[Revolt.md|Revolt]]
+*See also* [[Hardheartedness, Harden, Hardness.md|Hardheartedness, Harden, Hardness]]; [[Rebellion, Rebel.md|Rebellion, Rebel]]; [[Revolt.md|Revolt]]
 
 Satan standing at his right hand to *resist* him, [[Zechariah 3.1|Zechariah 3:1]].
 

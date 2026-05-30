@@ -1,6 +1,6 @@
 # Leprosy, Leper, Leprous
 
-*See also* [[Sickness.md|Sickness]]; [[BD Leper.md|BD Leper]]; [[BD Leprosy.md|BD Leprosy]]
+*See also* [[Sickness, Sick.md|Sickness, Sick]]; [[BD Leper.md|BD Leper]]; [[BD Leprosy.md|BD Leprosy]]
 
 his hand was *leprous* as snow, [[Exodus 4.6|Exodus 4:6]].
 

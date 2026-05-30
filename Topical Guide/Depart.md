@@ -1,6 +1,6 @@
 # Depart
 
-*See also* [[Go.md|Go]]; [[Leave.md|Leave]]
+*See also* [[Go, Gone.md|Go, Gone]]; [[Leave, Left.md|Leave, Left]]
 
 if thou *depart* to the right hand, [[Genesis 13.9|Genesis 13:9]].
 

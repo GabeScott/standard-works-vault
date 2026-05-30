@@ -1,6 +1,6 @@
 # Yield
 
-*See also* [[Submissiveness.md|Submissiveness]]
+*See also* [[Submissiveness, Submit.md|Submissiveness, Submit]]
 
 it shall not henceforth *yield* unto thee her strength, [[Genesis 4.12|Genesis 4:12]].
 

@@ -1,6 +1,6 @@
 # Contention
 
-*See also* [[Contend.md|Contend]]; [[Darkness, Spiritual.md|Darkness, Spiritual]]; [[Disputations.md|Disputations]]; [[False Doctrine.md|False Doctrine]]; [[False Prophets.md|False Prophets]]; [[Hardheartedness.md|Hardheartedness]]; [[Holy Ghost, Loss of.md|Holy Ghost, Loss of]]; [[Strife.md|Strife]]
+*See also* [[Contend.md|Contend]]; [[Darkness, Spiritual.md|Darkness, Spiritual]]; [[Disputations, Dispute.md|Disputations, Dispute]]; [[False Doctrine.md|False Doctrine]]; [[False Prophets.md|False Prophets]]; [[Hardheartedness, Harden, Hardness.md|Hardheartedness, Harden, Hardness]]; [[Holy Ghost, Loss of.md|Holy Ghost, Loss of]]; [[Strife.md|Strife]]
 
 Let there be no *strife*, [[Genesis 13.8|Genesis 13:8]].
 

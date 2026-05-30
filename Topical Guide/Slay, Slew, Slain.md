@@ -1,6 +1,6 @@
 # Slay, Slew, Slain
 
-*See also* [[Kill.md|Kill]]; [[Murder.md|Murder]]; [[Slaughter.md|Slaughter]]
+*See also* [[Kill.md|Kill]]; [[Murder, Murderer.md|Murder, Murderer]]; [[Slaughter.md|Slaughter]]
 
 Cain rose up against Abel … and *slew* him, [[Genesis 4.8|Genesis 4:8]] ([[Moses 5.32|Moses 5:32]]).
 

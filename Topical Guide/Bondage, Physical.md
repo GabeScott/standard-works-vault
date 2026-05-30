@@ -1,6 +1,6 @@
 # Bondage, Physical
 
-*See also* [[Israel, Bondage of, in Egypt.md|Israel, Bondage of, in Egypt]]; [[Israel, Bondage of, in Other Lands.md|Israel, Bondage of, in Other Lands]]; [[Slavery.md|Slavery]]
+*See also* [[Israel, Bondage of, in Egypt.md|Israel, Bondage of, in Egypt]]; [[Israel, Bondage of, in Other Lands.md|Israel, Bondage of, in Other Lands]]; [[Slavery, Slave.md|Slavery, Slave]]
 
 break his *yoke* from off thy neck, [[Genesis 27.40|Genesis 27:40]].
 

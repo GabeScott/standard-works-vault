@@ -1,6 +1,6 @@
 # Heaven
 
-*See also* [[Astronomy.md|Astronomy]]; [[Celestial Glory.md|Celestial Glory]]; [[Creation.md|Creation]]; [[God, Works of.md|God, Works of]]; [[Kingdom of God, in Heaven.md|Kingdom of God, in Heaven]]; [[Paradise.md|Paradise]]; [[Telestial Glory.md|Telestial Glory]]; [[Terrestrial Glory.md|Terrestrial Glory]]; [[BD Heaven.md|BD Heaven]]
+*See also* [[Astronomy.md|Astronomy]]; [[Celestial Glory.md|Celestial Glory]]; [[Creation, Create.md|Creation, Create]]; [[God, Works of.md|God, Works of]]; [[Kingdom of God, in Heaven.md|Kingdom of God, in Heaven]]; [[Paradise, Paradisiacal.md|Paradise, Paradisiacal]]; [[Telestial Glory.md|Telestial Glory]]; [[Terrestrial Glory.md|Terrestrial Glory]]; [[BD Heaven.md|BD Heaven]]
 
 In the beginning God created the *heaven*, [[Genesis 1.1|Genesis 1:1]] ([[Moses 2.1|Moses 2:1]]).
 

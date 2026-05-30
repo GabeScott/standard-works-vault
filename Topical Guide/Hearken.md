@@ -1,6 +1,6 @@
 # Hearken
 
-*See also* [[Hear.md|Hear]]; [[Obedience.md|Obedience]]
+*See also* [[Hear, Heard.md|Hear, Heard]]; [[Obedience, Obedient, Obey.md|Obedience, Obedient, Obey]]
 
 they shall *hearken* to thy voice, [[Exodus 3.18|Exodus 3:18]].
 

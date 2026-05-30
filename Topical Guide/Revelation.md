@@ -1,6 +1,6 @@
 # Revelation
 
-*See also* [[Dream.md|Dream]]; [[God, Access to.md|God, Access to]]; [[God, Privilege of Seeing.md|God, Privilege of Seeing]]; [[Guidance, Divine.md|Guidance, Divine]]; [[Inspiration.md|Inspiration]]; [[Prophecy.md|Prophecy]]; [[Reveal.md|Reveal]]; [[Scriptures to Come Forth.md|Scriptures to Come Forth]]; [[Testimony.md|Testimony]]; [[Vision.md|Vision]]; [[BD Revelation.md|BD Revelation]]; [[BD Revelation of John.md|BD Revelation of John]]
+*See also* [[Dream.md|Dream]]; [[God, Access to.md|God, Access to]]; [[God, Privilege of Seeing.md|God, Privilege of Seeing]]; [[Guidance, Divine.md|Guidance, Divine]]; [[Inspiration, Inspire.md|Inspiration, Inspire]]; [[Prophecy.md|Prophecy]]; [[Reveal.md|Reveal]]; [[Scriptures to Come Forth.md|Scriptures to Come Forth]]; [[Testimony.md|Testimony]]; [[Vision.md|Vision]]; [[BD Revelation.md|BD Revelation]]; [[BD Revelation of John.md|BD Revelation of John]]
 
 God hath *shewed* thee all this, [[Genesis 41.39|Genesis 41:39]].
 

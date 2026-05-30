@@ -1,3 +1,3 @@
 # Theft
 
-*See also* [[Stealing.md|Stealing]]
+*See also* [[Stealing, Stolen.md|Stealing, Stolen]]
