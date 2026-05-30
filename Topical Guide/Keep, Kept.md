@@ -1,6 +1,6 @@
 # Keep, Kept
 
-*See also* [[Obedience.md|Obedience]]; [[Observe.md|Observe]]; [[Retain.md|Retain]]
+*See also* [[Obedience, Obedient, Obey.md|Obedience, Obedient, Obey]]; [[Observe.md|Observe]]; [[Retain.md|Retain]]
 
 garden of Eden to dress it and to *keep* it, [[Genesis 2.15|Genesis 2:15]] ([[Moses 3.15|Moses 3:15]]).
 

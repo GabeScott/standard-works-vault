@@ -1,6 +1,6 @@
 # Seal
 
-*See also* [[Sealing.md|Sealing]]
+*See also* [[Sealing, Sealed.md|Sealing, Sealed]]
 
 wrote letters … and sealed them with his *seal*, [[1 Kings 21.8|1 Kings 21:8]].
 

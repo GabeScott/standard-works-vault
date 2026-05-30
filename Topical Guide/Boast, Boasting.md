@@ -1,6 +1,6 @@
 # Boast, Boasting
 
-*See also* [[Haughtiness.md|Haughtiness]]; [[Pride.md|Pride]]
+*See also* [[Haughtiness, Haughty.md|Haughtiness, Haughty]]; [[Pride.md|Pride]]
 
 Let not him … *boast* himself, [[1 Kings 20.11|1 Kings 20:11]].
 

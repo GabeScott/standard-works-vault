@@ -1,6 +1,6 @@
 # Honorable
 
-*See also* [[Honor.md|Honor]]; [[Noble.md|Noble]]; [[Worthiness.md|Worthiness]]
+*See also* [[Honor.md|Honor]]; [[Noble.md|Noble]]; [[Worthiness, Worthy.md|Worthiness, Worthy]]
 
 His work is *honourable* and glorious, [[Psalms 111.3|Psalms 111:3]].
 

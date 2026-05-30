@@ -1,6 +1,6 @@
 # Perseverance
 
-*See also* [[Dedication.md|Dedication]]; [[Diligence.md|Diligence]]; [[Endure.md|Endure]]; [[Steadfastness.md|Steadfastness]]
+*See also* [[Dedication, Dedicate.md|Dedication, Dedicate]]; [[Diligence, Diligent, Diligently.md|Diligence, Diligent, Diligently]]; [[Endure.md|Endure]]; [[Steadfastness, Steadfast.md|Steadfastness, Steadfast]]
 
 still he holdeth fast his *integrity*, [[Job 2.3|Job 2:3]].
 

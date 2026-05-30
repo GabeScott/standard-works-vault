@@ -1,6 +1,6 @@
 # Change
 
-*See also* [[Alter.md|Alter]]; [[Conversion.md|Conversion]]; [[God, Eternal Nature of.md|God, Eternal Nature of]]; [[Man, New, Spiritually Reborn.md|Man, New, Spiritually Reborn]]; [[Sanctification.md|Sanctification]]
+*See also* [[Alter.md|Alter]]; [[Conversion, Convert.md|Conversion, Convert]]; [[God, Eternal Nature of.md|God, Eternal Nature of]]; [[Man, New, Spiritually Reborn.md|Man, New, Spiritually Reborn]]; [[Sanctification, Sanctify.md|Sanctification, Sanctify]]
 
 that sweareth to his own hurt, and *changeth* not, [[Psalms 15.4|Psalms 15:4]].
 

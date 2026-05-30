@@ -1,6 +1,6 @@
 # Accountability
 
-*See also* [[Account.md|Account]]; [[Accountability, Age of.md|Accountability, Age of]]; [[Baptism, Qualifications for.md|Baptism, Qualifications for]]; [[Good Works.md|Good Works]]; [[Judgment.md|Judgment]]; [[Punish.md|Punish]]; [[Retribution.md|Retribution]]; [[Stewardship.md|Stewardship]]
+*See also* [[Account.md|Account]]; [[Accountability, Age of.md|Accountability, Age of]]; [[Baptism, Qualifications for.md|Baptism, Qualifications for]]; [[Good Works.md|Good Works]]; [[Judgment.md|Judgment]]; [[Punish, Punishment.md|Punish, Punishment]]; [[Retribution.md|Retribution]]; [[Stewardship, Steward.md|Stewardship, Steward]]
 
 visiting the *iniquity* of the fathers upon the children, [[Exodus 20.5|Exodus 20:5]] ([[Exodus 34.7|Exodus 34:7]]; [[Deuteronomy 5.9|Deuteronomy 5:9]]).
 

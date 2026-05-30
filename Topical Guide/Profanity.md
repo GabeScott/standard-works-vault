@@ -1,6 +1,6 @@
 # Profanity
 
-*See also* [[Blaspheme.md|Blaspheme]]; [[Profane.md|Profane]]; [[Swearing.md|Swearing]]; [[Tongue.md|Tongue]]
+*See also* [[Blaspheme, Blasphemous, Blasphemy.md|Blaspheme, Blasphemous, Blasphemy]]; [[Profane.md|Profane]]; [[Swearing, Swear, Sware, Sworn.md|Swearing, Swear, Sware, Sworn]]; [[Tongue.md|Tongue]]
 
 shalt *not take* the name of the Lord thy God in vain, [[Exodus 20.7|Exodus 20:7]] ([[2 Nephi 26.32|2 Nephi 26:32]]; [[Mosiah 13.15|Mosiah 13:15]]; [[D&C 136.21|D&C 136:21]]).
 

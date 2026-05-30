@@ -1,6 +1,6 @@
 # Life, Lives
 
-*See also* [[Book of Life.md|Book of Life]]; [[Breath of Life.md|Breath of Life]]; [[Earth, Purpose of.md|Earth, Purpose of]]; [[Eternal Life.md|Eternal Life]]; [[Immortality.md|Immortality]]; [[Jesus Christ, Atonement through.md|Jesus Christ, Atonement through]]; [[Life, Sanctity of.md|Life, Sanctity of]]; [[Mortality.md|Mortality]]; [[Resurrection.md|Resurrection]]; [[Soul.md|Soul]]; [[Spirit.md|Spirit]]
+*See also* [[Book of Life.md|Book of Life]]; [[Breath of Life.md|Breath of Life]]; [[Earth, Purpose of.md|Earth, Purpose of]]; [[Eternal Life.md|Eternal Life]]; [[Immortality, Immortal.md|Immortality, Immortal]]; [[Jesus Christ, Atonement through.md|Jesus Christ, Atonement through]]; [[Life, Sanctity of.md|Life, Sanctity of]]; [[Mortality.md|Mortality]]; [[Resurrection.md|Resurrection]]; [[Soul.md|Soul]]; [[Spirit.md|Spirit]]
 
 breathed into his nostrils the breath of *life*, [[Genesis 2.7|Genesis 2:7]] ([[Moses 3.7|Moses 3:7]]; [[Abraham 5.7|Abraham 5:7]]).
 

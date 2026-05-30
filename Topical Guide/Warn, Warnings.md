@@ -1,6 +1,6 @@
 # Warn, Warnings
 
-*See also* [[Admonish.md|Admonish]]; [[Prophets, Mission of.md|Prophets, Mission of]]; [[Rebuke.md|Rebuke]]; [[Reproof.md|Reproof]]
+*See also* [[Admonish.md|Admonish]]; [[Prophets, Mission of.md|Prophets, Mission of]]; [[Rebuke.md|Rebuke]]; [[Reproof, Reprove.md|Reproof, Reprove]]
 
 man of God … *warned* him, [[2 Kings 6.10|2 Kings 6:10]].
 

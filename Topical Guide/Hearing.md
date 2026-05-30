@@ -1,6 +1,6 @@
 # Hearing
 
-*See also* [[Hear.md|Hear]]
+*See also* [[Hear, Heard.md|Hear, Heard]]
 
 a famine … of *hearing* the words of the Lord, [[Amos 8.11|Amos 8:11]].
 

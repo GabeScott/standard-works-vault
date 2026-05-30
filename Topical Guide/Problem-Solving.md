@@ -1,6 +1,6 @@
 # Problem-Solving
 
-*See also* [[Faith.md|Faith]]; [[God, Access to.md|God, Access to]]; [[Holy Ghost, Gifts of.md|Holy Ghost, Gifts of]]; [[Prayer.md|Prayer]]; [[Repent.md|Repent]]
+*See also* [[Faith.md|Faith]]; [[God, Access to.md|God, Access to]]; [[Holy Ghost, Gifts of.md|Holy Ghost, Gifts of]]; [[Prayer, Pray.md|Prayer, Pray]]; [[Repent, Repentance.md|Repent, Repentance]]
 
 fools despise wisdom and *instruction*, [[Proverbs 1.7|Proverbs 1:7]].
 

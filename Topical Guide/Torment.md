@@ -1,6 +1,6 @@
 # Torment
 
-*See also* [[Damnation.md|Damnation]]; [[Despair.md|Despair]]; [[Hell.md|Hell]]; [[Sorrow.md|Sorrow]]
+*See also* [[Damnation, Damned.md|Damnation, Damned]]; [[Despair.md|Despair]]; [[Hell.md|Hell]]; [[Sorrow.md|Sorrow]]
 
 thou come hither to *torment* us, [[Matthew 8.29|Matthew 8:29]] ([[Mark 5.7|Mark 5:7]]; [[Luke 8.28|Luke 8:28]]).
 

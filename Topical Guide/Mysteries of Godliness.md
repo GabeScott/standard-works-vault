@@ -1,6 +1,6 @@
 # Mysteries of Godliness
 
-*See also* [[God, Knowledge about.md|God, Knowledge about]]; [[God, Omniscience of.md|God, Omniscience of]]; [[Knowledge.md|Knowledge]]; [[Learn.md|Learn]]; [[Mystery.md|Mystery]]
+*See also* [[God, Knowledge about.md|God, Knowledge about]]; [[God, Omniscience of.md|God, Omniscience of]]; [[Knowledge.md|Knowledge]]; [[Learn, Learning.md|Learn, Learning]]; [[Mystery.md|Mystery]]
 
 *secret* things belong unto the Lord, [[Deuteronomy 29.29|Deuteronomy 29:29]].
 

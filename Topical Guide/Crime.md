@@ -1,3 +1,3 @@
 # Crime
 
-*See also* [[Bribe.md|Bribe]]; [[Evil.md|Evil]]; [[Fraud.md|Fraud]]; [[Murder.md|Murder]]; [[Sin.md|Sin]]; [[Transgress.md|Transgress]]; [[Wickedness.md|Wickedness]]
+*See also* [[Bribe, Bribery.md|Bribe, Bribery]]; [[Evil.md|Evil]]; [[Fraud.md|Fraud]]; [[Murder, Murderer.md|Murder, Murderer]]; [[Sin.md|Sin]]; [[Transgress, Transgression.md|Transgress, Transgression]]; [[Wickedness, Wicked.md|Wickedness, Wicked]]

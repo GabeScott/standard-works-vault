@@ -1,6 +1,6 @@
 # Money
 
-*See also* [[Bribe.md|Bribe]]; [[Debt.md|Debt]]; [[Family, Managing Finances in.md|Family, Managing Finances in]]; [[Mammon.md|Mammon]]; [[Priestcraft.md|Priestcraft]]; [[Riches.md|Riches]]; [[Treasure.md|Treasure]]; [[Wealth.md|Wealth]]; [[BD Money.md|BD Money]]
+*See also* [[Bribe, Bribery.md|Bribe, Bribery]]; [[Debt.md|Debt]]; [[Family, Managing Finances in.md|Family, Managing Finances in]]; [[Mammon.md|Mammon]]; [[Priestcraft.md|Priestcraft]]; [[Riches.md|Riches]]; [[Treasure.md|Treasure]]; [[Wealth.md|Wealth]]; [[BD Money.md|BD Money]]
 
 restore every man’s *money* into his sack, [[Genesis 42.25|Genesis 42:25]].
 

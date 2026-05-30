@@ -1,6 +1,6 @@
 # Stealing, Stolen
 
-*See also* [[Fraud.md|Fraud]]; [[Rob.md|Rob]]; [[Thief.md|Thief]]
+*See also* [[Fraud.md|Fraud]]; [[Rob.md|Rob]]; [[Thief, Thieves.md|Thief, Thieves]]
 
 had *stolen* the images that were her father’s, [[Genesis 31.19|Genesis 31:19]].
 

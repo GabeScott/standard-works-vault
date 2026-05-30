@@ -1,6 +1,6 @@
 # Sacred
 
-*See also* [[Holiness.md|Holiness]]; [[Holy.md|Holy]]; [[Sanctification.md|Sanctification]]; [[Virtue.md|Virtue]]
+*See also* [[Holiness.md|Holiness]]; [[Holy, Holier, Holiest.md|Holy, Holier, Holiest]]; [[Sanctification, Sanctify.md|Sanctification, Sanctify]]; [[Virtue, Virtuous.md|Virtue, Virtuous]]
 
 teach … the difference between the *holy* and profane, [[Ezekiel 44.23|Ezekiel 44:23]].
 

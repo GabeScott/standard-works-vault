@@ -1,6 +1,6 @@
 # Whore, Whoredom
 
-*See also* [[Adulterer.md|Adulterer]]; [[Carnal Mind.md|Carnal Mind]]; [[Filthiness.md|Filthiness]]; [[Fornication.md|Fornication]]; [[Harlot.md|Harlot]]; [[Idolatry.md|Idolatry]]; [[Lust.md|Lust]]; [[Sexual Immorality.md|Sexual Immorality]]
+*See also* [[Adulterer, Adultery.md|Adulterer, Adultery]]; [[Carnal Mind.md|Carnal Mind]]; [[Filthiness, Filthy.md|Filthiness, Filthy]]; [[Fornication.md|Fornication]]; [[Harlot.md|Harlot]]; [[Idolatry, Idol.md|Idolatry, Idol]]; [[Lust.md|Lust]]; [[Sexual Immorality.md|Sexual Immorality]]
 
 land fall to *whoredom*, [[Leviticus 19.29|Leviticus 19:29]].
 

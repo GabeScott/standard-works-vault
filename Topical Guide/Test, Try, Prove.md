@@ -1,6 +1,6 @@
 # Test, Try, Prove
 
-*See also* [[Prove.md|Prove]]; [[Temptation.md|Temptation]]; [[Trial.md|Trial]]; [[Try.md|Try]]
+*See also* [[Prove.md|Prove]]; [[Temptation.md|Temptation]]; [[Trial.md|Trial]]; [[Try, Tried.md|Try, Tried]]
 
 I may *prove* them, whether they will walk in my law, [[Exodus 16.4|Exodus 16:4]].
 

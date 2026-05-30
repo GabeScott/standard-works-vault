@@ -1,6 +1,6 @@
 # Priesthood, Power of
 
-*See also* [[God, Power of.md|God, Power of]]; [[Priesthood, Keys of.md|Priesthood, Keys of]]; [[Sealing.md|Sealing]]
+*See also* [[God, Power of.md|God, Power of]]; [[Priesthood, Keys of.md|Priesthood, Keys of]]; [[Sealing, Sealed.md|Sealing, Sealed]]
 
 he gave them *power* against unclean spirits, [[Matthew 10.1|Matthew 10:1]] ([[Mark 3.15|Mark 3:15]]; [[Luke 10.19|Luke 10:19]]).
 

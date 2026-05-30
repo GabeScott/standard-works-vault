@@ -1,6 +1,6 @@
 # Reign
 
-*See also* [[Authority.md|Authority]]; [[Dominion.md|Dominion]]; [[Power.md|Power]]; [[Rule.md|Rule]]
+*See also* [[Authority.md|Authority]]; [[Dominion.md|Dominion]]; [[Power, Powerful.md|Power, Powerful]]; [[Rule.md|Rule]]
 
 Shalt thou indeed *reign* over us, [[Genesis 37.8|Genesis 37:8]].
 

@@ -1,6 +1,6 @@
 # Salt
 
-*See also* [[Example.md|Example]]; [[BD Dead Sea.md|BD Dead Sea]]; [[BD Salt, Valley of.md|BD Salt, Valley of]]
+*See also* [[Example, Ensample.md|Example, Ensample]]; [[BD Dead Sea.md|BD Dead Sea]]; [[BD Salt, Valley of.md|BD Salt, Valley of]]
 
 she became a pillar of *salt*, [[Genesis 19.26|Genesis 19:26]].
 

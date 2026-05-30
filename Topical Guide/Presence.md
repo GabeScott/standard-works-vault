@@ -1,6 +1,6 @@
 # Presence
 
-*See also* [[God, Presence of.md|God, Presence of]]; [[God, Privilege of Seeing.md|God, Privilege of Seeing]]; [[Present (adjective, adverb).md|Present (adjective, adverb)]]
+*See also* [[God, Presence of.md|God, Presence of]]; [[God, Privilege of Seeing.md|God, Privilege of Seeing]]; [[Present.md|Present]]
 
 Cain went out from the *presence* of the Lord, [[Genesis 4.16|Genesis 4:16]] ([[Moses 5.41|Moses 5:41]]).
 

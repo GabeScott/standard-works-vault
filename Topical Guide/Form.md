@@ -1,6 +1,6 @@
 # Form
 
-*See also* [[Creation.md|Creation]]; [[Fashion.md|Fashion]]; [[Make.md|Make]]; [[Shape.md|Shape]]
+*See also* [[Creation, Create.md|Creation, Create]]; [[Fashion.md|Fashion]]; [[Make, Made.md|Make, Made]]; [[Shape.md|Shape]]
 
 earth was without *form*, [[Genesis 1.2|Genesis 1:2]] ([[Moses 2.2|Moses 2:2]]).
 

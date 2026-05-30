@@ -1,6 +1,6 @@
 # Love
 
-*See also* [[Affection.md|Affection]]; [[Benevolence.md|Benevolence]]; [[Brotherhood and Sisterhood.md|Brotherhood and Sisterhood]]; [[Charity.md|Charity]]; [[Family, Love within.md|Family, Love within]]; [[Fellowshipping.md|Fellowshipping]]; [[Friendship.md|Friendship]]; [[God, Love of.md|God, Love of]]; [[Grace.md|Grace]]; [[Kindness.md|Kindness]]; [[Marriage, Continuing Courtship in.md|Marriage, Continuing Courtship in]]; [[Neighbor.md|Neighbor]]
+*See also* [[Affection.md|Affection]]; [[Benevolence.md|Benevolence]]; [[Brotherhood and Sisterhood.md|Brotherhood and Sisterhood]]; [[Charity.md|Charity]]; [[Family, Love within.md|Family, Love within]]; [[Fellowshipping.md|Fellowshipping]]; [[Friendship, Friend.md|Friendship, Friend]]; [[God, Love of.md|God, Love of]]; [[Grace.md|Grace]]; [[Kindness.md|Kindness]]; [[Marriage, Continuing Courtship in.md|Marriage, Continuing Courtship in]]; [[Neighbor.md|Neighbor]]
 
 thine only son Isaac, whom thou *lovest*, [[Genesis 22.2|Genesis 22:2]].
 

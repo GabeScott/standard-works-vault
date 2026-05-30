@@ -1,6 +1,6 @@
 # Shame
 
-*See also* [[Abase.md|Abase]]; [[Dishonor.md|Dishonor]]; [[Guilt.md|Guilt]]; [[Reproach.md|Reproach]]
+*See also* [[Abase.md|Abase]]; [[Dishonor.md|Dishonor]]; [[Guilt, Guilty.md|Guilt, Guilty]]; [[Reproach.md|Reproach]]
 
 they were both naked … and were not *ashamed*, [[Genesis 2.25|Genesis 2:25]] ([[Moses 3.25|Moses 3:25]]; [[Abraham 5.19|Abraham 5:19]]).
 

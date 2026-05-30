@@ -1,6 +1,6 @@
 # Blindness
 
-*See also* [[Bondage, Spiritual.md|Bondage, Spiritual]]; [[Darkness, Spiritual.md|Darkness, Spiritual]]; [[Deceit.md|Deceit]]; [[Evil.md|Evil]]; [[Ignorance.md|Ignorance]]; [[Sight.md|Sight]]; [[Spiritual Blindness.md|Spiritual Blindness]]; [[BD Blindness.md|BD Blindness]]; [[BD Darkness.md|BD Darkness]]
+*See also* [[Bondage, Spiritual.md|Bondage, Spiritual]]; [[Darkness, Spiritual.md|Darkness, Spiritual]]; [[Deceit, Deceive.md|Deceit, Deceive]]; [[Evil.md|Evil]]; [[Ignorance, Ignorant.md|Ignorance, Ignorant]]; [[Sight.md|Sight]]; [[Spiritual Blindness.md|Spiritual Blindness]]; [[BD Blindness.md|BD Blindness]]; [[BD Darkness.md|BD Darkness]]
 
 they smote the men … with *blindness*, [[Genesis 19.11|Genesis 19:11]].
 

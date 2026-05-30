@@ -1,6 +1,6 @@
 # Reward
 
-*See also* [[Abundant Life.md|Abundant Life]]; [[Blessing.md|Blessing]]; [[Bribe.md|Bribe]]; [[Glory.md|Glory]]; [[God, Justice of.md|God, Justice of]]; [[Good Works.md|Good Works]]; [[Heaven.md|Heaven]]; [[Hire.md|Hire]]; [[Inheritance.md|Inheritance]]; [[Judgment, the Last.md|Judgment, the Last]]; [[Justice.md|Justice]]; [[Retribution.md|Retribution]]; [[Wages.md|Wages]]
+*See also* [[Abundant Life.md|Abundant Life]]; [[Blessing.md|Blessing]]; [[Bribe, Bribery.md|Bribe, Bribery]]; [[Glory.md|Glory]]; [[God, Justice of.md|God, Justice of]]; [[Good Works.md|Good Works]]; [[Heaven.md|Heaven]]; [[Hire, Hireling.md|Hire, Hireling]]; [[Inheritance.md|Inheritance]]; [[Judgment, the Last.md|Judgment, the Last]]; [[Justice.md|Justice]]; [[Retribution.md|Retribution]]; [[Wages.md|Wages]]
 
 I am … thy exceeding great *reward*, [[Genesis 15.1|Genesis 15:1]].
 

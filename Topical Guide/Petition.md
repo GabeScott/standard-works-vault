@@ -1,6 +1,6 @@
 # Petition
 
-*See also* [[Ask.md|Ask]]; [[Beg.md|Beg]]; [[Beseech.md|Beseech]]; [[Entreat.md|Entreat]]; [[Plead.md|Plead]]; [[Prayer.md|Prayer]]; [[Request.md|Request]]
+*See also* [[Ask.md|Ask]]; [[Beg.md|Beg]]; [[Beseech, Besought.md|Beseech, Besought]]; [[Entreat.md|Entreat]]; [[Plead.md|Plead]]; [[Prayer, Pray.md|Prayer, Pray]]; [[Request.md|Request]]
 
 I desire one small *petition* of thee, [[1 Kings 2.20|1 Kings 2:20]].
 

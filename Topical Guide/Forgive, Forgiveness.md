@@ -1,6 +1,6 @@
 # Forgive, Forgiveness
 
-*See also* [[Benevolence.md|Benevolence]]; [[Confession.md|Confession]]; [[Forbear.md|Forbear]]; [[Jesus Christ, Atonement through.md|Jesus Christ, Atonement through]]; [[Remission of Sins.md|Remission of Sins]]
+*See also* [[Benevolence.md|Benevolence]]; [[Confession.md|Confession]]; [[Forbear, Forbearance.md|Forbear, Forbearance]]; [[Jesus Christ, Atonement through.md|Jesus Christ, Atonement through]]; [[Remission of Sins.md|Remission of Sins]]
 
 say unto Joseph, *Forgive*, [[Genesis 50.17|Genesis 50:17]].
 

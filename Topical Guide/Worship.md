@@ -1,6 +1,6 @@
 # Worship
 
-*See also* [[Assembly for Worship.md|Assembly for Worship]]; [[Church.md|Church]]; [[Idolatry.md|Idolatry]]; [[Meetings.md|Meetings]]; [[Praise.md|Praise]]; [[Serve.md|Serve]]; [[Service.md|Service]]
+*See also* [[Assembly for Worship.md|Assembly for Worship]]; [[Church.md|Church]]; [[Idolatry, Idol.md|Idolatry, Idol]]; [[Meetings.md|Meetings]]; [[Praise.md|Praise]]; [[Serve.md|Serve]]; [[Service.md|Service]]
 
 I and the lad will go yonder and *worship*, [[Genesis 22.5|Genesis 22:5]].
 

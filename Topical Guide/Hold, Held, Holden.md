@@ -1,6 +1,6 @@
 # Hold, Held, Holden
 
-*See also* [[Keep.md|Keep]]
+*See also* [[Keep, Kept.md|Keep, Kept]]
 
 Lord will not *hold* him guiltless, [[Exodus 20.7|Exodus 20:7]] ([[Deuteronomy 5.11|Deuteronomy 5:11]]; [[Mosiah 13.15|Mosiah 13:15]]).
 

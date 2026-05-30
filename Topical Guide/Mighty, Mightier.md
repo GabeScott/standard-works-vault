@@ -1,6 +1,6 @@
 # Mighty, Mightier
 
-*See also* [[Great.md|Great]]
+*See also* [[Great, Greater, Greatest.md|Great, Greater, Greatest]]
 
 Nimrod: he began to be a *mighty* one, [[Genesis 10.8|Genesis 10:8]].
 

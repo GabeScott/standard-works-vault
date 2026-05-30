@@ -1,6 +1,6 @@
 # Separation, Separate
 
-*See also* [[Abrahamic Covenant.md|Abrahamic Covenant]]; [[Consecrate.md|Consecrate]]; [[Divide.md|Divide]]; [[Marriage, Interfaith.md|Marriage, Interfaith]]; [[Part.md|Part]]; [[Peculiar People.md|Peculiar People]]; [[Portion.md|Portion]]; [[Sanctification.md|Sanctification]]; [[Setting Apart.md|Setting Apart]]
+*See also* [[Abrahamic Covenant.md|Abrahamic Covenant]]; [[Consecrate.md|Consecrate]]; [[Divide.md|Divide]]; [[Marriage, Interfaith.md|Marriage, Interfaith]]; [[Part.md|Part]]; [[Peculiar People.md|Peculiar People]]; [[Portion.md|Portion]]; [[Sanctification, Sanctify.md|Sanctification, Sanctify]]; [[Setting Apart.md|Setting Apart]]
 
 so shall we be *separated*, I and thy people, [[Exodus 33.16|Exodus 33:16]].
 

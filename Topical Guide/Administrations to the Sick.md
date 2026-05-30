@@ -1,6 +1,6 @@
 # Administrations to the Sick
 
-*See also* [[Death, Power over.md|Death, Power over]]; [[Faith.md|Faith]]; [[Hands, Laying on of.md|Hands, Laying on of]]; [[Holy Ghost, Gifts of.md|Holy Ghost, Gifts of]]; [[Miracle.md|Miracle]]; [[Sickness.md|Sickness]]
+*See also* [[Death, Power over.md|Death, Power over]]; [[Faith.md|Faith]]; [[Hands, Laying on of.md|Hands, Laying on of]]; [[Holy Ghost, Gifts of.md|Holy Ghost, Gifts of]]; [[Miracle.md|Miracle]]; [[Sickness, Sick.md|Sickness, Sick]]
 
 lay thy *hand* upon her, [[Matthew 9.18|Matthew 9:18]] ([[Mark 5.23|Mark 5:23]]).
 

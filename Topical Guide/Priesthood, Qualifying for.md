@@ -1,6 +1,6 @@
 # Priesthood, Qualifying for
 
-*See also* [[Worthiness.md|Worthiness]]
+*See also* [[Worthiness, Worthy.md|Worthiness, Worthy]]
 
 It *appertaineth* not unto thee, Uzziah, to burn incense, [[2 Chronicles 26.18|2 Chronicles 26:18]].
 

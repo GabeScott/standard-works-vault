@@ -1,6 +1,6 @@
 # Pattern
 
-*See also* [[Example.md|Example]]; [[Form.md|Form]]; [[Image.md|Image]]
+*See also* [[Example, Ensample.md|Example, Ensample]]; [[Form.md|Form]]; [[Image.md|Image]]
 
 after the *pattern* of the tabernacle, and the *pattern* of all the instruments, [[Exodus 25.9|Exodus 25:9]].
 

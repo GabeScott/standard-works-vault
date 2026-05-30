@@ -1,6 +1,6 @@
 # Jesus Christ, Taking the Name of
 
-*See also* [[Blaspheme.md|Blaspheme]]; [[Profanity.md|Profanity]]; [[Swearing.md|Swearing]]
+*See also* [[Blaspheme, Blasphemous, Blasphemy.md|Blaspheme, Blasphemous, Blasphemy]]; [[Profanity.md|Profanity]]; [[Swearing, Swear, Sware, Sworn.md|Swearing, Swear, Sware, Sworn]]
 
 in his *name* shall the Gentiles trust, [[Matthew 12.21|Matthew 12:21]].
 

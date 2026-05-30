@@ -1,6 +1,6 @@
 # Prudence, Prudent
 
-*See also* [[Modesty.md|Modesty]]; [[Understanding.md|Understanding]]; [[Wisdom.md|Wisdom]]; [[Wise.md|Wise]]
+*See also* [[Modesty.md|Modesty]]; [[Understanding.md|Understanding]]; [[Wisdom.md|Wisdom]]; [[Wise, Wiser.md|Wise, Wiser]]
 
 son of Jesse … is … *prudent* in matters, [[1 Samuel 16.18|1 Samuel 16:18]].
 

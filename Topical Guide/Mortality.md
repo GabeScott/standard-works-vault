@@ -1,6 +1,6 @@
 # Mortality
 
-*See also* [[Flesh and Blood.md|Flesh and Blood]]; [[Man, Natural, Not Spiritually Reborn.md|Man, Natural, Not Spiritually Reborn]]; [[Man, New, Spiritually Reborn.md|Man, New, Spiritually Reborn]]; [[Man, Physical Creation of.md|Man, Physical Creation of]]; [[Man, Potential to Become like Heavenly Father.md|Man, Potential to Become like Heavenly Father]]; [[Probation.md|Probation]]; [[World.md|World]]
+*See also* [[Flesh and Blood.md|Flesh and Blood]]; [[Man, Natural, Not Spiritually Reborn.md|Man, Natural, Not Spiritually Reborn]]; [[Man, New, Spiritually Reborn.md|Man, New, Spiritually Reborn]]; [[Man, Physical Creation of.md|Man, Physical Creation of]]; [[Man, Potential to Become like Heavenly Father.md|Man, Potential to Become like Heavenly Father]]; [[Probation, Probationary.md|Probation, Probationary]]; [[World.md|World]]
 
 thou shalt surely *die*, [[Genesis 2.17|Genesis 2:17]] ([[Moses 3.17|Moses 3:17]]).
 

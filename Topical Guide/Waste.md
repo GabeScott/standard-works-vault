@@ -1,6 +1,6 @@
 # Waste
 
-*See also* [[Desolate.md|Desolate]]; [[Desolation.md|Desolation]]; [[Idleness.md|Idleness]]; [[Ruin.md|Ruin]]
+*See also* [[Desolate.md|Desolate]]; [[Desolation.md|Desolation]]; [[Idleness, Idle, Idler.md|Idleness, Idle, Idler]]; [[Ruin.md|Ruin]]
 
 your strength shall be *spent* in vain, [[Leviticus 26.20|Leviticus 26:20]].
 

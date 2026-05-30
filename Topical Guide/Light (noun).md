@@ -1,6 +1,6 @@
 # Light [noun]
 
-*See also* [[Brightness.md|Brightness]]; [[Candle.md|Candle]]; [[Discernment, Spiritual.md|Discernment, Spiritual]]; [[Enlighten.md|Enlighten]]; [[Example.md|Example]]; [[God, Glory of.md|God, Glory of]]; [[Intelligence.md|Intelligence]]; [[Israel, Mission of.md|Israel, Mission of]]; [[Jesus Christ, Light of the World.md|Jesus Christ, Light of the World]]; [[Lamp.md|Lamp]]; [[Light of Christ.md|Light of Christ]]; [[Mission of Early Saints.md|Mission of Early Saints]]; [[Mission of Latter-day Saints.md|Mission of Latter-day Saints]]; [[Peculiar People.md|Peculiar People]]; [[Scriptures, Study of.md|Scriptures, Study of]]; [[Shine.md|Shine]]; [[Truth.md|Truth]]
+*See also* [[Brightness.md|Brightness]]; [[Candle.md|Candle]]; [[Discernment, Spiritual.md|Discernment, Spiritual]]; [[Enlighten.md|Enlighten]]; [[Example, Ensample.md|Example, Ensample]]; [[God, Glory of.md|God, Glory of]]; [[Intelligence.md|Intelligence]]; [[Israel, Mission of.md|Israel, Mission of]]; [[Jesus Christ, Light of the World.md|Jesus Christ, Light of the World]]; [[Lamp.md|Lamp]]; [[Light of Christ.md|Light of Christ]]; [[Mission of Early Saints.md|Mission of Early Saints]]; [[Mission of Latter-day Saints.md|Mission of Latter-day Saints]]; [[Peculiar People.md|Peculiar People]]; [[Scriptures, Study of.md|Scriptures, Study of]]; [[Shine, Shone, Shined, Shining.md|Shine, Shone, Shined, Shining]]; [[Truth.md|Truth]]
 
 God said, Let there be *light*, [[Genesis 1.3|Genesis 1:3]] ([[Genesis 1.4|Genesis 1:4]]; [[Genesis 1.16|Genesis 1:16]]; [[Moses 2.16|Moses 2:16]]).
 

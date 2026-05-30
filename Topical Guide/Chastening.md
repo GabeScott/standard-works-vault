@@ -1,6 +1,6 @@
 # Chastening
 
-*See also* [[Affliction.md|Affliction]]; [[Correct.md|Correct]]; [[Correction.md|Correction]]; [[Exhort.md|Exhort]]; [[Family, Children, Responsibilities toward.md|Family, Children, Responsibilities toward]]; [[Punish.md|Punish]]; [[Rebuke.md|Rebuke]]; [[Reproof.md|Reproof]]
+*See also* [[Affliction.md|Affliction]]; [[Correct.md|Correct]]; [[Correction.md|Correction]]; [[Exhort.md|Exhort]]; [[Family, Children, Responsibilities toward.md|Family, Children, Responsibilities toward]]; [[Punish, Punishment.md|Punish, Punishment]]; [[Rebuke.md|Rebuke]]; [[Reproof, Reprove.md|Reproof, Reprove]]
 
 I, will *chastise* you seven times for your sins, [[Leviticus 26.28|Leviticus 26:28]].
 

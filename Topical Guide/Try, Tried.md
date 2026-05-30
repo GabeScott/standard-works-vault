@@ -1,6 +1,6 @@
 # Try, Tried
 
-*See also* [[Examine.md|Examine]]; [[Prove.md|Prove]]; [[Tempt.md|Tempt]]; [[Test.md|Test]]
+*See also* [[Examine.md|Examine]]; [[Prove.md|Prove]]; [[Tempt.md|Tempt]]; [[Test, Try, Prove.md|Test, Try, Prove]]
 
 I will *try* them for thee, [[Judges 7.4|Judges 7:4]].
 

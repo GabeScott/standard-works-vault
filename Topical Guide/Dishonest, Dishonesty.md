@@ -1,6 +1,6 @@
 # Dishonest, Dishonesty
 
-*See also* [[Deceit.md|Deceit]]; [[Honesty.md|Honesty]]
+*See also* [[Deceit, Deceive.md|Deceit, Deceive]]; [[Honesty.md|Honesty]]
 
 I have smitten mine hand at thy *dishonest* gain, [[Ezekiel 22.13|Ezekiel 22:13]].
 

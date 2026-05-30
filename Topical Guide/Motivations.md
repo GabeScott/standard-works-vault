@@ -1,6 +1,6 @@
 # Motivations
 
-*See also* [[Compassion.md|Compassion]]; [[Envy.md|Envy]]; [[Greedily.md|Greedily]]; [[Greediness.md|Greediness]]; [[Greedy.md|Greedy]]; [[Love.md|Love]]; [[Lust.md|Lust]]; [[Objectives.md|Objectives]]; [[Peer Influence.md|Peer Influence]]; [[Slothful.md|Slothful]]
+*See also* [[Compassion.md|Compassion]]; [[Envy, Envious.md|Envy, Envious]]; [[Greedily.md|Greedily]]; [[Greediness.md|Greediness]]; [[Greedy.md|Greedy]]; [[Love.md|Love]]; [[Lust.md|Lust]]; [[Objectives.md|Objectives]]; [[Peer Influence.md|Peer Influence]]; [[Slothful, Slothfulness.md|Slothful, Slothfulness]]
 
 every imagination of the *thoughts* of his heart was only evil, [[Genesis 6.5|Genesis 6:5]] ([[Moses 8.22|Moses 8:22]]).
 

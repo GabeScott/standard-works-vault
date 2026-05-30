@@ -1,6 +1,6 @@
 # Fear
 
-*See also* [[Afraid.md|Afraid]]; [[Courage.md|Courage]]; [[Fearful.md|Fearful]]; [[Fear of God.md|Fear of God]]; [[Tremble.md|Tremble]]
+*See also* [[Afraid.md|Afraid]]; [[Courage, Courageous.md|Courage, Courageous]]; [[Fearful.md|Fearful]]; [[Fear of God.md|Fear of God]]; [[Tremble.md|Tremble]]
 
 *fear* of you … shall be upon every beast, [[Genesis 9.2|Genesis 9:2]].
 

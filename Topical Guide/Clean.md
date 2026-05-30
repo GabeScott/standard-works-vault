@@ -1,6 +1,6 @@
 # Clean
 
-*See also* [[Chastity.md|Chastity]]; [[Cleanliness.md|Cleanliness]]; [[Cleanse.md|Cleanse]]; [[Holy.md|Holy]]; [[Purity.md|Purity]]
+*See also* [[Chastity, Chaste.md|Chastity, Chaste]]; [[Cleanliness.md|Cleanliness]]; [[Cleanse.md|Cleanse]]; [[Holy, Holier, Holiest.md|Holy, Holier, Holiest]]; [[Purity, Pure.md|Purity, Pure]]
 
 Noah … took of every *clean* beast, and of every *clean* fowl, [[Genesis 8.20|Genesis 8:20]].
 

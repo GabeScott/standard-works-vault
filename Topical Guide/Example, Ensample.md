@@ -1,6 +1,6 @@
 # Example, Ensample
 
-*See also* [[Ensign.md|Ensign]]; [[God, the Standard of Righteousness.md|God, the Standard of Righteousness]]; [[Godliness.md|Godliness]]; [[Good Works.md|Good Works]]; [[Israel, Mission of.md|Israel, Mission of]]; [[Jesus Christ, Exemplar.md|Jesus Christ, Exemplar]]; [[Leadership.md|Leadership]]; [[Light (noun).md|Light (noun)]]; [[Mission of Early Saints.md|Mission of Early Saints]]; [[Mission of Latter-day Saints.md|Mission of Latter-day Saints]]; [[Pattern.md|Pattern]]; [[Peculiar People.md|Peculiar People]]
+*See also* [[Ensign.md|Ensign]]; [[God, the Standard of Righteousness.md|God, the Standard of Righteousness]]; [[Godliness, Godly.md|Godliness, Godly]]; [[Good Works.md|Good Works]]; [[Israel, Mission of.md|Israel, Mission of]]; [[Jesus Christ, Exemplar.md|Jesus Christ, Exemplar]]; [[Leadership.md|Leadership]]; [[Light (noun).md|Light (noun)]]; [[Mission of Early Saints.md|Mission of Early Saints]]; [[Mission of Latter-day Saints.md|Mission of Latter-day Saints]]; [[Pattern.md|Pattern]]; [[Peculiar People.md|Peculiar People]]
 
 as for me and my house, we will *serve* the Lord, [[Joshua 24.15|Joshua 24:15]].
 

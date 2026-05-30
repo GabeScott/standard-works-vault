@@ -1,6 +1,6 @@
 # Priesthood, Keys of
 
-*See also* [[Key.md|Key]]; [[Priesthood, Authority.md|Priesthood, Authority]]; [[Priesthood, Power of.md|Priesthood, Power of]]; [[Sealing.md|Sealing]]
+*See also* [[Key.md|Key]]; [[Priesthood, Authority.md|Priesthood, Authority]]; [[Priesthood, Power of.md|Priesthood, Power of]]; [[Sealing, Sealed.md|Sealing, Sealed]]
 
 give unto thee the *keys* of the kingdom, [[Matthew 16.19|Matthew 16:19]].
 

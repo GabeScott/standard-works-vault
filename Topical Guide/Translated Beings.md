@@ -1,6 +1,6 @@
 # Translated Beings
 
-*See also* [[Transfiguration.md|Transfiguration]]
+*See also* [[Transfiguration, Transfigured.md|Transfiguration, Transfigured]]
 
 *Enoch* walked with God: and … God took him, [[Genesis 5.24|Genesis 5:24]] ([[Hebrews 11.5|Hebrews 11:5]]; [[D&C 107.49|D&C 107:49]]).
 

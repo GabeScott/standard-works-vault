@@ -1,6 +1,6 @@
 # Leader
 
-*See also* [[Lead.md|Lead]]; [[Leadership.md|Leadership]]
+*See also* [[Lead, Led.md|Lead, Led]]; [[Leadership.md|Leadership]]
 
 *leaders* of this people cause them to err, [[Isaiah 9.16|Isaiah 9:16]] ([[2 Nephi 19.16|2 Nephi 19:16]]).
 

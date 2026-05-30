@@ -1,6 +1,6 @@
 # Consecrate
 
-*See also* [[Consecration.md|Consecration]]; [[Dedication.md|Dedication]]; [[Hallow.md|Hallow]]; [[Present (verb).md|Present (verb)]]; [[Purification.md|Purification]]; [[Sanctification.md|Sanctification]]
+*See also* [[Consecration.md|Consecration]]; [[Dedication, Dedicate.md|Dedication, Dedicate]]; [[Hallow, Hallowed.md|Hallow, Hallowed]]; [[Present (verb).md|Present (verb)]]; [[Purification, Purify, Purifying.md|Purification, Purify, Purifying]]; [[Sanctification, Sanctify.md|Sanctification, Sanctify]]
 
 *consecrate* them … that they may minister, [[Exodus 28.41|Exodus 28:41]].
 

@@ -1,6 +1,6 @@
 # Peculiar People
 
-*See also* [[Called of God.md|Called of God]]; [[Mission of Latter-day Saints.md|Mission of Latter-day Saints]]; [[Separation.md|Separation]]
+*See also* [[Called of God.md|Called of God]]; [[Mission of Latter-day Saints.md|Mission of Latter-day Saints]]; [[Separation, Separate.md|Separation, Separate]]
 
 ye shall be a *peculiar* treasure unto me, [[Exodus 19.5|Exodus 19:5]].
 

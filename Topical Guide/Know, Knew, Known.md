@@ -1,6 +1,6 @@
 # Know, Knew, Known
 
-*See also* [[Comprehend.md|Comprehend]]; [[Knowledge.md|Knowledge]]; [[Perceive.md|Perceive]]; [[Understand.md|Understand]]
+*See also* [[Comprehend.md|Comprehend]]; [[Knowledge.md|Knowledge]]; [[Perceive.md|Perceive]]; [[Understand, Understood.md|Understand, Understood]]
 
 God doth *know* … ye shall be as gods, *knowing* good and evil, [[Genesis 3.5|Genesis 3:5]] ([[2 Nephi 2.18|2 Nephi 2:18]]; [[Moses 4.11|Moses 4:11]]).
 

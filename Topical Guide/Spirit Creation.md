@@ -1,6 +1,6 @@
 # Spirit Creation
 
-*See also* [[Creation.md|Creation]]; [[Man, Antemortal Existence of.md|Man, Antemortal Existence of]]
+*See also* [[Creation, Create.md|Creation, Create]]; [[Man, Antemortal Existence of.md|Man, Antemortal Existence of]]
 
 every plant of the field *before* it was in the earth, [[Genesis 2.5|Genesis 2:5]] ([[Abraham 5.5|Abraham 5:5]]).
 

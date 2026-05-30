@@ -1,6 +1,6 @@
 # Chastity, Chaste
 
-*See also* [[Adulterer.md|Adulterer]]; [[Clean.md|Clean]]; [[Fornication.md|Fornication]]; [[Holy.md|Holy]]; [[Lust.md|Lust]]; [[Modesty.md|Modesty]]; [[Purity.md|Purity]]; [[Sanctification.md|Sanctification]]; [[Virtue.md|Virtue]]; [[Whore.md|Whore]]
+*See also* [[Adulterer, Adultery.md|Adulterer, Adultery]]; [[Clean.md|Clean]]; [[Fornication.md|Fornication]]; [[Holy, Holier, Holiest.md|Holy, Holier, Holiest]]; [[Lust.md|Lust]]; [[Modesty.md|Modesty]]; [[Purity, Pure.md|Purity, Pure]]; [[Sanctification, Sanctify.md|Sanctification, Sanctify]]; [[Virtue, Virtuous.md|Virtue, Virtuous]]; [[Whore, Whoredom.md|Whore, Whoredom]]
 
 a man … shall *cleave* unto his wife, [[Genesis 2.24|Genesis 2:24]].
 

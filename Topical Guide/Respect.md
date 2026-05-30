@@ -1,6 +1,6 @@
 # Respect
 
-*See also* [[Esteem.md|Esteem]]; [[Family, Love within.md|Family, Love within]]; [[Honor.md|Honor]]; [[Honoring Father and Mother.md|Honoring Father and Mother]]; [[Obedience.md|Obedience]]; [[Reverence.md|Reverence]]
+*See also* [[Esteem.md|Esteem]]; [[Family, Love within.md|Family, Love within]]; [[Honor.md|Honor]]; [[Honoring Father and Mother.md|Honoring Father and Mother]]; [[Obedience, Obedient, Obey.md|Obedience, Obedient, Obey]]; [[Reverence.md|Reverence]]
 
 Lord had *respect* unto Abel, [[Genesis 4.4|Genesis 4:4]] ([[Moses 5.20|Moses 5:20]]).
 

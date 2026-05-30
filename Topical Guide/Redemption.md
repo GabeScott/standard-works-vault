@@ -1,6 +1,6 @@
 # Redemption
 
-*See also* [[Contrite Heart.md|Contrite Heart]]; [[Deliver.md|Deliver]]; [[Israel, Restoration of.md|Israel, Restoration of]]; [[Jesus Christ, Atonement through.md|Jesus Christ, Atonement through]]; [[Jesus Christ, Mission of.md|Jesus Christ, Mission of]]; [[Jesus Christ, Redeemer.md|Jesus Christ, Redeemer]]; [[Jesus Christ, Savior.md|Jesus Christ, Savior]]; [[Ransom.md|Ransom]]; [[Redeem.md|Redeem]]; [[Salvation.md|Salvation]]
+*See also* [[Contrite Heart.md|Contrite Heart]]; [[Deliver, Deliverance.md|Deliver, Deliverance]]; [[Israel, Restoration of.md|Israel, Restoration of]]; [[Jesus Christ, Atonement through.md|Jesus Christ, Atonement through]]; [[Jesus Christ, Mission of.md|Jesus Christ, Mission of]]; [[Jesus Christ, Redeemer.md|Jesus Christ, Redeemer]]; [[Jesus Christ, Savior.md|Jesus Christ, Savior]]; [[Ransom.md|Ransom]]; [[Redeem, Redeemed.md|Redeem, Redeemed]]; [[Salvation.md|Salvation]]
 
 with him is plenteous *redemption*, [[Psalms 130.7|Psalms 130:7]].
 

@@ -1,6 +1,6 @@
 # Deceit, Deceive
 
-*See also* [[Falsehood.md|Falsehood]]; [[Hypocrisy.md|Hypocrisy]]; [[Lie.md|Lie]]
+*See also* [[Falsehood.md|Falsehood]]; [[Hypocrisy, Hypocrite.md|Hypocrisy, Hypocrite]]; [[Lie, Lay, Lain.md|Lie, Lay, Lain]]
 
 your father hath *deceived* me, [[Genesis 31.7|Genesis 31:7]].
 

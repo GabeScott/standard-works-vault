@@ -1,3 +1,3 @@
 # Lives [noun]
 
-*See also* [[Life.md|Life]]
+*See also* [[Life, Lives.md|Life, Lives]]

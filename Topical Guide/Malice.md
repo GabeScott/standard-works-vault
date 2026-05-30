@@ -1,6 +1,6 @@
 # Malice
 
-*See also* [[Avenge.md|Avenge]]; [[Despise.md|Despise]]; [[Grudge.md|Grudge]]; [[Hate.md|Hate]]; [[Injustice.md|Injustice]]; [[Reviling.md|Reviling]]; [[Scorn.md|Scorn]]
+*See also* [[Avenge.md|Avenge]]; [[Despise.md|Despise]]; [[Grudge.md|Grudge]]; [[Hate.md|Hate]]; [[Injustice.md|Injustice]]; [[Reviling, Revile.md|Reviling, Revile]]; [[Scorn, Scornful.md|Scorn, Scornful]]
 
 Being filled with … *maliciousness*, [[Romans 1.29|Romans 1:29]].
 

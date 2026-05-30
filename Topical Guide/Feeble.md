@@ -1,6 +1,6 @@
 # Feeble
 
-*See also* [[Weak.md|Weak]]
+*See also* [[Weak, Weaker.md|Weak, Weaker]]
 
 not one *feeble* person among their tribes, [[Psalms 105.37|Psalms 105:37]].
 

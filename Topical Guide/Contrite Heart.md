@@ -1,6 +1,6 @@
 # Contrite Heart
 
-*See also* [[Humility.md|Humility]]; [[Meek.md|Meek]]; [[Poor in Spirit.md|Poor in Spirit]]; [[Repent.md|Repent]]; [[Teachable.md|Teachable]]
+*See also* [[Humility, Humble.md|Humility, Humble]]; [[Meek, Meekness.md|Meek, Meekness]]; [[Poor in Spirit.md|Poor in Spirit]]; [[Repent, Repentance.md|Repent, Repentance]]; [[Teachable.md|Teachable]]
 
 if then their uncircumcised hearts be *humbled*, [[Leviticus 26.41|Leviticus 26:41]].
 

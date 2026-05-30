@@ -1,6 +1,6 @@
 # Accept
 
-*See also* [[Receive.md|Receive]]; [[Take.md|Take]]
+*See also* [[Receive.md|Receive]]; [[Take, Took, Taken.md|Take, Took, Taken]]
 
 If thou doest well, shalt thou not be *accepted*, [[Genesis 4.7|Genesis 4:7]].
 

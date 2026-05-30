@@ -1,6 +1,6 @@
 # Persecution, Persecute
 
-*See also* [[Adversity.md|Adversity]]; [[Affliction.md|Affliction]]; [[Apostasy of Israel.md|Apostasy of Israel]]; [[Chastening.md|Chastening]]; [[Cruelty.md|Cruelty]]; [[Despise.md|Despise]]; [[Enemies.md|Enemies]]; [[Hate.md|Hate]]; [[Malice.md|Malice]]; [[Oppression.md|Oppression]]; [[Prophets, Rejection of.md|Prophets, Rejection of]]; [[Reviling.md|Reviling]]; [[Suffering.md|Suffering]]; [[Tribulation.md|Tribulation]]
+*See also* [[Adversity.md|Adversity]]; [[Affliction.md|Affliction]]; [[Apostasy of Israel.md|Apostasy of Israel]]; [[Chastening.md|Chastening]]; [[Cruelty, Cruel.md|Cruelty, Cruel]]; [[Despise.md|Despise]]; [[Enemies, Enemy.md|Enemies, Enemy]]; [[Hate.md|Hate]]; [[Malice.md|Malice]]; [[Oppression, Oppress.md|Oppression, Oppress]]; [[Prophets, Rejection of.md|Prophets, Rejection of]]; [[Reviling, Revile.md|Reviling, Revile]]; [[Suffering.md|Suffering]]; [[Tribulation.md|Tribulation]]
 
 The wicked in his pride doth *persecute* the poor, [[Psalms 10.2|Psalms 10:2]].
 

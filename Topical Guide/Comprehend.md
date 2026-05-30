@@ -1,6 +1,6 @@
 # Comprehend
 
-*See also* [[Discernment, Spiritual.md|Discernment, Spiritual]]; [[God, Omniscience of.md|God, Omniscience of]]; [[God, Wisdom of.md|God, Wisdom of]]; [[Know.md|Know]]; [[Perceive.md|Perceive]]; [[Understanding.md|Understanding]]
+*See also* [[Discernment, Spiritual.md|Discernment, Spiritual]]; [[God, Omniscience of.md|God, Omniscience of]]; [[God, Wisdom of.md|God, Wisdom of]]; [[Know, Knew, Known.md|Know, Knew, Known]]; [[Perceive.md|Perceive]]; [[Understanding.md|Understanding]]
 
 darkness *comprehended* it not, [[John 1.5|John 1:5]] ([[D&C 6.21|D&C 6:21]]; [[D&C 10.58|D&C 10:58]]; [[D&C 88.49|D&C 88:49]]).
 

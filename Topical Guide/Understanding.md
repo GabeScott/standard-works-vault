@@ -1,6 +1,6 @@
 # Understanding
 
-*See also* [[Discernment, Spiritual.md|Discernment, Spiritual]]; [[Edification.md|Edification]]; [[Education.md|Education]]; [[God, Omniscience of.md|God, Omniscience of]]; [[God, Wisdom of.md|God, Wisdom of]]; [[Intelligence.md|Intelligence]]; [[Knowledge.md|Knowledge]]; [[Learn.md|Learn]]; [[Prudence.md|Prudence]]; [[Scriptures, Value of.md|Scriptures, Value of]]; [[Study.md|Study]]; [[Truth.md|Truth]]; [[Understand.md|Understand]]; [[Wisdom.md|Wisdom]]
+*See also* [[Discernment, Spiritual.md|Discernment, Spiritual]]; [[Edification, Edify.md|Edification, Edify]]; [[Education.md|Education]]; [[God, Omniscience of.md|God, Omniscience of]]; [[God, Wisdom of.md|God, Wisdom of]]; [[Intelligence.md|Intelligence]]; [[Knowledge.md|Knowledge]]; [[Learn, Learning.md|Learn, Learning]]; [[Prudence, Prudent.md|Prudence, Prudent]]; [[Scriptures, Value of.md|Scriptures, Value of]]; [[Study.md|Study]]; [[Truth.md|Truth]]; [[Understand, Understood.md|Understand, Understood]]; [[Wisdom.md|Wisdom]]
 
 this is your wisdom and your *understanding*, [[Deuteronomy 4.6|Deuteronomy 4:6]].
 

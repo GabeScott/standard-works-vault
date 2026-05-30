@@ -1,6 +1,6 @@
 # Reject
 
-*See also* [[Apostasy of Individuals.md|Apostasy of Individuals]]; [[Apostasy of Israel.md|Apostasy of Israel]]; [[Disobedience.md|Disobedience]]; [[Hate.md|Hate]]; [[Prophets, Rejection of.md|Prophets, Rejection of]]; [[Refuse.md|Refuse]]
+*See also* [[Apostasy of Individuals.md|Apostasy of Individuals]]; [[Apostasy of Israel.md|Apostasy of Israel]]; [[Disobedience, Disobey.md|Disobedience, Disobey]]; [[Hate.md|Hate]]; [[Prophets, Rejection of.md|Prophets, Rejection of]]; [[Refuse.md|Refuse]]
 
 have not *rejected* thee, but they have *rejected* me, [[1 Samuel 8.7|1 Samuel 8:7]].
 

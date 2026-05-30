@@ -1,6 +1,6 @@
 # Sealing, Sealed
 
-*See also* [[Election.md|Election]]; [[Family, Eternal.md|Family, Eternal]]; [[Holy Ghost, Mission of.md|Holy Ghost, Mission of]]; [[Priesthood, Keys of.md|Priesthood, Keys of]]; [[Seal.md|Seal]]
+*See also* [[Election, Elect.md|Election, Elect]]; [[Family, Eternal.md|Family, Eternal]]; [[Holy Ghost, Mission of.md|Holy Ghost, Mission of]]; [[Priesthood, Keys of.md|Priesthood, Keys of]]; [[Seal.md|Seal]]
 
 *key* of the house of David … he shall shut, and none shall open, [[Isaiah 22.22|Isaiah 22:22]].
 

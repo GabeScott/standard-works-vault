@@ -1,6 +1,6 @@
 # Leaven
 
-*See also* [[Example.md|Example]]; [[Jesus Christ, Exemplar.md|Jesus Christ, Exemplar]]; [[BD Leaven.md|BD Leaven]]
+*See also* [[Example, Ensample.md|Example, Ensample]]; [[Jesus Christ, Exemplar.md|Jesus Christ, Exemplar]]; [[BD Leaven.md|BD Leaven]]
 
 Seven days shall ye eat *unleavened* bread, [[Exodus 12.15|Exodus 12:15]].
 

@@ -1,6 +1,6 @@
 # Protection, Divine
 
-*See also* [[Deliver.md|Deliver]]; [[God to Fight Our Battles.md|God to Fight Our Battles]]
+*See also* [[Deliver, Deliverance.md|Deliver, Deliverance]]; [[God to Fight Our Battles.md|God to Fight Our Battles]]
 
 I am thy *shield*, [[Genesis 15.1|Genesis 15:1]] ([[Psalms 3.3|Psalms 3:3]]).
 

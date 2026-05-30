@@ -1,6 +1,6 @@
 # God, Creator
 
-*See also* [[Creation.md|Creation]]; [[Jesus Christ, Creator.md|Jesus Christ, Creator]]; [[Man, Physical Creation of.md|Man, Physical Creation of]]
+*See also* [[Creation, Create.md|Creation, Create]]; [[Jesus Christ, Creator.md|Jesus Christ, Creator]]; [[Man, Physical Creation of.md|Man, Physical Creation of]]
 
 God *created* the heaven and the earth, [[Genesis 1.1|Genesis 1:1]] ([[Moses 2.1|Moses 2:1]]).
 

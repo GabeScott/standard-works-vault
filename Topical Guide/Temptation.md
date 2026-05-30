@@ -1,6 +1,6 @@
 # Temptation
 
-*See also* [[Devil.md|Devil]]; [[Fall of Man.md|Fall of Man]]; [[Jesus Christ, Temptation of.md|Jesus Christ, Temptation of]]; [[Probation.md|Probation]]; [[Tempt.md|Tempt]]; [[Tempter.md|Tempter]]; [[Test.md|Test]]; [[Trial.md|Trial]]
+*See also* [[Devil.md|Devil]]; [[Fall of Man.md|Fall of Man]]; [[Jesus Christ, Temptation of.md|Jesus Christ, Temptation of]]; [[Probation, Probationary.md|Probation, Probationary]]; [[Tempt.md|Tempt]]; [[Tempter.md|Tempter]]; [[Test, Try, Prove.md|Test, Try, Prove]]; [[Trial.md|Trial]]
 
 serpent *beguiled* me, and I did eat, [[Genesis 3.13|Genesis 3:13]] ([[Moses 4.19|Moses 4:19]]).
 

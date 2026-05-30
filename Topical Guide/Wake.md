@@ -1,6 +1,6 @@
 # Wake
 
-*See also* [[Awake.md|Awake]]
+*See also* [[Awake, Awaken.md|Awake, Awaken]]
 
 watchman *waketh* but in vain, [[Psalms 127.1|Psalms 127:1]].
 

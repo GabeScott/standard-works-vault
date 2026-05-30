@@ -1,6 +1,6 @@
 # Reproof, Reprove
 
-*See also* [[Chastening.md|Chastening]]; [[Exhort.md|Exhort]]; [[Holy Ghost, Mission of.md|Holy Ghost, Mission of]]; [[Justice.md|Justice]]; [[Punish.md|Punish]]; [[Rebuke.md|Rebuke]]; [[Reproach.md|Reproach]]; [[Teaching.md|Teaching]]
+*See also* [[Chastening.md|Chastening]]; [[Exhort.md|Exhort]]; [[Holy Ghost, Mission of.md|Holy Ghost, Mission of]]; [[Justice.md|Justice]]; [[Punish, Punishment.md|Punish, Punishment]]; [[Rebuke.md|Rebuke]]; [[Reproach.md|Reproach]]; [[Teaching, Teach, Taught.md|Teaching, Teach, Taught]]
 
 let him *reprove* me, [[Psalms 141.5|Psalms 141:5]].
 

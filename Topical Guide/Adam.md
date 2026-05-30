@@ -1,6 +1,6 @@
 # Adam
 
-*See also* [[Breath of Life.md|Breath of Life]]; [[Creation.md|Creation]]; [[Fall of Man.md|Fall of Man]]; [[Man, Physical Creation of.md|Man, Physical Creation of]]; [[BD Adam.md|BD Adam]]
+*See also* [[Breath of Life.md|Breath of Life]]; [[Creation, Create.md|Creation, Create]]; [[Fall of Man.md|Fall of Man]]; [[Man, Physical Creation of.md|Man, Physical Creation of]]; [[BD Adam.md|BD Adam]]
 
 make *man* in our image, [[Genesis 1.26|Genesis 1:26]].
 

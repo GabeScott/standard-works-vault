@@ -1,6 +1,6 @@
 # Rashness
 
-*See also* [[Haste.md|Haste]]
+*See also* [[Haste, Hasten, Hasty.md|Haste, Hasten, Hasty]]
 
 must we *fetch* you water out of this rock, [[Numbers 20.10|Numbers 20:10]].
 

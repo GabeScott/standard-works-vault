@@ -1,6 +1,6 @@
 # Destroy
 
-*See also* [[Destruction.md|Destruction]]; [[Kill.md|Kill]]; [[Perish.md|Perish]]; [[Slay.md|Slay]]; [[Waste.md|Waste]]
+*See also* [[Destruction.md|Destruction]]; [[Kill.md|Kill]]; [[Perish.md|Perish]]; [[Slay, Slew, Slain.md|Slay, Slew, Slain]]; [[Waste.md|Waste]]
 
 Lord said, I will *destroy* man, [[Genesis 6.7|Genesis 6:7]].
 

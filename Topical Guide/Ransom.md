@@ -1,6 +1,6 @@
 # Ransom
 
-*See also* [[Deliver.md|Deliver]]; [[Redeem.md|Redeem]]; [[Redemption.md|Redemption]]; [[Save.md|Save]]
+*See also* [[Deliver, Deliverance.md|Deliver, Deliverance]]; [[Redeem, Redeemed.md|Redeem, Redeemed]]; [[Redemption.md|Redemption]]; [[Save.md|Save]]
 
 give every man a *ransom* for his soul, [[Exodus 30.12|Exodus 30:12]].
 

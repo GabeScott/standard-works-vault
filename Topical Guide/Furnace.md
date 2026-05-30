@@ -1,6 +1,6 @@
 # Furnace
 
-*See also* [[Fire.md|Fire]]; [[Flame.md|Flame]]; [[Hell.md|Hell]]
+*See also* [[Fire.md|Fire]]; [[Flame, Flaming.md|Flame, Flaming]]; [[Hell.md|Hell]]
 
 brought you forth out of the iron *furnace*, [[Deuteronomy 4.20|Deuteronomy 4:20]].
 

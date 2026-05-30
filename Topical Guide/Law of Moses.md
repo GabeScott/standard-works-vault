@@ -1,6 +1,6 @@
 # Law of Moses
 
-*See also* [[Commandments of God.md|Commandments of God]]; [[God, Law of.md|God, Law of]]; [[Law.md|Law]]; [[Offering.md|Offering]]; [[Sacrifice.md|Sacrifice]]; [[Statute.md|Statute]]; [[BD Law of Moses.md|BD Law of Moses]]
+*See also* [[Commandments of God.md|Commandments of God]]; [[God, Law of.md|God, Law of]]; [[Law.md|Law]]; [[Offering (noun).md|Offering (noun)]]; [[Sacrifice.md|Sacrifice]]; [[Statute.md|Statute]]; [[BD Law of Moses.md|BD Law of Moses]]
 
 teach them ordinances and *laws*, [[Exodus 18.20|Exodus 18:20]].
 

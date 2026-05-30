@@ -1,6 +1,6 @@
 # Lie, Lay, Lain
 
-*See also* [[Lying.md|Lying]]
+*See also* [[Lying, Liar, Lie.md|Lying, Liar, Lie]]
 
 we will *lie* with him, that we may preserve seed, [[Genesis 19.32|Genesis 19:32]].
 

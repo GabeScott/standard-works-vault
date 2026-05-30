@@ -1,3 +1,3 @@
 # Cowardice
 
-*See also* [[Courage.md|Courage]]; [[Fearful.md|Fearful]]
+*See also* [[Courage, Courageous.md|Courage, Courageous]]; [[Fearful.md|Fearful]]

@@ -1,6 +1,6 @@
 # Enlighten
 
-*See also* [[Discernment, Spiritual.md|Discernment, Spiritual]]; [[Edification.md|Edification]]; [[Education.md|Education]]; [[Holy Ghost, Mission of.md|Holy Ghost, Mission of]]; [[Light of Christ.md|Light of Christ]]; [[Shine.md|Shine]]; [[Understanding.md|Understanding]]
+*See also* [[Discernment, Spiritual.md|Discernment, Spiritual]]; [[Edification, Edify.md|Edification, Edify]]; [[Education.md|Education]]; [[Holy Ghost, Mission of.md|Holy Ghost, Mission of]]; [[Light of Christ.md|Light of Christ]]; [[Shine, Shone, Shined, Shining.md|Shine, Shone, Shined, Shining]]; [[Understanding.md|Understanding]]
 
 his eyes were *enlightened*, [[1 Samuel 14.27|1 Samuel 14:27]].
 

@@ -1,6 +1,6 @@
 # Selfishness
 
-*See also* [[Covet.md|Covet]]; [[Greedily.md|Greedily]]; [[Greediness.md|Greediness]]; [[Greedy.md|Greedy]]; [[Lust.md|Lust]]; [[Pride.md|Pride]]
+*See also* [[Covet, Covetousness.md|Covet, Covetousness]]; [[Greedily.md|Greedily]]; [[Greediness.md|Greediness]]; [[Greedy.md|Greedy]]; [[Lust.md|Lust]]; [[Pride.md|Pride]]
 
 elders … departed with the *rewards* of divination in their hand, [[Numbers 22.7|Numbers 22:7]].
 

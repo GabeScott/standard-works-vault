@@ -1,6 +1,6 @@
 # Procrastination, Procrastinate
 
-*See also* [[Apathy.md|Apathy]]; [[Idleness.md|Idleness]]; [[Slothful.md|Slothful]]
+*See also* [[Apathy.md|Apathy]]; [[Idleness, Idle, Idler.md|Idleness, Idle, Idler]]; [[Slothful, Slothfulness.md|Slothful, Slothfulness]]
 
 choose you *this* day whom ye will serve, [[Joshua 24.15|Joshua 24:15]] ([[Moses 6.33|Moses 6:33]]).
 

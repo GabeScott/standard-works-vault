@@ -1,6 +1,6 @@
 # Edification, Edify
 
-*See also* [[Build.md|Build]]; [[Enlighten.md|Enlighten]]; [[Instruction.md|Instruction]]
+*See also* [[Build, Built.md|Build, Built]]; [[Enlighten.md|Enlighten]]; [[Instruction.md|Instruction]]
 
 hear his voice, that he might *instruct* thee, [[Deuteronomy 4.36|Deuteronomy 4:36]].
 

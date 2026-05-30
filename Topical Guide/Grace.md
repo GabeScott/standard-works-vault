@@ -1,6 +1,6 @@
 # Grace
 
-*See also* [[Benevolence.md|Benevolence]]; [[Favor.md|Favor]]; [[God, Mercy of.md|God, Mercy of]]; [[Good Works.md|Good Works]]; [[Grace, Man May Fall from.md|Grace, Man May Fall from]]; [[Gracious.md|Gracious]]; [[Mercy.md|Mercy]]
+*See also* [[Benevolence.md|Benevolence]]; [[Favor, Favored.md|Favor, Favored]]; [[God, Mercy of.md|God, Mercy of]]; [[Good Works.md|Good Works]]; [[Grace, Man May Fall from.md|Grace, Man May Fall from]]; [[Gracious.md|Gracious]]; [[Mercy, Merciful.md|Mercy, Merciful]]
 
 Noah found *grace* in the eyes of the Lord, [[Genesis 6.8|Genesis 6:8]] ([[Moses 8.27|Moses 8:27]]).
 

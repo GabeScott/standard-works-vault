@@ -1,6 +1,6 @@
 # Seek, Sought
 
-*See also* [[Inquire.md|Inquire]]; [[Prayer.md|Prayer]]; [[Search.md|Search]]
+*See also* [[Inquire.md|Inquire]]; [[Prayer, Pray.md|Prayer, Pray]]; [[Search.md|Search]]
 
 *seek* not after your own heart, [[Numbers 15.39|Numbers 15:39]].
 

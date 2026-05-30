@@ -1,6 +1,6 @@
 # Weep, Wept
 
-*See also* [[Cry.md|Cry]]; [[Lament.md|Lament]]; [[Mourning.md|Mourning]]; [[Wail.md|Wail]]
+*See also* [[Cry.md|Cry]]; [[Lament.md|Lament]]; [[Mourning, Mourn.md|Mourning, Mourn]]; [[Wail, Wailing.md|Wail, Wailing]]
 
 Esau ran to meet him … and they *wept*, [[Genesis 33.4|Genesis 33:4]].
 

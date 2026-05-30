@@ -1,6 +1,6 @@
 # Ponder
 
-*See also* [[Meditation.md|Meditation]]; [[Think.md|Think]]
+*See also* [[Meditation, Meditate.md|Meditation, Meditate]]; [[Think, Thought.md|Think, Thought]]
 
 *Ponder* the path of thy feet, [[Proverbs 4.26|Proverbs 4:26]].
 

@@ -1,6 +1,6 @@
 # Trial
 
-*See also* [[Adversity.md|Adversity]]; [[Affliction.md|Affliction]]; [[Earth, Purpose of.md|Earth, Purpose of]]; [[Faith.md|Faith]]; [[Jesus Christ, Trials of.md|Jesus Christ, Trials of]]; [[Opposition.md|Opposition]]; [[Probation.md|Probation]]; [[Test.md|Test]]; [[Tribulation.md|Tribulation]]
+*See also* [[Adversity.md|Adversity]]; [[Affliction.md|Affliction]]; [[Earth, Purpose of.md|Earth, Purpose of]]; [[Faith.md|Faith]]; [[Jesus Christ, Trials of.md|Jesus Christ, Trials of]]; [[Opposition.md|Opposition]]; [[Probation, Probationary.md|Probation, Probationary]]; [[Test, Try, Prove.md|Test, Try, Prove]]; [[Tribulation.md|Tribulation]]
 
 great *trial* of affliction … abounded unto the riches, [[2 Corinthians 8.2|2 Corinthians 8:2]].
 

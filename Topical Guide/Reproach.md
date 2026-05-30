@@ -1,6 +1,6 @@
 # Reproach
 
-*See also* [[Punish.md|Punish]]; [[Shame.md|Shame]]
+*See also* [[Punish, Punishment.md|Punish, Punishment]]; [[Shame.md|Shame]]
 
 God hath taken away my *reproach*, [[Genesis 30.23|Genesis 30:23]].
 

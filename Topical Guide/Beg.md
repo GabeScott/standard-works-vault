@@ -1,6 +1,6 @@
 # Beg
 
-*See also* [[Ask.md|Ask]]; [[Beseech.md|Beseech]]; [[Entreat.md|Entreat]]; [[Petition.md|Petition]]; [[Request.md|Request]]
+*See also* [[Ask.md|Ask]]; [[Beseech, Besought.md|Beseech, Besought]]; [[Entreat.md|Entreat]]; [[Petition.md|Petition]]; [[Request.md|Request]]
 
 his seed *begging* bread, [[Psalms 37.25|Psalms 37:25]].
 

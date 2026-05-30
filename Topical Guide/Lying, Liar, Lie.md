@@ -1,6 +1,6 @@
 # Lying, Liar, Lie
 
-*See also* [[Deceit.md|Deceit]]; [[False.md|False]]; [[False Doctrine.md|False Doctrine]]; [[Flatter.md|Flatter]]; [[Fraud.md|Fraud]]; [[Gossip.md|Gossip]]; [[Honesty.md|Honesty]]; [[Hypocrisy.md|Hypocrisy]]; [[Slander.md|Slander]]
+*See also* [[Deceit, Deceive.md|Deceit, Deceive]]; [[False.md|False]]; [[False Doctrine.md|False Doctrine]]; [[Flatter, Flattery.md|Flatter, Flattery]]; [[Fraud.md|Fraud]]; [[Gossip.md|Gossip]]; [[Honesty.md|Honesty]]; [[Hypocrisy, Hypocrite.md|Hypocrisy, Hypocrite]]; [[Slander.md|Slander]]
 
 If a soul sin … and *lie* unto his neighbour, [[Leviticus 6.2|Leviticus 6:2]].
 

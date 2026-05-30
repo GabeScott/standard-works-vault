@@ -1,6 +1,6 @@
 # god
 
-*See also* [[God.md|God]]; [[Idolatry.md|Idolatry]]; [[Image.md|Image]]
+*See also* [[God.md|God]]; [[Idolatry, Idol.md|Idolatry, Idol]]; [[Image.md|Image]]
 
 Put away the strange *gods*, [[Genesis 35.2|Genesis 35:2]] ([[1 Samuel 7.3|1 Samuel 7:3]]).
 

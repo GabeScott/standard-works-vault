@@ -1,6 +1,6 @@
 # Pleasure
 
-*See also* [[Delight.md|Delight]]; [[Gladness.md|Gladness]]; [[Happiness.md|Happiness]]; [[Joy.md|Joy]]; [[Please.md|Please]]
+*See also* [[Delight.md|Delight]]; [[Gladness.md|Gladness]]; [[Happiness, Happy.md|Happiness, Happy]]; [[Joy.md|Joy]]; [[Please.md|Please]]
 
 not a God that hath *pleasure* in wickedness, [[Psalms 5.4|Psalms 5:4]].
 

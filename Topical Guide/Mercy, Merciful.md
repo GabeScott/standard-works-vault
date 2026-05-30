@@ -1,6 +1,6 @@
 # Mercy, Merciful
 
-*See also* [[Compassion.md|Compassion]]; [[Forgive.md|Forgive]]; [[God, Justice of.md|God, Justice of]]; [[God, Mercy of.md|God, Mercy of]]; [[Grace.md|Grace]]; [[Kindness.md|Kindness]]; [[Love.md|Love]]
+*See also* [[Compassion.md|Compassion]]; [[Forgive, Forgiveness.md|Forgive, Forgiveness]]; [[God, Justice of.md|God, Justice of]]; [[God, Mercy of.md|God, Mercy of]]; [[Grace.md|Grace]]; [[Kindness.md|Kindness]]; [[Love.md|Love]]
 
 shewing *mercy* unto thousands, [[Exodus 20.6|Exodus 20:6]] ([[Deuteronomy 5.10|Deuteronomy 5:10]]).
 

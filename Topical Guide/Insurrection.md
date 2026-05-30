@@ -1,6 +1,6 @@
 # Insurrection
 
-*See also* [[Rebellion.md|Rebellion]]
+*See also* [[Rebellion, Rebel.md|Rebellion, Rebel]]
 
 Barabbas … committed murder in the *insurrection*, [[Mark 15.7|Mark 15:7]].
 

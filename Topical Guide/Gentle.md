@@ -1,6 +1,6 @@
 # Gentle
 
-*See also* [[Gentleness.md|Gentleness]]; [[Gracious.md|Gracious]]; [[Kind.md|Kind]]; [[Meek.md|Meek]]; [[Mercy.md|Mercy]]; [[Tender.md|Tender]]
+*See also* [[Gentleness.md|Gentleness]]; [[Gracious.md|Gracious]]; [[Kind.md|Kind]]; [[Meek, Meekness.md|Meek, Meekness]]; [[Mercy, Merciful.md|Mercy, Merciful]]; [[Tender.md|Tender]]
 
 be *gentle* unto all men, [[2 Timothy 2.24|2 Timothy 2:24]].
 

@@ -1,6 +1,6 @@
 # Cry
 
-*See also* [[Mourning.md|Mourning]]; [[Weep.md|Weep]]
+*See also* [[Mourning, Mourn.md|Mourning, Mourn]]; [[Weep, Wept.md|Weep, Wept]]
 
 voice of thy brother’s blood *crieth* unto me, [[Genesis 4.10|Genesis 4:10]].
 

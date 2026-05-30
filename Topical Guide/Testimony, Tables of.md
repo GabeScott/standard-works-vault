@@ -1,6 +1,6 @@
 # Testimony, Tables of
 
-*See also* [[Covenants.md|Covenants]]; [[Law.md|Law]]; [[Testament.md|Testament]]; [[Testimony.md|Testimony]]; [[Witness.md|Witness]]
+*See also* [[Covenants.md|Covenants]]; [[Law.md|Law]]; [[Testament.md|Testament]]; [[Testimony.md|Testimony]]; [[Witness, Witnesses.md|Witness, Witnesses]]
 
 Aaron laid it up before the *Testimony*, [[Exodus 16.34|Exodus 16:34]].
 

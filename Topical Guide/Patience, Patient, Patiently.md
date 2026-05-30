@@ -1,6 +1,6 @@
 # Patience, Patient, Patiently
 
-*See also* [[Affliction.md|Affliction]]; [[Forbear.md|Forbear]]
+*See also* [[Affliction.md|Affliction]]; [[Forbear, Forbearance.md|Forbear, Forbearance]]
 
 Rest in the Lord, and wait *patiently* for him, [[Psalms 37.7|Psalms 37:7]].
 

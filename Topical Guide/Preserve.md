@@ -1,6 +1,6 @@
 # Preserve
 
-*See also* [[Keep.md|Keep]]; [[Scriptures, Preservation of.md|Scriptures, Preservation of]]
+*See also* [[Keep, Kept.md|Keep, Kept]]; [[Scriptures, Preservation of.md|Scriptures, Preservation of]]
 
 seen God face to face, and my life is *preserved*, [[Genesis 32.30|Genesis 32:30]].
 

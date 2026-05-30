@@ -1,6 +1,6 @@
 # Merry
 
-*See also* [[Glad.md|Glad]]; [[Happiness.md|Happiness]]; [[Joy.md|Joy]]
+*See also* [[Glad.md|Glad]]; [[Happiness, Happy.md|Happiness, Happy]]; [[Joy.md|Joy]]
 
 let thine heart be *merry*, [[1 Kings 21.7|1 Kings 21:7]].
 

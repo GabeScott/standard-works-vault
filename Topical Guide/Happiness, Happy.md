@@ -1,6 +1,6 @@
 # Happiness, Happy
 
-*See also* [[Abundant Life.md|Abundant Life]]; [[Blessed (adjective).md|Blessed (adjective)]]; [[Cheerful.md|Cheerful]]; [[Family, Love within.md|Family, Love within]]; [[Glad.md|Glad]]; [[Gladness.md|Gladness]]; [[Joy.md|Joy]]; [[Merry.md|Merry]]; [[Please.md|Please]]; [[Pleasure.md|Pleasure]]
+*See also* [[Abundant Life.md|Abundant Life]]; [[Blessed.md|Blessed]]; [[Cheerful, Cheerfulness.md|Cheerful, Cheerfulness]]; [[Family, Love within.md|Family, Love within]]; [[Glad.md|Glad]]; [[Gladness.md|Gladness]]; [[Joy.md|Joy]]; [[Merry.md|Merry]]; [[Please.md|Please]]; [[Pleasure.md|Pleasure]]
 
 *Happy* art thou, O Israel, [[Deuteronomy 33.29|Deuteronomy 33:29]].
 

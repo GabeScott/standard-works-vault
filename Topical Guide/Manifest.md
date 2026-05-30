@@ -1,6 +1,6 @@
 # Manifest
 
-*See also* [[Manifestation.md|Manifestation]]; [[Show.md|Show]]
+*See also* [[Manifestation.md|Manifestation]]; [[Show, Shew.md|Show, Shew]]
 
 nothing hid, which shall not be *manifested*, [[Mark 4.22|Mark 4:22]].
 

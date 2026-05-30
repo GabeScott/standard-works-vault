@@ -1,6 +1,6 @@
 # Provocation
 
-*See also* [[Provoking.md|Provoking]]
+*See also* [[Provoking, Provoke.md|Provoking, Provoke]]
 
 Harden not your heart, as in the *provocation*, [[Psalms 95.8|Psalms 95:8]] ([[Hebrews 3.8|Hebrews 3:8]]; [[Hebrews 3.15|Hebrews 3:15]]; [[Jacob 1.7|Jacob 1:7]]).
 

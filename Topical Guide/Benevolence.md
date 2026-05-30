@@ -1,6 +1,6 @@
 # Benevolence
 
-*See also* [[Charity.md|Charity]]; [[Compassion.md|Compassion]]; [[Give.md|Give]]; [[Grace.md|Grace]]; [[Kindness.md|Kindness]]
+*See also* [[Charity.md|Charity]]; [[Compassion.md|Compassion]]; [[Give, Gave, Given.md|Give, Gave, Given]]; [[Grace.md|Grace]]; [[Kindness.md|Kindness]]
 
 I have shewed you *kindness*, [[Joshua 2.12|Joshua 2:12]].
 

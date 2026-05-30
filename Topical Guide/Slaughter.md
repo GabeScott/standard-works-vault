@@ -1,6 +1,6 @@
 # Slaughter
 
-*See also* [[Kill.md|Kill]]; [[Murder.md|Murder]]; [[Slay.md|Slay]]
+*See also* [[Kill.md|Kill]]; [[Murder, Murderer.md|Murder, Murderer]]; [[Slay, Slew, Slain.md|Slay, Slew, Slain]]
 
 counted as sheep for the *slaughter*, [[Psalms 44.22|Psalms 44:22]] ([[Romans 8.36|Romans 8:36]]).
 

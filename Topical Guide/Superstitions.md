@@ -1,6 +1,6 @@
 # Superstitions
 
-*See also* [[Idolatry.md|Idolatry]]; [[Sorcery.md|Sorcery]]
+*See also* [[Idolatry, Idol.md|Idolatry, Idol]]; [[Sorcery.md|Sorcery]]
 
 found *mandrakes* in the field, [[Genesis 30.14|Genesis 30:14]].
 

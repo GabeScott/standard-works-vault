@@ -1,6 +1,6 @@
 # Gracious
 
-*See also* [[Kind.md|Kind]]; [[Mercy.md|Mercy]]
+*See also* [[Kind.md|Kind]]; [[Mercy, Merciful.md|Mercy, Merciful]]
 
 I will hear; for I am *gracious*, [[Exodus 22.27|Exodus 22:27]].
 

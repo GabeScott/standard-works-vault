@@ -1,6 +1,6 @@
 # Smite, Smote, Smitten
 
-*See also* [[Kill.md|Kill]]; [[Strike.md|Strike]]
+*See also* [[Kill.md|Kill]]; [[Strike, Struck, Stricken.md|Strike, Struck, Stricken]]
 
 neither will I again *smite* any more every thing living, [[Genesis 8.21|Genesis 8:21]].
 

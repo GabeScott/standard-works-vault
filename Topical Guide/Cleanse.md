@@ -1,6 +1,6 @@
 # Cleanse
 
-*See also* [[Baptism.md|Baptism]]; [[Clean.md|Clean]]; [[Cleanliness.md|Cleanliness]]; [[Earth, Cleansing of.md|Earth, Cleansing of]]; [[Flood.md|Flood]]; [[Purification.md|Purification]]; [[Sanctification.md|Sanctification]]; [[Wash.md|Wash]]; [[World, End of.md|World, End of]]
+*See also* [[Baptism.md|Baptism]]; [[Clean.md|Clean]]; [[Cleanliness.md|Cleanliness]]; [[Earth, Cleansing of.md|Earth, Cleansing of]]; [[Flood.md|Flood]]; [[Purification, Purify, Purifying.md|Purification, Purify, Purifying]]; [[Sanctification, Sanctify.md|Sanctification, Sanctify]]; [[Wash, Washing.md|Wash, Washing]]; [[World, End of.md|World, End of]]
 
 *cleanse* it, and hallow it from the uncleanness of … Israel, [[Leviticus 16.19|Leviticus 16:19]].
 

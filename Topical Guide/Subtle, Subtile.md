@@ -1,6 +1,6 @@
 # Subtle, Subtile
 
-*See also* [[Subtlety.md|Subtlety]]
+*See also* [[Subtlety, Subtilty.md|Subtlety, Subtilty]]
 
 serpent was more *subtil* than any beast, [[Genesis 3.1|Genesis 3:1]] ([[Moses 4.5|Moses 4:5]]).
 

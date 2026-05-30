@@ -1,6 +1,6 @@
 # Walk
 
-*See also* [[Behave.md|Behave]]; [[Live (verb).md|Live (verb)]]; [[Path.md|Path]]; [[Walking in Darkness.md|Walking in Darkness]]; [[Walking with God.md|Walking with God]]; [[Way.md|Way]]
+*See also* [[Behave.md|Behave]]; [[Live.md|Live]]; [[Path.md|Path]]; [[Walking in Darkness.md|Walking in Darkness]]; [[Walking with God.md|Walking with God]]; [[Way.md|Way]]
 
 heard the voice of the Lord God *walking* in the garden, [[Genesis 3.8|Genesis 3:8]] ([[Moses 4.14|Moses 4:14]]).
 

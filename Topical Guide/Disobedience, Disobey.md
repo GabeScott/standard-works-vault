@@ -1,6 +1,6 @@
 # Disobedience, Disobey
 
-*See also* [[Rebellion.md|Rebellion]]; [[Sin.md|Sin]]; [[Transgress.md|Transgress]]
+*See also* [[Rebellion, Rebel.md|Rebellion, Rebel]]; [[Sin.md|Sin]]; [[Transgress, Transgression.md|Transgress, Transgression]]
 
 because ye would not be *obedient*, [[Deuteronomy 8.20|Deuteronomy 8:20]] ([[Deuteronomy 28.62|Deuteronomy 28:62]]).
 

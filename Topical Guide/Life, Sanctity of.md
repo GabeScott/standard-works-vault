@@ -1,6 +1,6 @@
 # Life, Sanctity of
 
-*See also* [[Birth Control.md|Birth Control]]; [[Murder.md|Murder]]
+*See also* [[Birth Control.md|Birth Control]]; [[Murder, Murderer.md|Murder, Murderer]]
 
 thy brother’s *blood* crieth unto me from the ground, [[Genesis 4.10|Genesis 4:10]] ([[Moses 5.35|Moses 5:35]]).
 

@@ -1,6 +1,6 @@
 # Left [adjective]
 
-*See also* [[Leave.md|Leave]]
+*See also* [[Leave, Left.md|Leave, Left]]
 
 if thou depart to the right hand, then I will go to the *left*, [[Genesis 13.9|Genesis 13:9]].
 

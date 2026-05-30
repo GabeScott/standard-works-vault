@@ -1,6 +1,6 @@
 # Murmuring, Murmur
 
-*See also* [[Disobedience.md|Disobedience]]; [[Disputations.md|Disputations]]; [[Ingratitude.md|Ingratitude]]; [[Rebellion.md|Rebellion]]
+*See also* [[Disobedience, Disobey.md|Disobedience, Disobey]]; [[Disputations, Dispute.md|Disputations, Dispute]]; [[Ingratitude.md|Ingratitude]]; [[Rebellion, Rebel.md|Rebellion, Rebel]]
 
 people *murmured* against Moses, [[Exodus 15.24|Exodus 15:24]].
 

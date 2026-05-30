@@ -1,6 +1,6 @@
 # Lord
 
-*See also* [[God.md|God]]; [[Jesus Christ, Jehovah.md|Jesus Christ, Jehovah]]; [[Jesus Christ, Lord.md|Jesus Christ, Lord]]; [[Jesus Christ, Messiah.md|Jesus Christ, Messiah]]; [[Jesus Christ, Savior.md|Jesus Christ, Savior]]; [[lord.md|lord]]; [[Lord of Hosts.md|Lord of Hosts]]; [[Master.md|Master]]; [[Name of the Lord.md|Name of the Lord]]; [[BD Christ.md|BD Christ]]; [[BD Christ, names of.md|BD Christ, names of]]; [[BD Jehovah.md|BD Jehovah]]
+*See also* [[God.md|God]]; [[Jesus Christ, Jehovah.md|Jesus Christ, Jehovah]]; [[Jesus Christ, Lord.md|Jesus Christ, Lord]]; [[Jesus Christ, Messiah.md|Jesus Christ, Messiah]]; [[Jesus Christ, Savior.md|Jesus Christ, Savior]]; [[lord (lowercase).md|lord (lowercase)]]; [[Lord of Hosts.md|Lord of Hosts]]; [[Master.md|Master]]; [[Name of the Lord.md|Name of the Lord]]; [[BD Christ.md|BD Christ]]; [[BD Christ, names of.md|BD Christ, names of]]; [[BD Jehovah.md|BD Jehovah]]
 
 Is any thing too hard for the *Lord*, [[Genesis 18.14|Genesis 18:14]].
 

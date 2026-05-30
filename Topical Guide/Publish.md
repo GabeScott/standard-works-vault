@@ -1,6 +1,6 @@
 # Publish
 
-*See also* [[Declare.md|Declare]]; [[Preaching.md|Preaching]]; [[Proclaim.md|Proclaim]]
+*See also* [[Declare.md|Declare]]; [[Preaching, Preach.md|Preaching, Preach]]; [[Proclaim.md|Proclaim]]
 
 I will *publish* the name of the Lord, [[Deuteronomy 32.3|Deuteronomy 32:3]].
 

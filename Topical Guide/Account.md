@@ -1,6 +1,6 @@
 # Account
 
-*See also* [[Accountability.md|Accountability]]; [[Count.md|Count]]; [[Reckon.md|Reckon]]; [[Record.md|Record]]
+*See also* [[Accountability.md|Accountability]]; [[Count.md|Count]]; [[Reckon, Reckoning.md|Reckon, Reckoning]]; [[Record.md|Record]]
 
 son of man, that thou makest *account* of him, [[Psalms 144.3|Psalms 144:3]].
 

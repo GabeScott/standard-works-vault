@@ -1,6 +1,6 @@
 # Spiritual Blindness
 
-*See also* [[Bondage, Spiritual.md|Bondage, Spiritual]]; [[Darkness, Spiritual.md|Darkness, Spiritual]]; [[Hardheartedness.md|Hardheartedness]]; [[Walking in Darkness.md|Walking in Darkness]]
+*See also* [[Bondage, Spiritual.md|Bondage, Spiritual]]; [[Darkness, Spiritual.md|Darkness, Spiritual]]; [[Hardheartedness, Harden, Hardness.md|Hardheartedness, Harden, Hardness]]; [[Walking in Darkness.md|Walking in Darkness]]
 
 gift doth *blind* the eyes of the wise, [[Deuteronomy 16.19|Deuteronomy 16:19]].
 

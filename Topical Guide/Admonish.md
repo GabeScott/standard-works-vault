@@ -1,6 +1,6 @@
 # Admonish
 
-*See also* [[Rebuke.md|Rebuke]]; [[Warn.md|Warn]]
+*See also* [[Rebuke.md|Rebuke]]; [[Warn, Warnings.md|Warn, Warnings]]
 
 able also to *admonish* one another, [[Romans 15.14|Romans 15:14]].
 

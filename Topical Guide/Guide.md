@@ -1,6 +1,6 @@
 # Guide
 
-*See also* [[Direct.md|Direct]]; [[Guidance, Divine.md|Guidance, Divine]]; [[Lead.md|Lead]]; [[Order.md|Order]]
+*See also* [[Direct, Direction.md|Direct, Direction]]; [[Guidance, Divine.md|Guidance, Divine]]; [[Lead, Led.md|Lead, Led]]; [[Order.md|Order]]
 
 *guiding* his hands wittingly; for Manasseh, [[Genesis 48.14|Genesis 48:14]].
 

@@ -1,6 +1,6 @@
 # See, Saw, Seen
 
-*See also* [[Behold.md|Behold]]; [[Look.md|Look]]; [[Observe.md|Observe]]; [[Watch.md|Watch]]
+*See also* [[Behold, Beheld.md|Behold, Beheld]]; [[Look.md|Look]]; [[Observe.md|Observe]]; [[Watch, Watchfulness.md|Watch, Watchfulness]]
 
 I have *seen* God face to face, [[Genesis 32.30|Genesis 32:30]].
 

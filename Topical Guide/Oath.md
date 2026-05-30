@@ -1,6 +1,6 @@
 # Oath
 
-*See also* [[Conspiracy.md|Conspiracy]]; [[Covenants.md|Covenants]]; [[Pledge.md|Pledge]]; [[Priesthood, Oath and Covenant.md|Priesthood, Oath and Covenant]]; [[Promise.md|Promise]]; [[Secret Combinations.md|Secret Combinations]]; [[Swearing.md|Swearing]]; [[Vow.md|Vow]]
+*See also* [[Conspiracy.md|Conspiracy]]; [[Covenants.md|Covenants]]; [[Pledge.md|Pledge]]; [[Priesthood, Oath and Covenant.md|Priesthood, Oath and Covenant]]; [[Promise.md|Promise]]; [[Secret Combinations.md|Secret Combinations]]; [[Swearing, Swear, Sware, Sworn.md|Swearing, Swear, Sware, Sworn]]; [[Vow.md|Vow]]
 
 I will perform the *oath* which I sware, [[Genesis 26.3|Genesis 26:3]].
 

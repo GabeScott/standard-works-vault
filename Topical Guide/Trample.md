@@ -1,6 +1,6 @@
 # Trample
 
-*See also* [[Tread.md|Tread]]
+*See also* [[Tread, Trod, Trodden.md|Tread, Trod, Trodden]]
 
 I will … *trample* them in my fury, [[Isaiah 63.3|Isaiah 63:3]].
 

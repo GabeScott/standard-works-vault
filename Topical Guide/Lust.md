@@ -1,6 +1,6 @@
 # Lust
 
-*See also* [[Adulterer.md|Adulterer]]; [[Carnal Mind.md|Carnal Mind]]; [[Chastity.md|Chastity]]; [[Covet.md|Covet]]; [[Desire.md|Desire]]; [[Fornication.md|Fornication]]; [[Homosexual Behavior.md|Homosexual Behavior]]; [[Pleasure.md|Pleasure]]; [[Sensuality.md|Sensuality]]; [[Sexual Immorality.md|Sexual Immorality]]
+*See also* [[Adulterer, Adultery.md|Adulterer, Adultery]]; [[Carnal Mind.md|Carnal Mind]]; [[Chastity, Chaste.md|Chastity, Chaste]]; [[Covet, Covetousness.md|Covet, Covetousness]]; [[Desire.md|Desire]]; [[Fornication.md|Fornication]]; [[Homosexual Behavior.md|Homosexual Behavior]]; [[Pleasure.md|Pleasure]]; [[Sensuality.md|Sensuality]]; [[Sexual Immorality.md|Sexual Immorality]]
 
 tempted God … by asking meat for their *lust*, [[Psalms 78.18|Psalms 78:18]].
 

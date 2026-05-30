@@ -1,6 +1,6 @@
 # Blaspheme, Blasphemous, Blasphemy
 
-*See also* [[False Doctrine.md|False Doctrine]]; [[Holy Ghost, Unpardonable Sin against.md|Holy Ghost, Unpardonable Sin against]]; [[Profanity.md|Profanity]]; [[Swearing.md|Swearing]]; [[BD Blasphemy.md|BD Blasphemy]]
+*See also* [[False Doctrine.md|False Doctrine]]; [[Holy Ghost, Unpardonable Sin against.md|Holy Ghost, Unpardonable Sin against]]; [[Profanity.md|Profanity]]; [[Swearing, Swear, Sware, Sworn.md|Swearing, Swear, Sware, Sworn]]; [[BD Blasphemy.md|BD Blasphemy]]
 
 he that *blasphemeth* the name of the Lord, [[Leviticus 24.16|Leviticus 24:16]].
 

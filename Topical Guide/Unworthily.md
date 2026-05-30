@@ -1,6 +1,6 @@
 # Unworthily
 
-*See also* [[Unworthiness.md|Unworthiness]]
+*See also* [[Unworthiness, Unworthy.md|Unworthiness, Unworthy]]
 
 drink this cup of the Lord, *unworthily*, shall be guilty, [[1 Corinthians 11.27|1 Corinthians 11:27]].
 

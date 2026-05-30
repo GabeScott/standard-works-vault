@@ -1,6 +1,6 @@
 # Learn, Learning
 
-*See also* [[Education.md|Education]]; [[Holy Ghost, Mission of.md|Holy Ghost, Mission of]]; [[Knowledge.md|Knowledge]]; [[Mysteries of Godliness.md|Mysteries of Godliness]]; [[Scriptures, Value of.md|Scriptures, Value of]]; [[Study.md|Study]]; [[Teaching.md|Teaching]]; [[Understanding.md|Understanding]]; [[Wisdom.md|Wisdom]]
+*See also* [[Education.md|Education]]; [[Holy Ghost, Mission of.md|Holy Ghost, Mission of]]; [[Knowledge.md|Knowledge]]; [[Mysteries of Godliness.md|Mysteries of Godliness]]; [[Scriptures, Value of.md|Scriptures, Value of]]; [[Study.md|Study]]; [[Teaching, Teach, Taught.md|Teaching, Teach, Taught]]; [[Understanding.md|Understanding]]; [[Wisdom.md|Wisdom]]
 
 I have *learned* by experience, [[Genesis 30.27|Genesis 30:27]].
 

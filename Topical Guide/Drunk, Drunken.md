@@ -1,6 +1,6 @@
 # Drunk, Drunken
 
-*See also* [[Drink.md|Drink]]; [[Drunkenness.md|Drunkenness]]
+*See also* [[Drink, Drank, Drunk.md|Drink, Drank, Drunk]]; [[Drunkenness.md|Drunkenness]]
 
 he drank of the wine, and was *drunken*, [[Genesis 9.21|Genesis 9:21]].
 

@@ -1,6 +1,6 @@
 # Examine
 
-*See also* [[Test.md|Test]]
+*See also* [[Test, Try, Prove.md|Test, Try, Prove]]
 
 *Examine* me, O Lord, and prove me, [[Psalms 26.2|Psalms 26:2]].
 

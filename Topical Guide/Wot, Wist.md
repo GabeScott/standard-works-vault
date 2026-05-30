@@ -1,6 +1,6 @@
 # Wot, Wist
 
-*See also* [[Know.md|Know]]
+*See also* [[Know, Knew, Known.md|Know, Knew, Known]]
 
 It is manna: for they *wist* not what it was, [[Exodus 16.15|Exodus 16:15]].
 

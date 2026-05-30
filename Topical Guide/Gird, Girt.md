@@ -1,6 +1,6 @@
 # Gird, Girt
 
-*See also* [[Bind.md|Bind]]; [[Clothe.md|Clothe]]
+*See also* [[Bind, Bound.md|Bind, Bound]]; [[Clothe.md|Clothe]]
 
 *gird* them with girdles, [[Exodus 29.9|Exodus 29:9]].
 

@@ -1,6 +1,6 @@
 # Drunkenness
 
-*See also* [[Drink.md|Drink]]; [[Drunk.md|Drunk]]; [[Word of Wisdom.md|Word of Wisdom]]
+*See also* [[Drink, Drank, Drunk.md|Drink, Drank, Drunk]]; [[Drunk, Drunken.md|Drunk, Drunken]]; [[Word of Wisdom.md|Word of Wisdom]]
 
 to add *drunkenness* to thirst, [[Deuteronomy 29.19|Deuteronomy 29:19]].
 

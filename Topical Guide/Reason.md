@@ -1,6 +1,6 @@
 # Reason
 
-*See also* [[Cause.md|Cause]]; [[Think.md|Think]]
+*See also* [[Cause.md|Cause]]; [[Think, Thought.md|Think, Thought]]
 
 stand still, that I may *reason* with you, [[1 Samuel 12.7|1 Samuel 12:7]].
 

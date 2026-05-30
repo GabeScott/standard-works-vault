@@ -1,6 +1,6 @@
 # War
 
-*See also* [[Army.md|Army]]; [[Battle.md|Battle]]; [[Blood, Shedding of.md|Blood, Shedding of]]; [[Council in Heaven.md|Council in Heaven]]; [[Defend.md|Defend]]; [[Destroy.md|Destroy]]; [[Destruction.md|Destruction]]; [[Fight.md|Fight]]; [[God to Fight Our Battles.md|God to Fight Our Battles]]; [[Strife.md|Strife]]; [[Sword.md|Sword]]; [[Violence.md|Violence]]; [[BD War in Heaven.md|BD War in Heaven]]
+*See also* [[Army.md|Army]]; [[Battle.md|Battle]]; [[Blood, Shedding of.md|Blood, Shedding of]]; [[Council in Heaven.md|Council in Heaven]]; [[Defend.md|Defend]]; [[Destroy.md|Destroy]]; [[Destruction.md|Destruction]]; [[Fight, Fought.md|Fight, Fought]]; [[God to Fight Our Battles.md|God to Fight Our Battles]]; [[Strife.md|Strife]]; [[Sword.md|Sword]]; [[Violence.md|Violence]]; [[BD War in Heaven.md|BD War in Heaven]]
 
 Lord is a man of *war*, [[Exodus 15.3|Exodus 15:3]].
 

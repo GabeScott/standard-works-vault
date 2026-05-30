@@ -1,6 +1,6 @@
 # Lament
 
-*See also* [[Cry.md|Cry]]; [[Mourning.md|Mourning]]; [[Wail.md|Wail]]; [[Weep.md|Weep]]
+*See also* [[Cry.md|Cry]]; [[Mourning, Mourn.md|Mourning, Mourn]]; [[Wail, Wailing.md|Wail, Wailing]]; [[Weep, Wept.md|Weep, Wept]]
 
 yearly to *lament* the daughter of Jephthah, [[Judges 11.40|Judges 11:40]].
 

@@ -1,6 +1,6 @@
 # Calling
 
-*See also* [[Authority.md|Authority]]; [[Call.md|Call]]; [[Called of God.md|Called of God]]; [[Election.md|Election]]; [[Foreordination.md|Foreordination]]; [[Mission of Latter-day Saints.md|Mission of Latter-day Saints]]
+*See also* [[Authority.md|Authority]]; [[Call.md|Call]]; [[Called of God.md|Called of God]]; [[Election, Elect.md|Election, Elect]]; [[Foreordination.md|Foreordination]]; [[Mission of Latter-day Saints.md|Mission of Latter-day Saints]]
 
 gifts and *calling* of God are without repentance, [[Romans 11.29|Romans 11:29]].
 

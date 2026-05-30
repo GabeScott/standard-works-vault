@@ -1,6 +1,6 @@
 # Abase
 
-*See also* [[Humility.md|Humility]]
+*See also* [[Humility, Humble.md|Humility, Humble]]
 
 exalt him that is low, and *abase* him that is high, [[Ezekiel 21.26|Ezekiel 21:26]].
 

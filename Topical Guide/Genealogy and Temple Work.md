@@ -1,6 +1,6 @@
 # Genealogy and Temple Work
 
-*See also* [[Baptism for the Dead.md|Baptism for the Dead]]; [[Book of Remembrance.md|Book of Remembrance]]; [[Endowment.md|Endowment]]; [[Family, Eternal.md|Family, Eternal]]; [[Marriage, Celestial.md|Marriage, Celestial]]; [[Salvation for the Dead.md|Salvation for the Dead]]
+*See also* [[Baptism for the Dead.md|Baptism for the Dead]]; [[Book of Remembrance.md|Book of Remembrance]]; [[Endowment, Endow.md|Endowment, Endow]]; [[Family, Eternal.md|Family, Eternal]]; [[Marriage, Celestial.md|Marriage, Celestial]]; [[Salvation for the Dead.md|Salvation for the Dead]]
 
 all Israel were reckoned by *genealogies*, [[1 Chronicles 9.1|1 Chronicles 9:1]] ([[Ezra 2.62|Ezra 2:62]]; [[Nehemiah 7.64|Nehemiah 7:64]]).
 

@@ -1,6 +1,6 @@
 # Sleep, Slept
 
-*See also* [[Death.md|Death]]; [[Health.md|Health]]; [[Idleness.md|Idleness]]; [[Laziness.md|Laziness]]; [[Slumber.md|Slumber]]
+*See also* [[Death.md|Death]]; [[Health.md|Health]]; [[Idleness, Idle, Idler.md|Idleness, Idle, Idler]]; [[Laziness.md|Laziness]]; [[Slumber.md|Slumber]]
 
 God caused a deep *sleep* to fall upon Adam, [[Genesis 2.21|Genesis 2:21]] ([[Moses 3.21|Moses 3:21]]; [[Abraham 5.15|Abraham 5:15]]).
 

@@ -1,6 +1,6 @@
 # Rising
 
-*See also* [[Rise.md|Rise]]
+*See also* [[Rise, Rose, Risen.md|Rise, Rose, Risen]]
 
 That they may know from the *rising* of the sun, [[Isaiah 45.6|Isaiah 45:6]] ([[Malachi 1.11|Malachi 1:11]]; [[Helaman 14.4|Helaman 14:4]]).
 

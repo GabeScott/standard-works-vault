@@ -1,6 +1,6 @@
 # Meditation, Meditate
 
-*See also* [[Consider.md|Consider]]; [[Ponder.md|Ponder]]; [[Prayer.md|Prayer]]; [[Scriptures, Study of.md|Scriptures, Study of]]; [[Think.md|Think]]
+*See also* [[Consider.md|Consider]]; [[Ponder.md|Ponder]]; [[Prayer, Pray.md|Prayer, Pray]]; [[Scriptures, Study of.md|Scriptures, Study of]]; [[Think, Thought.md|Think, Thought]]
 
 Isaac went out to *meditate* in the field, [[Genesis 24.63|Genesis 24:63]].
 

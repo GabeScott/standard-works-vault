@@ -1,6 +1,6 @@
 # Loving-Kindness
 
-*See also* [[Kindness.md|Kindness]]; [[Mercy.md|Mercy]]
+*See also* [[Kindness.md|Kindness]]; [[Mercy, Merciful.md|Mercy, Merciful]]
 
 Have mercy upon me, O God, according to thy *lovingkindness*, [[Psalms 51.1|Psalms 51:1]].
 

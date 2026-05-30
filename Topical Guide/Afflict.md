@@ -1,6 +1,6 @@
 # Afflict
 
-*See also* [[Oppression.md|Oppression]]; [[Persecution.md|Persecution]]
+*See also* [[Oppression, Oppress.md|Oppression, Oppress]]; [[Persecution, Persecute.md|Persecution, Persecute]]
 
 shall not *afflict* any widow, or fatherless child, [[Exodus 22.22|Exodus 22:22]].
 

@@ -1,6 +1,6 @@
 # Wisdom
 
-*See also* [[Discernment, Spiritual.md|Discernment, Spiritual]]; [[Education.md|Education]]; [[God, Intelligence of.md|God, Intelligence of]]; [[God, Omniscience of.md|God, Omniscience of]]; [[God, Wisdom of.md|God, Wisdom of]]; [[Holy Ghost, Gifts of.md|Holy Ghost, Gifts of]]; [[Intelligence.md|Intelligence]]; [[Knowledge.md|Knowledge]]; [[Learn.md|Learn]]; [[Prudence.md|Prudence]]; [[Understanding.md|Understanding]]; [[Wise.md|Wise]]
+*See also* [[Discernment, Spiritual.md|Discernment, Spiritual]]; [[Education.md|Education]]; [[God, Intelligence of.md|God, Intelligence of]]; [[God, Omniscience of.md|God, Omniscience of]]; [[God, Wisdom of.md|God, Wisdom of]]; [[Holy Ghost, Gifts of.md|Holy Ghost, Gifts of]]; [[Intelligence.md|Intelligence]]; [[Knowledge.md|Knowledge]]; [[Learn, Learning.md|Learn, Learning]]; [[Prudence, Prudent.md|Prudence, Prudent]]; [[Understanding.md|Understanding]]; [[Wise, Wiser.md|Wise, Wiser]]
 
 filled with the spirit of *wisdom*, [[Exodus 28.3|Exodus 28:3]].
 

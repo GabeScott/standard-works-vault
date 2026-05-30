@@ -1,6 +1,6 @@
 # Stubbornness, Stubborn
 
-*See also* [[Hardheartedness.md|Hardheartedness]]; [[Stiffnecked.md|Stiffnecked]]
+*See also* [[Hardheartedness, Harden, Hardness.md|Hardheartedness, Harden, Hardness]]; [[Stiffnecked, Stiffneckedness.md|Stiffnecked, Stiffneckedness]]
 
 made his heart *obstinate*, [[Deuteronomy 2.30|Deuteronomy 2:30]].
 

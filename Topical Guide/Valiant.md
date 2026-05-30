@@ -1,6 +1,6 @@
 # Valiant
 
-*See also* [[Courage.md|Courage]]; [[Valiantly.md|Valiantly]]
+*See also* [[Courage, Courageous.md|Courage, Courageous]]; [[Valiantly.md|Valiantly]]
 
 Jesse … a mighty *valiant* man, [[1 Samuel 16.18|1 Samuel 16:18]].
 

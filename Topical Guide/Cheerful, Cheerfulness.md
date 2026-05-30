@@ -1,6 +1,6 @@
 # Cheerful, Cheerfulness
 
-*See also* [[Cheer.md|Cheer]]; [[Gladness.md|Gladness]]; [[Happiness.md|Happiness]]; [[Joy.md|Joy]]; [[Merry.md|Merry]]
+*See also* [[Cheer.md|Cheer]]; [[Gladness.md|Gladness]]; [[Happiness, Happy.md|Happiness, Happy]]; [[Joy.md|Joy]]; [[Merry.md|Merry]]
 
 Serve the Lord with *gladness*, [[Psalms 100.2|Psalms 100:2]].
 

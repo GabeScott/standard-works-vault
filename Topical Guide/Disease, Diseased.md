@@ -1,6 +1,6 @@
 # Disease, Diseased
 
-*See also* [[Infirmity.md|Infirmity]]; [[Sickness.md|Sickness]]
+*See also* [[Infirmity.md|Infirmity]]; [[Sickness, Sick.md|Sickness, Sick]]
 
 put none of these *diseases* upon thee, [[Exodus 15.26|Exodus 15:26]].
 

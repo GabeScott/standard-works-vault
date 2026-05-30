@@ -1,6 +1,6 @@
 # Harmless
 
-*See also* [[Innocence.md|Innocence]]
+*See also* [[Innocence, Innocent.md|Innocence, Innocent]]
 
 be ye therefore wise as serpents, and *harmless* as doves, [[Matthew 10.16|Matthew 10:16]].
 

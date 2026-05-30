@@ -1,6 +1,6 @@
 # Transgress, Transgression
 
-*See also* [[Excommunication.md|Excommunication]]; [[Iniquity.md|Iniquity]]; [[Offense.md|Offense]]; [[Sin.md|Sin]]; [[Trespass.md|Trespass]]; [[Wickedness.md|Wickedness]]
+*See also* [[Excommunication.md|Excommunication]]; [[Iniquity.md|Iniquity]]; [[Offense, Offend, Offender.md|Offense, Offend, Offender]]; [[Sin.md|Sin]]; [[Trespass.md|Trespass]]; [[Wickedness, Wicked.md|Wickedness, Wicked]]
 
 she took of the fruit thereof, and did *eat*, [[Genesis 3.6|Genesis 3:6]].
 

@@ -1,6 +1,6 @@
 # Speech
 
-*See also* [[Communication.md|Communication]]; [[Language.md|Language]]; [[Speak.md|Speak]]; [[Tongue.md|Tongue]]
+*See also* [[Communication.md|Communication]]; [[Language.md|Language]]; [[Speak, Spake, Spoken.md|Speak, Spake, Spoken]]; [[Tongue.md|Tongue]]
 
 whole earth was … of one *speech*, [[Genesis 11.1|Genesis 11:1]].
 

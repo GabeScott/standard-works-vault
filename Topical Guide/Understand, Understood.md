@@ -1,6 +1,6 @@
 # Understand, Understood
 
-*See also* [[Comprehend.md|Comprehend]]; [[Know.md|Know]]; [[Perceive.md|Perceive]]; [[Understanding.md|Understanding]]
+*See also* [[Comprehend.md|Comprehend]]; [[Know, Knew, Known.md|Know, Knew, Known]]; [[Perceive.md|Perceive]]; [[Understanding.md|Understanding]]
 
 confound their language, that they may not *understand*, [[Genesis 11.7|Genesis 11:7]].
 

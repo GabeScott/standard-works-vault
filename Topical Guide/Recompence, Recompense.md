@@ -1,6 +1,6 @@
 # Recompence, Recompense
 
-*See also* [[Avenge.md|Avenge]]; [[Pay.md|Pay]]; [[Render.md|Render]]; [[Reward.md|Reward]]; [[Vengeance.md|Vengeance]]
+*See also* [[Avenge.md|Avenge]]; [[Pay, Paid.md|Pay, Paid]]; [[Render.md|Render]]; [[Reward.md|Reward]]; [[Vengeance.md|Vengeance]]
 
 shall *recompense* his trespass, [[Numbers 5.7|Numbers 5:7]].
 

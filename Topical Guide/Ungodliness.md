@@ -1,6 +1,6 @@
 # Ungodliness
 
-*See also* [[Man, Natural, Not Spiritually Reborn.md|Man, Natural, Not Spiritually Reborn]]; [[Ungodly.md|Ungodly]]; [[Wickedness.md|Wickedness]]
+*See also* [[Man, Natural, Not Spiritually Reborn.md|Man, Natural, Not Spiritually Reborn]]; [[Ungodly.md|Ungodly]]; [[Wickedness, Wicked.md|Wickedness, Wicked]]
 
 wrath of God … against all *ungodliness*, [[Romans 1.18|Romans 1:18]].
 

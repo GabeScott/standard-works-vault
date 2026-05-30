@@ -1,3 +1,3 @@
 # Tooth
 
-*See also* [[Teeth.md|Teeth]]
+*See also* [[Teeth, Tooth.md|Teeth, Tooth]]

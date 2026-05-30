@@ -1,6 +1,6 @@
 # Chosen [noun]
 
-*See also* [[Called of God.md|Called of God]]; [[Choose.md|Choose]]; [[Election.md|Election]]; [[Foreordination.md|Foreordination]]; [[Jesus Christ, Foreordained.md|Jesus Christ, Foreordained]]; [[Mission of Early Saints.md|Mission of Early Saints]]; [[Mission of Latter-day Saints.md|Mission of Latter-day Saints]]; [[Priesthood, Authority.md|Priesthood, Authority]]
+*See also* [[Called of God.md|Called of God]]; [[Choose, Chose, Chosen.md|Choose, Chose, Chosen]]; [[Election, Elect.md|Election, Elect]]; [[Foreordination.md|Foreordination]]; [[Jesus Christ, Foreordained.md|Jesus Christ, Foreordained]]; [[Mission of Early Saints.md|Mission of Early Saints]]; [[Mission of Latter-day Saints.md|Mission of Latter-day Saints]]; [[Priesthood, Authority.md|Priesthood, Authority]]
 
 ye children of Jacob, his *chosen*, [[1 Chronicles 16.13|1 Chronicles 16:13]] ([[Psalms 105.6|Psalms 105:6]]).
 

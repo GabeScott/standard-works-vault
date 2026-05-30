@@ -1,6 +1,6 @@
 # Redeem, Redeemed
 
-*See also* [[Deliver.md|Deliver]]; [[Jesus Christ, Redeemer.md|Jesus Christ, Redeemer]]; [[Ransom.md|Ransom]]; [[Redemption.md|Redemption]]; [[Save.md|Save]]
+*See also* [[Deliver, Deliverance.md|Deliver, Deliverance]]; [[Jesus Christ, Redeemer.md|Jesus Christ, Redeemer]]; [[Ransom.md|Ransom]]; [[Redemption.md|Redemption]]; [[Save.md|Save]]
 
 Angel which *redeemed* me from all evil, [[Genesis 48.16|Genesis 48:16]].
 

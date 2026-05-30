@@ -1,6 +1,6 @@
 # Thought [noun]
 
-*See also* [[Device.md|Device]]; [[God, Omniscience of.md|God, Omniscience of]]; [[Imagination.md|Imagination]]; [[Meditation.md|Meditation]]; [[Motivations.md|Motivations]]; [[Think.md|Think]]
+*See also* [[Device.md|Device]]; [[God, Omniscience of.md|God, Omniscience of]]; [[Imagination, Imagine.md|Imagination, Imagine]]; [[Meditation, Meditate.md|Meditation, Meditate]]; [[Motivations.md|Motivations]]; [[Think, Thought.md|Think, Thought]]
 
 imagination of the *thoughts* of his heart was only evil, [[Genesis 6.5|Genesis 6:5]] ([[Moses 8.22|Moses 8:22]]).
 

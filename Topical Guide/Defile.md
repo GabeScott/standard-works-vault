@@ -1,6 +1,6 @@
 # Defile
 
-*See also* [[Corrupt.md|Corrupt]]; [[Pollution.md|Pollution]]; [[Profane.md|Profane]]; [[Sacrilege.md|Sacrilege]]; [[Uncleanness.md|Uncleanness]]
+*See also* [[Corrupt.md|Corrupt]]; [[Pollution, Pollute.md|Pollution, Pollute]]; [[Profane.md|Profane]]; [[Sacrilege.md|Sacrilege]]; [[Uncleanness, Unclean.md|Uncleanness, Unclean]]
 
 in all these the nations are *defiled*, [[Leviticus 18.24|Leviticus 18:24]].
 

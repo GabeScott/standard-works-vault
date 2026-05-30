@@ -1,6 +1,6 @@
 # Hallow, Hallowed
 
-*See also* [[Consecrate.md|Consecrate]]; [[Holy.md|Holy]]; [[Purification.md|Purification]]; [[Sanctification.md|Sanctification]]
+*See also* [[Consecrate.md|Consecrate]]; [[Holy, Holier, Holiest.md|Holy, Holier, Holiest]]; [[Purification, Purify, Purifying.md|Purification, Purify, Purifying]]; [[Sanctification, Sanctify.md|Sanctification, Sanctify]]
 
 thou shalt do unto them to *hallow* them, [[Exodus 29.1|Exodus 29:1]].
 

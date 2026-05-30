@@ -1,6 +1,6 @@
 # Err
 
-*See also* [[Repent.md|Repent]]; [[Sin.md|Sin]]; [[Transgress.md|Transgress]]; [[Wander.md|Wander]]
+*See also* [[Repent, Repentance.md|Repent, Repentance]]; [[Sin.md|Sin]]; [[Transgress, Transgression.md|Transgress, Transgression]]; [[Wander, Wanderer.md|Wander, Wanderer]]
 
 concerning his ignorance wherein he *erred*, [[Leviticus 5.18|Leviticus 5:18]].
 

@@ -1,6 +1,6 @@
 # Reviling, Revile
 
-*See also* [[Backbiting.md|Backbiting]]; [[Forbear.md|Forbear]]; [[Hate.md|Hate]]; [[Malice.md|Malice]]; [[Persecution.md|Persecution]]; [[Strife.md|Strife]]
+*See also* [[Backbiting.md|Backbiting]]; [[Forbear, Forbearance.md|Forbear, Forbearance]]; [[Hate.md|Hate]]; [[Malice.md|Malice]]; [[Persecution, Persecute.md|Persecution, Persecute]]; [[Strife.md|Strife]]
 
 Thou shalt not *revile* the gods, [[Exodus 22.28|Exodus 22:28]].
 

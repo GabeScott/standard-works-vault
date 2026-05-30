@@ -1,6 +1,6 @@
 # Guile
 
-*See also* [[Deceit.md|Deceit]]; [[Hypocrisy.md|Hypocrisy]]; [[Sincere.md|Sincere]]
+*See also* [[Deceit, Deceive.md|Deceit, Deceive]]; [[Hypocrisy, Hypocrite.md|Hypocrisy, Hypocrite]]; [[Sincere, Sincerity.md|Sincere, Sincerity]]
 
 if a man … slay him with *guile*, [[Exodus 21.14|Exodus 21:14]].
 

@@ -1,6 +1,6 @@
 # Wash, Washing
 
-*See also* [[Baptism.md|Baptism]]; [[Cleanliness.md|Cleanliness]]; [[Cleanse.md|Cleanse]]; [[Purification.md|Purification]]; [[Purity.md|Purity]]
+*See also* [[Baptism.md|Baptism]]; [[Cleanliness.md|Cleanliness]]; [[Cleanse.md|Cleanse]]; [[Purification, Purify, Purifying.md|Purification, Purify, Purifying]]; [[Purity, Pure.md|Purity, Pure]]
 
 *wash* your feet, [[Genesis 18.4|Genesis 18:4]] ([[Genesis 19.2|Genesis 19:2]]; [[Genesis 24.32|Genesis 24:32]]; [[Genesis 43.24|Genesis 43:24]]).
 

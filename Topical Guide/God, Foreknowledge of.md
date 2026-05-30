@@ -1,6 +1,6 @@
 # God, Foreknowledge of
 
-*See also* [[Election.md|Election]]; [[God, Omniscience of.md|God, Omniscience of]]
+*See also* [[Election, Elect.md|Election, Elect]]; [[God, Omniscience of.md|God, Omniscience of]]
 
 he set the *bounds* of the people, [[Deuteronomy 32.8|Deuteronomy 32:8]].
 

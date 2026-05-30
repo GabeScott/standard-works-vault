@@ -1,6 +1,6 @@
 # Murder, Murderer
 
-*See also* [[Blood, Shedding of.md|Blood, Shedding of]]; [[Capital Punishment.md|Capital Punishment]]; [[Excommunication.md|Excommunication]]; [[Kill.md|Kill]]; [[Martyrdom.md|Martyrdom]]; [[Slay.md|Slay]]; [[BD Murder.md|BD Murder]]
+*See also* [[Blood, Shedding of.md|Blood, Shedding of]]; [[Capital Punishment.md|Capital Punishment]]; [[Excommunication.md|Excommunication]]; [[Kill.md|Kill]]; [[Martyrdom.md|Martyrdom]]; [[Slay, Slew, Slain.md|Slay, Slew, Slain]]; [[BD Murder.md|BD Murder]]
 
 Cain rose up against Abel … and *slew* him, [[Genesis 4.8|Genesis 4:8]] ([[Moses 5.32|Moses 5:32]]).
 

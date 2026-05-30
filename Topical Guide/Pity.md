@@ -1,6 +1,6 @@
 # Pity
 
-*See also* [[Compassion.md|Compassion]]; [[God, Mercy of.md|God, Mercy of]]; [[Kindness.md|Kindness]]; [[Mercy.md|Mercy]]
+*See also* [[Compassion.md|Compassion]]; [[God, Mercy of.md|God, Mercy of]]; [[Kindness.md|Kindness]]; [[Mercy, Merciful.md|Mercy, Merciful]]
 
 To him that is afflicted *pity* should be shewed, [[Job 6.14|Job 6:14]].
 

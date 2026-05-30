@@ -1,6 +1,6 @@
 # Called of God
 
-*See also* [[Authority.md|Authority]]; [[Call.md|Call]]; [[Calling.md|Calling]]; [[Election.md|Election]]; [[Foreordination.md|Foreordination]]; [[Priesthood, Authority.md|Priesthood, Authority]]; [[Priesthood, Qualifying for.md|Priesthood, Qualifying for]]
+*See also* [[Authority.md|Authority]]; [[Call.md|Call]]; [[Calling.md|Calling]]; [[Election, Elect.md|Election, Elect]]; [[Foreordination.md|Foreordination]]; [[Priesthood, Authority.md|Priesthood, Authority]]; [[Priesthood, Qualifying for.md|Priesthood, Qualifying for]]
 
 I will *send* thee unto Pharaoh, [[Exodus 3.10|Exodus 3:10]].
 

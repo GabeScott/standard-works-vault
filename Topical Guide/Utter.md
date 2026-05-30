@@ -1,6 +1,6 @@
 # Utter
 
-*See also* [[Speak.md|Speak]]; [[Talk.md|Talk]]; [[Utterance.md|Utterance]]
+*See also* [[Speak, Spake, Spoken.md|Speak, Spake, Spoken]]; [[Talk.md|Talk]]; [[Utterance.md|Utterance]]
 
 I will *utter* dark sayings of old, [[Psalms 78.2|Psalms 78:2]].
 

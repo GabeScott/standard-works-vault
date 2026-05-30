@@ -1,6 +1,6 @@
 # Family
 
-*See also* [[Children.md|Children]]; [[Earth, Purpose of.md|Earth, Purpose of]]; [[Family, Children, Duties of.md|Family, Children, Duties of]]; [[Family, Children, Responsibilities toward.md|Family, Children, Responsibilities toward]]; [[Family, Eternal.md|Family, Eternal]]; [[Family, Love within.md|Family, Love within]]; [[Family, Managing Finances in.md|Family, Managing Finances in]]; [[Family, Patriarchal.md|Family, Patriarchal]]; [[Marriage, Fatherhood.md|Marriage, Fatherhood]]; [[Marriage, Marry.md|Marriage, Marry]]; [[Marriage, Motherhood.md|Marriage, Motherhood]]; [[Prayer.md|Prayer]]; [[BD Family.md|BD Family]]
+*See also* [[Children.md|Children]]; [[Earth, Purpose of.md|Earth, Purpose of]]; [[Family, Children, Duties of.md|Family, Children, Duties of]]; [[Family, Children, Responsibilities toward.md|Family, Children, Responsibilities toward]]; [[Family, Eternal.md|Family, Eternal]]; [[Family, Love within.md|Family, Love within]]; [[Family, Managing Finances in.md|Family, Managing Finances in]]; [[Family, Patriarchal.md|Family, Patriarchal]]; [[Marriage, Fatherhood.md|Marriage, Fatherhood]]; [[Marriage, Marry.md|Marriage, Marry]]; [[Marriage, Motherhood.md|Marriage, Motherhood]]; [[Prayer, Pray.md|Prayer, Pray]]; [[BD Family.md|BD Family]]
 
 isles of the Gentiles … after their *families*, [[Genesis 10.5|Genesis 10:5]].
 

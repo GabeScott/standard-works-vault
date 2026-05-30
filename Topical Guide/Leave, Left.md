@@ -1,6 +1,6 @@
 # Leave, Left [verb]
 
-*See also* [[Depart.md|Depart]]; [[Go.md|Go]]
+*See also* [[Depart.md|Depart]]; [[Go, Gone.md|Go, Gone]]
 
 shall a man *leave* his father, [[Genesis 2.24|Genesis 2:24]] ([[Matthew 19.5|Matthew 19:5]]; [[Mark 10.7|Mark 10:7]]; [[Ephesians 5.31|Ephesians 5:31]]; [[Moses 3.24|Moses 3:24]]; [[Abraham 5.18|Abraham 5:18]]).
 

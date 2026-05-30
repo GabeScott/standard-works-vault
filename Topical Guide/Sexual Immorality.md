@@ -1,6 +1,6 @@
 # Sexual Immorality
 
-*See also* [[Adulterer.md|Adulterer]]; [[Excommunication.md|Excommunication]]; [[Fornication.md|Fornication]]; [[Homosexual Behavior.md|Homosexual Behavior]]; [[Lust.md|Lust]]; [[Whore.md|Whore]]
+*See also* [[Adulterer, Adultery.md|Adulterer, Adultery]]; [[Excommunication.md|Excommunication]]; [[Fornication.md|Fornication]]; [[Homosexual Behavior.md|Homosexual Behavior]]; [[Lust.md|Lust]]; [[Whore, Whoredom.md|Whore, Whoredom]]
 
 we will *lie* with him, [[Genesis 19.32|Genesis 19:32]].
 

@@ -1,6 +1,6 @@
 # Haughtiness, Haughty
 
-*See also* [[Boast.md|Boast]]; [[Conceit.md|Conceit]]; [[Exalt.md|Exalt]]; [[Pride.md|Pride]]; [[Vanity.md|Vanity]]
+*See also* [[Boast, Boasting.md|Boast, Boasting]]; [[Conceit.md|Conceit]]; [[Exalt.md|Exalt]]; [[Pride.md|Pride]]; [[Vanity.md|Vanity]]
 
 thine eyes are upon the *haughty*, [[2 Samuel 22.28|2 Samuel 22:28]].
 

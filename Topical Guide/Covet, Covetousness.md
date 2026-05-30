@@ -1,6 +1,6 @@
 # Covet, Covetousness
 
-*See also* [[Desire.md|Desire]]; [[Envy.md|Envy]]; [[Greedily.md|Greedily]]; [[Greediness.md|Greediness]]; [[Greedy.md|Greedy]]; [[Jealous.md|Jealous]]; [[Lust.md|Lust]]
+*See also* [[Desire.md|Desire]]; [[Envy, Envious.md|Envy, Envious]]; [[Greedily.md|Greedily]]; [[Greediness.md|Greediness]]; [[Greedy.md|Greedy]]; [[Jealous, Jealousy.md|Jealous, Jealousy]]; [[Lust.md|Lust]]
 
 Thou shalt not *covet* thy neighbour’s house, [[Exodus 20.17|Exodus 20:17]] ([[Romans 7.7|Romans 7:7]]; [[Mosiah 13.24|Mosiah 13:24]]).
 

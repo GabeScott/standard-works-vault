@@ -1,6 +1,6 @@
 # Justice
 
-*See also* [[Equity.md|Equity]]; [[God, Justice of.md|God, Justice of]]; [[God, Mercy of.md|God, Mercy of]]; [[Jesus Christ, Judge.md|Jesus Christ, Judge]]; [[Judgment.md|Judgment]]; [[Just.md|Just]]; [[Mercy.md|Mercy]]
+*See also* [[Equity.md|Equity]]; [[God, Justice of.md|God, Justice of]]; [[God, Mercy of.md|God, Mercy of]]; [[Jesus Christ, Judge.md|Jesus Christ, Judge]]; [[Judgment.md|Judgment]]; [[Just.md|Just]]; [[Mercy, Merciful.md|Mercy, Merciful]]
 
 command his children … to do *justice* and judgment, [[Genesis 18.19|Genesis 18:19]].
 

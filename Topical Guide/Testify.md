@@ -1,6 +1,6 @@
 # Testify
 
-*See also* [[Witness.md|Witness]]
+*See also* [[Witness, Witnesses.md|Witness, Witnesses]]
 
 one witness shall not *testify* against any person to cause him to die, [[Numbers 35.30|Numbers 35:30]].
 

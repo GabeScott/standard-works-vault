@@ -1,6 +1,6 @@
 # Study
 
-*See also* [[Education.md|Education]]; [[Knowledge.md|Knowledge]]; [[Learn.md|Learn]]; [[Meditation.md|Meditation]]; [[Read.md|Read]]; [[Scriptures, Study of.md|Scriptures, Study of]]; [[Search.md|Search]]; [[Understanding.md|Understanding]]; [[Wisdom.md|Wisdom]]
+*See also* [[Education.md|Education]]; [[Knowledge.md|Knowledge]]; [[Learn, Learning.md|Learn, Learning]]; [[Meditation, Meditate.md|Meditation, Meditate]]; [[Read.md|Read]]; [[Scriptures, Study of.md|Scriptures, Study of]]; [[Search.md|Search]]; [[Understanding.md|Understanding]]; [[Wisdom.md|Wisdom]]
 
 heart of the righteous *studieth* to answer, [[Proverbs 15.28|Proverbs 15:28]].
 

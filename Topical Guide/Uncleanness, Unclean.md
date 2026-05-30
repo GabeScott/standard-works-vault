@@ -1,6 +1,6 @@
 # Uncleanness, Unclean
 
-*See also* [[Defile.md|Defile]]; [[Filthiness.md|Filthiness]]; [[Spirits, Evil or Unclean.md|Spirits, Evil or Unclean]]
+*See also* [[Defile.md|Defile]]; [[Filthiness, Filthy.md|Filthiness, Filthy]]; [[Spirits, Evil or Unclean.md|Spirits, Evil or Unclean]]
 
 if a soul touch any *unclean* thing, [[Leviticus 5.2|Leviticus 5:2]].
 

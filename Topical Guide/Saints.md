@@ -1,6 +1,6 @@
 # Saints
 
-*See also* [[Church Organization.md|Church Organization]]; [[Holy.md|Holy]]; [[Sheep.md|Sheep]]
+*See also* [[Church Organization.md|Church Organization]]; [[Holy, Holier, Holiest.md|Holy, Holier, Holiest]]; [[Sheep.md|Sheep]]
 
 he came with ten thousands of *saints*, [[Deuteronomy 33.2|Deuteronomy 33:2]] ([[Jude 1.14|Jude 1:14]]).
 

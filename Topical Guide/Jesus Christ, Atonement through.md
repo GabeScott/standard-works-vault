@@ -1,6 +1,6 @@
 # Jesus Christ, Atonement through
 
-*See also* [[Forgive.md|Forgive]]; [[Jesus Christ, Lamb of God.md|Jesus Christ, Lamb of God]]; [[Jesus Christ, Mediator.md|Jesus Christ, Mediator]]; [[Jesus Christ, Messiah.md|Jesus Christ, Messiah]]; [[Jesus Christ, Redeemer.md|Jesus Christ, Redeemer]]; [[Jesus Christ, Resurrection.md|Jesus Christ, Resurrection]]; [[Jesus Christ, Savior.md|Jesus Christ, Savior]]; [[Salvation.md|Salvation]]
+*See also* [[Forgive, Forgiveness.md|Forgive, Forgiveness]]; [[Jesus Christ, Lamb of God.md|Jesus Christ, Lamb of God]]; [[Jesus Christ, Mediator.md|Jesus Christ, Mediator]]; [[Jesus Christ, Messiah.md|Jesus Christ, Messiah]]; [[Jesus Christ, Redeemer.md|Jesus Christ, Redeemer]]; [[Jesus Christ, Resurrection.md|Jesus Christ, Resurrection]]; [[Jesus Christ, Savior.md|Jesus Christ, Savior]]; [[Salvation.md|Salvation]]
 
 blood that maketh an *atonement* for the soul, [[Leviticus 17.11|Leviticus 17:11]].
 

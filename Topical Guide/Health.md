@@ -1,6 +1,6 @@
 # Health
 
-*See also* [[Heal.md|Heal]]; [[Sickness.md|Sickness]]; [[Word of Wisdom.md|Word of Wisdom]]
+*See also* [[Heal, Healing.md|Heal, Healing]]; [[Sickness, Sick.md|Sickness, Sick]]; [[Word of Wisdom.md|Word of Wisdom]]
 
 *health* to thy navel, and marrow to thy bones, [[Proverbs 3.8|Proverbs 3:8]] ([[D&C 89.18|D&C 89:18]]).
 

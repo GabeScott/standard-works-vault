@@ -1,6 +1,6 @@
 # God, Mercy of
 
-*See also* [[Mercy.md|Mercy]]
+*See also* [[Mercy, Merciful.md|Mercy, Merciful]]
 
 shewing *mercy* unto thousands of them that love me, [[Exodus 20.6|Exodus 20:6]].
 

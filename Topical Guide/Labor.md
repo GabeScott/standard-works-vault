@@ -1,6 +1,6 @@
 # Labor
 
-*See also* [[Industry.md|Industry]]; [[Laborer.md|Laborer]]; [[Toil.md|Toil]]; [[Wages.md|Wages]]; [[Work.md|Work]]; [[Work, Value of.md|Work, Value of]]
+*See also* [[Industry, Industrious.md|Industry, Industrious]]; [[Laborer.md|Laborer]]; [[Toil.md|Toil]]; [[Wages.md|Wages]]; [[Work.md|Work]]; [[Work, Value of.md|Work, Value of]]
 
 Six days shalt thou *labour*, and do all thy work, [[Exodus 20.9|Exodus 20:9]] ([[Deuteronomy 5.13|Deuteronomy 5:13]]; [[Mosiah 13.17|Mosiah 13:17]]).
 

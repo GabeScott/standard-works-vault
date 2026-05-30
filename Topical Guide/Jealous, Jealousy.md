@@ -1,6 +1,6 @@
 # Jealous, Jealousy
 
-*See also* [[Covet.md|Covet]]; [[Envy.md|Envy]]
+*See also* [[Covet, Covetousness.md|Covet, Covetousness]]; [[Envy, Envious.md|Envy, Envious]]
 
 I the Lord thy God am a *jealous* God, [[Exodus 20.5|Exodus 20:5]] ([[Deuteronomy 5.9|Deuteronomy 5:9]]; [[Deuteronomy 6.15|Deuteronomy 6:15]]; [[Mosiah 11.22|Mosiah 11:22]]).
 

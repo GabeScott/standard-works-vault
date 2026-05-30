@@ -1,6 +1,6 @@
 # Marriage, Motherhood
 
-*See also* [[Birth Control.md|Birth Control]]; [[Family, Children, Responsibilities toward.md|Family, Children, Responsibilities toward]]; [[Woman.md|Woman]]
+*See also* [[Birth Control.md|Birth Control]]; [[Family, Children, Responsibilities toward.md|Family, Children, Responsibilities toward]]; [[Woman, Women.md|Woman, Women]]
 
 *multiply*, and replenish the earth, [[Genesis 1.28|Genesis 1:28]] ([[Moses 2.28|Moses 2:28]]; [[Abraham 4.28|Abraham 4:28]]).
 

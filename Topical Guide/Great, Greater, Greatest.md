@@ -1,6 +1,6 @@
 # Great, Greater, Greatest
 
-*See also* [[Excellent.md|Excellent]]; [[Mighty.md|Mighty]]
+*See also* [[Excellent.md|Excellent]]; [[Mighty, Mightier.md|Mighty, Mightier]]
 
 *greater* light to rule the day, [[Genesis 1.16|Genesis 1:16]] ([[Moses 2.16|Moses 2:16]]; [[Abraham 4.16|Abraham 4:16]]).
 

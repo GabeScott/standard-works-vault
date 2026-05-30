@@ -1,6 +1,6 @@
 # Iniquity
 
-*See also* [[Accountability.md|Accountability]]; [[Evil.md|Evil]]; [[Injustice.md|Injustice]]; [[Sin.md|Sin]]; [[Transgress.md|Transgress]]; [[Trespass.md|Trespass]]; [[Wickedness.md|Wickedness]]
+*See also* [[Accountability.md|Accountability]]; [[Evil.md|Evil]]; [[Injustice.md|Injustice]]; [[Sin.md|Sin]]; [[Transgress, Transgression.md|Transgress, Transgression]]; [[Trespass.md|Trespass]]; [[Wickedness, Wicked.md|Wickedness, Wicked]]
 
 visiting the *iniquity* of the fathers upon the children, [[Exodus 20.5|Exodus 20:5]] ([[Exodus 34.7|Exodus 34:7]]; [[Numbers 14.18|Numbers 14:18]]; [[Deuteronomy 5.9|Deuteronomy 5:9]]; [[Mosiah 13.13|Mosiah 13:13]]).
 

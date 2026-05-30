@@ -1,6 +1,6 @@
 # Time
 
-*See also* [[Astronomy.md|Astronomy]]; [[Day.md|Day]]; [[Eternity.md|Eternity]]; [[Generation.md|Generation]]; [[Hour.md|Hour]]; [[Season (noun).md|Season (noun)]]
+*See also* [[Astronomy.md|Astronomy]]; [[Day.md|Day]]; [[Eternity.md|Eternity]]; [[Generation.md|Generation]]; [[Hour.md|Hour]]; [[Season.md|Season]]
 
 In the *beginning* God created, [[Genesis 1.1|Genesis 1:1]].
 

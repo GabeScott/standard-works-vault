@@ -1,6 +1,6 @@
 # Psalm
 
-*See also* [[Singing.md|Singing]]; [[BD Psalms.md|BD Psalms]]
+*See also* [[Singing, Sing, Sang, Sung.md|Singing, Sing, Sang, Sung]]; [[BD Psalms.md|BD Psalms]]
 
 David delivered first this *psalm* to thank the Lord, [[1 Chronicles 16.7|1 Chronicles 16:7]].
 

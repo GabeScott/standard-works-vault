@@ -1,6 +1,6 @@
 # Holiness
 
-*See also* [[God, the Standard of Righteousness.md|God, the Standard of Righteousness]]; [[Holy.md|Holy]]; [[Peculiar People.md|Peculiar People]]; [[Purity.md|Purity]]; [[Righteousness.md|Righteousness]]; [[Sacred.md|Sacred]]; [[Sanctification.md|Sanctification]]
+*See also* [[God, the Standard of Righteousness.md|God, the Standard of Righteousness]]; [[Holy, Holier, Holiest.md|Holy, Holier, Holiest]]; [[Peculiar People.md|Peculiar People]]; [[Purity, Pure.md|Purity, Pure]]; [[Righteousness.md|Righteousness]]; [[Sacred.md|Sacred]]; [[Sanctification, Sanctify.md|Sanctification, Sanctify]]
 
 who is like thee, glorious in *holiness*, [[Exodus 15.11|Exodus 15:11]].
 

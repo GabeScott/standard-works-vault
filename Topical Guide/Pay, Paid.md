@@ -1,6 +1,6 @@
 # Pay, Paid
 
-*See also* [[Bestow.md|Bestow]]; [[Give.md|Give]]; [[Recompence.md|Recompence]]; [[Reward.md|Reward]]
+*See also* [[Bestow.md|Bestow]]; [[Give, Gave, Given.md|Give, Gave, Given]]; [[Recompence, Recompense.md|Recompence, Recompense]]; [[Reward.md|Reward]]
 
 he shall *pay* for the loss of his time, [[Exodus 21.19|Exodus 21:19]].
 

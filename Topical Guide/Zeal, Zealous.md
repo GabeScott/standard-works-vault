@@ -1,6 +1,6 @@
 # Zeal, Zealous
 
-*See also* [[Diligence.md|Diligence]]; [[Earnest.md|Earnest]]; [[Fervent.md|Fervent]]; [[Initiative.md|Initiative]]
+*See also* [[Diligence, Diligent, Diligently.md|Diligence, Diligent, Diligently]]; [[Earnest, Earnestly.md|Earnest, Earnestly]]; [[Fervent.md|Fervent]]; [[Initiative.md|Initiative]]
 
 he was *zealous* for his God, [[Numbers 25.13|Numbers 25:13]].
 

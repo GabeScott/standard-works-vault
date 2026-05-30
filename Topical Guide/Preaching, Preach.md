@@ -1,6 +1,6 @@
 # Preaching, Preach
 
-*See also* [[Declare.md|Declare]]; [[Jesus Christ, Mission of.md|Jesus Christ, Mission of]]; [[Jesus Christ, Teaching Mode of.md|Jesus Christ, Teaching Mode of]]; [[Mission of Early Saints.md|Mission of Early Saints]]; [[Mission of Latter-day Saints.md|Mission of Latter-day Saints]]; [[Preacher.md|Preacher]]; [[Proclaim.md|Proclaim]]; [[Prophecy.md|Prophecy]]; [[Publish.md|Publish]]; [[Teaching.md|Teaching]]; [[Testify.md|Testify]]
+*See also* [[Declare.md|Declare]]; [[Jesus Christ, Mission of.md|Jesus Christ, Mission of]]; [[Jesus Christ, Teaching Mode of.md|Jesus Christ, Teaching Mode of]]; [[Mission of Early Saints.md|Mission of Early Saints]]; [[Mission of Latter-day Saints.md|Mission of Latter-day Saints]]; [[Preacher.md|Preacher]]; [[Proclaim.md|Proclaim]]; [[Prophecy.md|Prophecy]]; [[Publish.md|Publish]]; [[Teaching, Teach, Taught.md|Teaching, Teach, Taught]]; [[Testify.md|Testify]]
 
 Lord hath anointed me to *preach* good tidings, [[Isaiah 61.1|Isaiah 61:1]] ([[Luke 4.18|Luke 4:18]]).
 

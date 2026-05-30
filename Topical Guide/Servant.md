@@ -1,6 +1,6 @@
 # Servant
 
-*See also* [[Minister.md|Minister]]; [[Serve.md|Serve]]; [[Service.md|Service]]; [[Slavery.md|Slavery]]; [[Stewardship.md|Stewardship]]
+*See also* [[Minister.md|Minister]]; [[Serve.md|Serve]]; [[Service.md|Service]]; [[Slavery, Slave.md|Slavery, Slave]]; [[Stewardship, Steward.md|Stewardship, Steward]]
 
 Cursed be Canaan; a *servant of servants* shall he be, [[Genesis 9.25|Genesis 9:25]].
 

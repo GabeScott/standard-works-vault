@@ -1,6 +1,6 @@
 # Enlarge
 
-*See also* [[Flourish.md|Flourish]]; [[Grow.md|Grow]]; [[Increase.md|Increase]]
+*See also* [[Flourish.md|Flourish]]; [[Grow, Grew, Grown.md|Grow, Grew, Grown]]; [[Increase.md|Increase]]
 
 God shall *enlarge* Japheth, [[Genesis 9.27|Genesis 9:27]].
 

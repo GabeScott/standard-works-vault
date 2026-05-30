@@ -1,6 +1,6 @@
 # Thank
 
-*See also* [[Bless (verb).md|Bless (verb)]]; [[Praise.md|Praise]]; [[Thankful.md|Thankful]]; [[Thanks.md|Thanks]]; [[Thanksgiving.md|Thanksgiving]]
+*See also* [[Bless.md|Bless]]; [[Praise.md|Praise]]; [[Thankful.md|Thankful]]; [[Thanks.md|Thanks]]; [[Thanksgiving.md|Thanksgiving]]
 
 David delivered first this psalm to *thank* the Lord, [[1 Chronicles 16.7|1 Chronicles 16:7]].
 

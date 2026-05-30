@@ -1,6 +1,6 @@
 # Gentleness
 
-*See also* [[Gentle.md|Gentle]]; [[Kindness.md|Kindness]]; [[Meek.md|Meek]]
+*See also* [[Gentle.md|Gentle]]; [[Kindness.md|Kindness]]; [[Meek, Meekness.md|Meek, Meekness]]
 
 thy *gentleness* hath made me great, [[2 Samuel 22.36|2 Samuel 22:36]] ([[Psalms 18.35|Psalms 18:35]]).
 

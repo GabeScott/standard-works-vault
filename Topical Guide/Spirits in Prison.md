@@ -1,6 +1,6 @@
 # Spirits in Prison
 
-*See also* [[Damnation.md|Damnation]]; [[Hell.md|Hell]]; [[Spirits, Disembodied.md|Spirits, Disembodied]]
+*See also* [[Damnation, Damned.md|Damnation, Damned]]; [[Hell.md|Hell]]; [[Spirits, Disembodied.md|Spirits, Disembodied]]
 
 as *prisoners* are gathered in the pit, [[Isaiah 24.22|Isaiah 24:22]].
 

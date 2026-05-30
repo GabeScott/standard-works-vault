@@ -1,6 +1,6 @@
 # Observe
 
-*See also* [[Behold.md|Behold]]; [[Keep.md|Keep]]; [[Obedience.md|Obedience]]; [[See.md|See]]
+*See also* [[Behold, Beheld.md|Behold, Beheld]]; [[Keep, Kept.md|Keep, Kept]]; [[Obedience, Obedient, Obey.md|Obedience, Obedient, Obey]]; [[See, Saw, Seen.md|See, Saw, Seen]]
 
 a night to be much *observed* unto the Lord, [[Exodus 12.42|Exodus 12:42]].
 

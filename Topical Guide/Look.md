@@ -1,6 +1,6 @@
 # Look
 
-*See also* [[Behold.md|Behold]]; [[See.md|See]]
+*See also* [[Behold, Beheld.md|Behold, Beheld]]; [[See, Saw, Seen.md|See, Saw, Seen]]
 
 *look* not behind thee, [[Genesis 19.17|Genesis 19:17]].
 

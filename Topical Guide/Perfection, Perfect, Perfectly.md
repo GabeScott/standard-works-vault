@@ -1,6 +1,6 @@
 # Perfection, Perfect, Perfectly
 
-*See also* [[God, Perfection of.md|God, Perfection of]]; [[God, the Standard of Righteousness.md|God, the Standard of Righteousness]]; [[Godliness.md|Godliness]]; [[Integrity.md|Integrity]]; [[Jesus Christ, Exemplar.md|Jesus Christ, Exemplar]]; [[Just.md|Just]]; [[Man, New, Spiritually Reborn.md|Man, New, Spiritually Reborn]]; [[Man, Potential to Become like Heavenly Father.md|Man, Potential to Become like Heavenly Father]]; [[Whole.md|Whole]]
+*See also* [[God, Perfection of.md|God, Perfection of]]; [[God, the Standard of Righteousness.md|God, the Standard of Righteousness]]; [[Godliness, Godly.md|Godliness, Godly]]; [[Integrity.md|Integrity]]; [[Jesus Christ, Exemplar.md|Jesus Christ, Exemplar]]; [[Just.md|Just]]; [[Man, New, Spiritually Reborn.md|Man, New, Spiritually Reborn]]; [[Man, Potential to Become like Heavenly Father.md|Man, Potential to Become like Heavenly Father]]; [[Whole.md|Whole]]
 
 Noah was a just man and *perfect*, [[Genesis 6.9|Genesis 6:9]] ([[Moses 8.27|Moses 8:27]]).
 

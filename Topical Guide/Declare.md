@@ -1,6 +1,6 @@
 # Declare
 
-*See also* [[Preaching.md|Preaching]]; [[Proclaim.md|Proclaim]]; [[Prophecy.md|Prophecy]]; [[Publish.md|Publish]]; [[Tell.md|Tell]]
+*See also* [[Preaching, Preach.md|Preaching, Preach]]; [[Proclaim.md|Proclaim]]; [[Prophecy.md|Prophecy]]; [[Publish.md|Publish]]; [[Tell, Told.md|Tell, Told]]
 
 my name may be *declared* throughout all the earth, [[Exodus 9.16|Exodus 9:16]] ([[Romans 9.17|Romans 9:17]]).
 

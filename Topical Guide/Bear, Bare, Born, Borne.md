@@ -1,6 +1,6 @@
 # Bear, Bare, Born, Borne [verb]
 
-*See also* [[Carry.md|Carry]]; [[Endure.md|Endure]]
+*See also* [[Carry, Carried.md|Carry, Carried]]; [[Endure.md|Endure]]
 
 land was not able to *bear* them, [[Genesis 13.6|Genesis 13:6]].
 

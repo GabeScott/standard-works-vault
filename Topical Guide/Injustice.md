@@ -1,6 +1,6 @@
 # Injustice
 
-*See also* [[Malice.md|Malice]]; [[Oppression.md|Oppression]]
+*See also* [[Malice.md|Malice]]; [[Oppression, Oppress.md|Oppression, Oppress]]
 
 Thou shalt not *wrest* the judgment of thy poor, [[Exodus 23.6|Exodus 23:6]].
 

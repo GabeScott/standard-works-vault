@@ -1,6 +1,6 @@
 # Swearing, Swear, Sware, Sworn
 
-*See also* [[Blaspheme.md|Blaspheme]]; [[Covenants.md|Covenants]]; [[Honesty.md|Honesty]]; [[Oath.md|Oath]]; [[Obedience.md|Obedience]]; [[Pledge.md|Pledge]]; [[Profanity.md|Profanity]]; [[Promise.md|Promise]]; [[Vow.md|Vow]]
+*See also* [[Blaspheme, Blasphemous, Blasphemy.md|Blaspheme, Blasphemous, Blasphemy]]; [[Covenants.md|Covenants]]; [[Honesty.md|Honesty]]; [[Oath.md|Oath]]; [[Obedience, Obedient, Obey.md|Obedience, Obedient, Obey]]; [[Pledge.md|Pledge]]; [[Profanity.md|Profanity]]; [[Promise.md|Promise]]; [[Vow.md|Vow]]
 
 Beer-sheba; because there they *sware*, [[Genesis 21.31|Genesis 21:31]].
 

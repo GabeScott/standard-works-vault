@@ -1,6 +1,6 @@
 # Beginning
 
-*See also* [[Creation.md|Creation]]; [[First.md|First]]
+*See also* [[Creation, Create.md|Creation, Create]]; [[First.md|First]]
 
 In the *beginning* God created, [[Genesis 1.1|Genesis 1:1]] ([[Moses 2.1|Moses 2:1]]; [[D&C 112.25|D&C 112:25]]).
 

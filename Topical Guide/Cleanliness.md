@@ -1,6 +1,6 @@
 # Cleanliness
 
-*See also* [[Body, Sanctity of.md|Body, Sanctity of]]; [[Chastity.md|Chastity]]; [[Clean.md|Clean]]; [[Cleanse.md|Cleanse]]; [[Forgive.md|Forgive]]; [[Godliness.md|Godliness]]; [[Priesthood, Qualifying for.md|Priesthood, Qualifying for]]; [[Purification.md|Purification]]; [[Purity.md|Purity]]; [[Repent.md|Repent]]; [[Sanctification.md|Sanctification]]; [[Uncleanness.md|Uncleanness]]; [[Virtue.md|Virtue]]; [[Wash.md|Wash]]; [[Worthiness.md|Worthiness]]
+*See also* [[Body, Sanctity of.md|Body, Sanctity of]]; [[Chastity, Chaste.md|Chastity, Chaste]]; [[Clean.md|Clean]]; [[Cleanse.md|Cleanse]]; [[Forgive, Forgiveness.md|Forgive, Forgiveness]]; [[Godliness, Godly.md|Godliness, Godly]]; [[Priesthood, Qualifying for.md|Priesthood, Qualifying for]]; [[Purification, Purify, Purifying.md|Purification, Purify, Purifying]]; [[Purity, Pure.md|Purity, Pure]]; [[Repent, Repentance.md|Repent, Repentance]]; [[Sanctification, Sanctify.md|Sanctification, Sanctify]]; [[Uncleanness, Unclean.md|Uncleanness, Unclean]]; [[Virtue, Virtuous.md|Virtue, Virtuous]]; [[Wash, Washing.md|Wash, Washing]]; [[Worthiness, Worthy.md|Worthiness, Worthy]]
 
 sanctify them … and let them *wash* their clothes, [[Exodus 19.10|Exodus 19:10]].
 

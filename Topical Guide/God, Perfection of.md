@@ -1,6 +1,6 @@
 # God, Perfection of
 
-*See also* [[God, Foreknowledge of.md|God, Foreknowledge of]]; [[God, Omniscience of.md|God, Omniscience of]]; [[God, Power of.md|God, Power of]]; [[God, Wisdom of.md|God, Wisdom of]]; [[Perfection.md|Perfection]]
+*See also* [[God, Foreknowledge of.md|God, Foreknowledge of]]; [[God, Omniscience of.md|God, Omniscience of]]; [[God, Power of.md|God, Power of]]; [[God, Wisdom of.md|God, Wisdom of]]; [[Perfection, Perfect, Perfectly.md|Perfection, Perfect, Perfectly]]
 
 his work is *perfect* … a God of truth and without iniquity, [[Deuteronomy 32.4|Deuteronomy 32:4]].
 

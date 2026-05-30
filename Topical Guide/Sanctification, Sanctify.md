@@ -1,6 +1,6 @@
 # Sanctification, Sanctify
 
-*See also* [[Consecrate.md|Consecrate]]; [[Consecration.md|Consecration]]; [[Earth, Destiny of.md|Earth, Destiny of]]; [[Earth, Purpose of.md|Earth, Purpose of]]; [[Hallow.md|Hallow]]; [[Holiness.md|Holiness]]; [[Holy Ghost, Baptism of.md|Holy Ghost, Baptism of]]; [[Jesus Christ, Atonement through.md|Jesus Christ, Atonement through]]; [[Justification.md|Justification]]; [[Man, New, Spiritually Reborn.md|Man, New, Spiritually Reborn]]; [[Purification.md|Purification]]; [[Righteousness.md|Righteousness]]; [[Sacred.md|Sacred]]; [[Separation.md|Separation]]
+*See also* [[Consecrate.md|Consecrate]]; [[Consecration.md|Consecration]]; [[Earth, Destiny of.md|Earth, Destiny of]]; [[Earth, Purpose of.md|Earth, Purpose of]]; [[Hallow, Hallowed.md|Hallow, Hallowed]]; [[Holiness.md|Holiness]]; [[Holy Ghost, Baptism of.md|Holy Ghost, Baptism of]]; [[Jesus Christ, Atonement through.md|Jesus Christ, Atonement through]]; [[Justification, Justify.md|Justification, Justify]]; [[Man, New, Spiritually Reborn.md|Man, New, Spiritually Reborn]]; [[Purification, Purify, Purifying.md|Purification, Purify, Purifying]]; [[Righteousness.md|Righteousness]]; [[Sacred.md|Sacred]]; [[Separation, Separate.md|Separation, Separate]]
 
 God blessed the seventh day, and *sanctified* it, [[Genesis 2.3|Genesis 2:3]] ([[D&C 77.12|D&C 77:12]]; [[Moses 3.3|Moses 3:3]]).
 

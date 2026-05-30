@@ -1,6 +1,6 @@
 # Base
 
-*See also* [[Abominable.md|Abominable]]; [[Vile.md|Vile]]; [[Wickedness.md|Wickedness]]
+*See also* [[Abominable.md|Abominable]]; [[Vile, Viler, Vilest.md|Vile, Viler, Vilest]]; [[Wickedness, Wicked.md|Wickedness, Wicked]]
 
 behave himself proudly … the *base* against the honourable, [[Isaiah 3.5|Isaiah 3:5]] ([[2 Nephi 13.5|2 Nephi 13:5]]).
 

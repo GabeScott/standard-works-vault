@@ -1,6 +1,6 @@
 # Lightning
 
-*See also* [[Thunder.md|Thunder]]
+*See also* [[Thunder, Thundering.md|Thunder, Thundering]]
 
 there were thunders and *lightnings*, [[Exodus 19.16|Exodus 19:16]].
 

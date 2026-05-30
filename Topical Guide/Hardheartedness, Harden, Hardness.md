@@ -1,6 +1,6 @@
 # Hardheartedness, Harden, Hardness
 
-*See also* [[Doubt.md|Doubt]]; [[Hate.md|Hate]]; [[Pride.md|Pride]]; [[Rebellion.md|Rebellion]]; [[Resist.md|Resist]]; [[Stiffnecked.md|Stiffnecked]]; [[Stubbornness.md|Stubbornness]]; [[Wickedness.md|Wickedness]]
+*See also* [[Doubt, Doubtful.md|Doubt, Doubtful]]; [[Hate.md|Hate]]; [[Pride.md|Pride]]; [[Rebellion, Rebel.md|Rebellion, Rebel]]; [[Resist.md|Resist]]; [[Stiffnecked, Stiffneckedness.md|Stiffnecked, Stiffneckedness]]; [[Stubbornness, Stubborn.md|Stubbornness, Stubborn]]; [[Wickedness, Wicked.md|Wickedness, Wicked]]
 
 I will *harden* his heart, that he shall not let the people go, [[Exodus 4.21|Exodus 4:21]] ([[Exodus 7.3|Exodus 7:3]]; [[Exodus 10.1|Exodus 10:1]]; [[Exodus 14.4|Exodus 14:4]]; [[Exodus 14.17|Exodus 14:17]]).
 

@@ -1,6 +1,6 @@
 # Rise, Rose, Risen
 
-*See also* [[Arise.md|Arise]]; [[Rising.md|Rising]]
+*See also* [[Arise, Arose.md|Arise, Arose]]; [[Rising.md|Rising]]
 
 people shall *rise* up as a great lion, [[Numbers 23.24|Numbers 23:24]].
 

@@ -1,6 +1,6 @@
 # Freedom
 
-*See also* [[Agency.md|Agency]]; [[Deliver.md|Deliver]]; [[Free.md|Free]]; [[Governments.md|Governments]]; [[Liberty.md|Liberty]]
+*See also* [[Agency.md|Agency]]; [[Deliver, Deliverance.md|Deliver, Deliverance]]; [[Free.md|Free]]; [[Governments.md|Governments]]; [[Liberty.md|Liberty]]
 
 With a great sum obtained I this *freedom*, [[Acts 22.28|Acts 22:28]].
 

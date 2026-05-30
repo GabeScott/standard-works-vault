@@ -1,6 +1,6 @@
 # Jerusalem, New
 
-*See also* [[Zion.md|Zion]]
+*See also* [[Zion, Sion.md|Zion, Sion]]
 
 mountain of the Lord’s *house* shall be established, [[Isaiah 2.2|Isaiah 2:2]] ([[2 Nephi 12.2|2 Nephi 12:2]]).
 

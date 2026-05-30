@@ -1,6 +1,6 @@
 # Modesty
 
-*See also* [[Body, Sanctity of.md|Body, Sanctity of]]; [[Chastity.md|Chastity]]; [[Virtue.md|Virtue]]
+*See also* [[Body, Sanctity of.md|Body, Sanctity of]]; [[Chastity, Chaste.md|Chastity, Chaste]]; [[Virtue, Virtuous.md|Virtue, Virtuous]]
 
 sewed fig leaves together, and made themselves *aprons*, [[Genesis 3.7|Genesis 3:7]] ([[Moses 4.13|Moses 4:13]]).
 

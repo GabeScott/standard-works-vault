@@ -1,6 +1,6 @@
 # Offense, Offend, Offender
 
-*See also* [[Apostasy of Individuals.md|Apostasy of Individuals]]; [[Hurt.md|Hurt]]; [[Mocking.md|Mocking]]; [[Transgress.md|Transgress]]; [[Trespass.md|Trespass]]
+*See also* [[Apostasy of Individuals.md|Apostasy of Individuals]]; [[Hurt.md|Hurt]]; [[Mocking, Mock, Mocker, Mockery.md|Mocking, Mock, Mocker, Mockery]]; [[Transgress, Transgression.md|Transgress, Transgression]]; [[Trespass.md|Trespass]]
 
 we have *offended* against the Lord already, [[2 Chronicles 28.13|2 Chronicles 28:13]].
 

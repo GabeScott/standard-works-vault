@@ -1,3 +1,3 @@
 # Pure
 
-*See also* [[Purification.md|Purification]]; [[Purity.md|Purity]]
+*See also* [[Purification, Purify, Purifying.md|Purification, Purify, Purifying]]; [[Purity, Pure.md|Purity, Pure]]

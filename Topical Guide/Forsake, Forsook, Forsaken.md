@@ -1,6 +1,6 @@
 # Forsake, Forsook, Forsaken
 
-*See also* [[Leave.md|Leave]]
+*See also* [[Leave, Left.md|Leave, Left]]
 
 he will not *forsake* thee, [[Deuteronomy 4.31|Deuteronomy 4:31]].
 

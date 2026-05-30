@@ -1,6 +1,6 @@
 # Hypocrisy, Hypocrite
 
-*See also* [[Deceit.md|Deceit]]; [[Falsehood.md|Falsehood]]; [[Flatter.md|Flatter]]; [[Guile.md|Guile]]; [[Honesty.md|Honesty]]; [[Lie.md|Lie]]; [[Lying.md|Lying]]; [[Mocking.md|Mocking]]; [[Sincere.md|Sincere]]; [[BD Hypocrite.md|BD Hypocrite]]
+*See also* [[Deceit, Deceive.md|Deceit, Deceive]]; [[Falsehood.md|Falsehood]]; [[Flatter, Flattery.md|Flatter, Flattery]]; [[Guile.md|Guile]]; [[Honesty.md|Honesty]]; [[Lie, Lay, Lain.md|Lie, Lay, Lain]]; [[Lying, Liar, Lie.md|Lying, Liar, Lie]]; [[Mocking, Mock, Mocker, Mockery.md|Mocking, Mock, Mocker, Mockery]]; [[Sincere, Sincerity.md|Sincere, Sincerity]]; [[BD Hypocrite.md|BD Hypocrite]]
 
 *hypocrite* shall not come before him, [[Job 13.16|Job 13:16]].
 

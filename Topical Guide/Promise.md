@@ -1,6 +1,6 @@
 # Promise
 
-*See also* [[Covenants.md|Covenants]]; [[Holy Spirit.md|Holy Spirit]]; [[Oath.md|Oath]]; [[Pledge.md|Pledge]]; [[Swearing.md|Swearing]]; [[Vow.md|Vow]]
+*See also* [[Covenants.md|Covenants]]; [[Holy Spirit.md|Holy Spirit]]; [[Oath.md|Oath]]; [[Pledge.md|Pledge]]; [[Swearing, Swear, Sware, Sworn.md|Swearing, Swear, Sware, Sworn]]; [[Vow.md|Vow]]
 
 God … fighteth for you, as he hath *promised*, [[Joshua 23.10|Joshua 23:10]].
 

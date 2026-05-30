@@ -1,6 +1,6 @@
 # Earth
 
-*See also* [[Astronomy.md|Astronomy]]; [[Creation.md|Creation]]; [[Dust.md|Dust]]; [[God, Works of.md|God, Works of]]; [[Ground.md|Ground]]; [[Land.md|Land]]; [[Nature, Earth.md|Nature, Earth]]; [[World.md|World]]
+*See also* [[Astronomy.md|Astronomy]]; [[Creation, Create.md|Creation, Create]]; [[Dust.md|Dust]]; [[God, Works of.md|God, Works of]]; [[Ground.md|Ground]]; [[Land.md|Land]]; [[Nature, Earth.md|Nature, Earth]]; [[World.md|World]]
 
 God called the dry land *Earth*, [[Genesis 1.10|Genesis 1:10]] ([[Moses 2.10|Moses 2:10]]).
 

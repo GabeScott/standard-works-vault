@@ -1,6 +1,6 @@
 # Vow
 
-*See also* [[Covenants.md|Covenants]]; [[Oath.md|Oath]]; [[Pledge.md|Pledge]]; [[Promise.md|Promise]]; [[Swearing.md|Swearing]]; [[BD Vows.md|BD Vows]]
+*See also* [[Covenants.md|Covenants]]; [[Oath.md|Oath]]; [[Pledge.md|Pledge]]; [[Promise.md|Promise]]; [[Swearing, Swear, Sware, Sworn.md|Swearing, Swear, Sware, Sworn]]; [[BD Vows.md|BD Vows]]
 
 Jacob *vowed* a *vow*, [[Genesis 28.20|Genesis 28:20]].
 

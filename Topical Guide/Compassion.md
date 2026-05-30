@@ -1,6 +1,6 @@
 # Compassion
 
-*See also* [[Benevolence.md|Benevolence]]; [[Charity.md|Charity]]; [[Comfort.md|Comfort]]; [[God, Love of.md|God, Love of]]; [[Kindness.md|Kindness]]; [[Love.md|Love]]; [[Loving-Kindness.md|Loving-Kindness]]; [[Mercy.md|Mercy]]; [[Pity.md|Pity]]; [[Welfare.md|Welfare]]
+*See also* [[Benevolence.md|Benevolence]]; [[Charity.md|Charity]]; [[Comfort.md|Comfort]]; [[God, Love of.md|God, Love of]]; [[Kindness.md|Kindness]]; [[Love.md|Love]]; [[Loving-Kindness.md|Loving-Kindness]]; [[Mercy, Merciful.md|Mercy, Merciful]]; [[Pity.md|Pity]]; [[Welfare.md|Welfare]]
 
 Thou shalt *not curse* the deaf, [[Leviticus 19.14|Leviticus 19:14]].
 

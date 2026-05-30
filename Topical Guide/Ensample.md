@@ -1,3 +1,3 @@
 # Ensample
 
-*See also* [[Example.md|Example]]
+*See also* [[Example, Ensample.md|Example, Ensample]]

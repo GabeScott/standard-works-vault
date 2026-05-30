@@ -1,6 +1,6 @@
 # Reserve
 
-*See also* [[Keep.md|Keep]]
+*See also* [[Keep, Kept.md|Keep, Kept]]
 
 Hast thou not *reserved* a blessing for me, [[Genesis 27.36|Genesis 27:36]].
 

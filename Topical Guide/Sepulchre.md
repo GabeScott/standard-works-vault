@@ -1,6 +1,6 @@
 # Sepulchre
 
-*See also* [[Grave (noun).md|Grave (noun)]]; [[Tomb.md|Tomb]]
+*See also* [[Grave.md|Grave]]; [[Tomb.md|Tomb]]
 
 no man knoweth of his *sepulchre*, [[Deuteronomy 34.6|Deuteronomy 34:6]].
 

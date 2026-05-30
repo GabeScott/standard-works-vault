@@ -1,6 +1,6 @@
 # Filthiness, Filthy
 
-*See also* [[Corrupt.md|Corrupt]]; [[Corruption.md|Corruption]]; [[Defile.md|Defile]]; [[Pollution.md|Pollution]]; [[Uncleanness.md|Uncleanness]]; [[Whore.md|Whore]]
+*See also* [[Corrupt.md|Corrupt]]; [[Corruption.md|Corruption]]; [[Defile.md|Defile]]; [[Pollution, Pollute.md|Pollution, Pollute]]; [[Uncleanness, Unclean.md|Uncleanness, Unclean]]; [[Whore, Whoredom.md|Whore, Whoredom]]
 
 carry forth the *filthiness* out of the holy place, [[2 Chronicles 29.5|2 Chronicles 29:5]].
 

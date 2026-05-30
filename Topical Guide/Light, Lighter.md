@@ -1,6 +1,6 @@
 # Light, Lighter [adjective]
 
-*See also* [[Easy.md|Easy]]; [[Little.md|Little]]; [[Small.md|Small]]
+*See also* [[Easy, Easier.md|Easy, Easier]]; [[Little.md|Little]]; [[Small, Smallest.md|Small, Smallest]]
 
 *light* thing that thou shouldest be my servant, [[Isaiah 49.6|Isaiah 49:6]] ([[1 Nephi 21.6|1 Nephi 21:6]]).
 

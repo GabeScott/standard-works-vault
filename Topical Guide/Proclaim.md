@@ -1,6 +1,6 @@
 # Proclaim
 
-*See also* [[Declare.md|Declare]]; [[Preaching.md|Preaching]]; [[Publish.md|Publish]]
+*See also* [[Declare.md|Declare]]; [[Preaching, Preach.md|Preaching, Preach]]; [[Publish.md|Publish]]
 
 I will *proclaim* the name of the Lord, [[Exodus 33.19|Exodus 33:19]].
 

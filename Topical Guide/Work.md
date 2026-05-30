@@ -1,6 +1,6 @@
 # Work
 
-*See also* [[Duty.md|Duty]]; [[Example.md|Example]]; [[Good Works.md|Good Works]]; [[Idleness.md|Idleness]]; [[Industry.md|Industry]]; [[Initiative.md|Initiative]]; [[Labor.md|Labor]]; [[Laziness.md|Laziness]]; [[Priesthood, Magnifying Callings within.md|Priesthood, Magnifying Callings within]]; [[Service.md|Service]]; [[Skill.md|Skill]]; [[Welfare.md|Welfare]]; [[Work, Value of.md|Work, Value of]]; [[Workmanship.md|Workmanship]]; [[Works.md|Works]]
+*See also* [[Duty.md|Duty]]; [[Example, Ensample.md|Example, Ensample]]; [[Good Works.md|Good Works]]; [[Idleness, Idle, Idler.md|Idleness, Idle, Idler]]; [[Industry, Industrious.md|Industry, Industrious]]; [[Initiative.md|Initiative]]; [[Labor.md|Labor]]; [[Laziness.md|Laziness]]; [[Priesthood, Magnifying Callings within.md|Priesthood, Magnifying Callings within]]; [[Service.md|Service]]; [[Skill.md|Skill]]; [[Welfare.md|Welfare]]; [[Work, Value of.md|Work, Value of]]; [[Workmanship.md|Workmanship]]; [[Works.md|Works]]
 
 rested on the seventh day from all his *work*, [[Genesis 2.2|Genesis 2:2]] ([[Hebrews 4.4|Hebrews 4:4]]; [[Mosiah 13.18|Mosiah 13:18]]; [[Moses 3.2|Moses 3:2]]; [[Abraham 5.2|Abraham 5:2]]).
 

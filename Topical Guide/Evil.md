@@ -1,6 +1,6 @@
 # Evil
 
-*See also* [[Abomination.md|Abomination]]; [[Bad.md|Bad]]; [[Carnal Mind.md|Carnal Mind]]; [[Devil.md|Devil]]; [[Evildoer.md|Evildoer]]; [[Filthiness.md|Filthiness]]; [[Iniquity.md|Iniquity]]; [[Sin.md|Sin]]; [[Transgress.md|Transgress]]; [[Wickedness.md|Wickedness]]
+*See also* [[Abomination.md|Abomination]]; [[Bad.md|Bad]]; [[Carnal Mind.md|Carnal Mind]]; [[Devil.md|Devil]]; [[Evildoer.md|Evildoer]]; [[Filthiness, Filthy.md|Filthiness, Filthy]]; [[Iniquity.md|Iniquity]]; [[Sin.md|Sin]]; [[Transgress, Transgression.md|Transgress, Transgression]]; [[Wickedness, Wicked.md|Wickedness, Wicked]]
 
 be as gods, knowing good and *evil*, [[Genesis 3.5|Genesis 3:5]] ([[Moses 4.11|Moses 4:11]]).
 

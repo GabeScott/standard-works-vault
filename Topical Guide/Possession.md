@@ -1,6 +1,6 @@
 # Possession
 
-*See also* [[Goods.md|Goods]]; [[Inheritance.md|Inheritance]]; [[Riches.md|Riches]]; [[Stewardship.md|Stewardship]]; [[Treasure.md|Treasure]]; [[Wealth.md|Wealth]]; [[Worldliness.md|Worldliness]]
+*See also* [[Goods.md|Goods]]; [[Inheritance.md|Inheritance]]; [[Riches.md|Riches]]; [[Stewardship, Steward.md|Stewardship, Steward]]; [[Treasure.md|Treasure]]; [[Wealth.md|Wealth]]; [[Worldliness.md|Worldliness]]
 
 land of Canaan, for an everlasting *possession*, [[Genesis 17.8|Genesis 17:8]].
 

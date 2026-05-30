@@ -1,6 +1,6 @@
 # Serve
 
-*See also* [[Minister.md|Minister]]; [[Obedience.md|Obedience]]; [[Service.md|Service]]; [[Work.md|Work]]; [[Worship.md|Worship]]
+*See also* [[Minister.md|Minister]]; [[Obedience, Obedient, Obey.md|Obedience, Obedient, Obey]]; [[Service.md|Service]]; [[Work.md|Work]]; [[Worship.md|Worship]]
 
 thy seed shall be a stranger … and shall *serve* them, [[Genesis 15.13|Genesis 15:13]].
 

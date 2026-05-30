@@ -1,6 +1,6 @@
 # Darkness, Spiritual
 
-*See also* [[Blindness.md|Blindness]]; [[Evil.md|Evil]]; [[Ignorance.md|Ignorance]]; [[Sin.md|Sin]]; [[Walking in Darkness.md|Walking in Darkness]]
+*See also* [[Blindness.md|Blindness]]; [[Evil.md|Evil]]; [[Ignorance, Ignorant.md|Ignorance, Ignorant]]; [[Sin.md|Sin]]; [[Walking in Darkness.md|Walking in Darkness]]
 
 as the blind gropeth in *darkness*, [[Deuteronomy 28.29|Deuteronomy 28:29]].
 

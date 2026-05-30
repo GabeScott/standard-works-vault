@@ -1,6 +1,6 @@
 # Kill
 
-*See also* [[Blood, Shedding of.md|Blood, Shedding of]]; [[Capital Punishment.md|Capital Punishment]]; [[Martyrdom.md|Martyrdom]]; [[Murder.md|Murder]]; [[Persecution.md|Persecution]]; [[Prophets, Rejection of.md|Prophets, Rejection of]]; [[Slaughter.md|Slaughter]]; [[Slay.md|Slay]]; [[Smite.md|Smite]]
+*See also* [[Blood, Shedding of.md|Blood, Shedding of]]; [[Capital Punishment.md|Capital Punishment]]; [[Martyrdom.md|Martyrdom]]; [[Murder, Murderer.md|Murder, Murderer]]; [[Persecution, Persecute.md|Persecution, Persecute]]; [[Prophets, Rejection of.md|Prophets, Rejection of]]; [[Slaughter.md|Slaughter]]; [[Slay, Slew, Slain.md|Slay, Slew, Slain]]; [[Smite, Smote, Smitten.md|Smite, Smote, Smitten]]
 
 mark upon Cain, lest any finding him should *kill* him, [[Genesis 4.15|Genesis 4:15]] ([[Moses 5.40|Moses 5:40]]).
 

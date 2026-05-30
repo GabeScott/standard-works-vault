@@ -1,6 +1,6 @@
 # Cure
 
-*See also* [[Heal.md|Heal]]; [[Restore.md|Restore]]; [[Save.md|Save]]
+*See also* [[Heal, Healing.md|Heal, Healing]]; [[Restore.md|Restore]]; [[Save.md|Save]]
 
 bring it health and *cure*, and I will *cure* them, [[Jeremiah 33.6|Jeremiah 33:6]].
 

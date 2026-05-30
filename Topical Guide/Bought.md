@@ -1,3 +1,3 @@
 # Bought
 
-*See also* [[Buy.md|Buy]]
+*See also* [[Buy, Bought.md|Buy, Bought]]

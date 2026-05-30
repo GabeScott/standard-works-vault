@@ -1,6 +1,6 @@
 # Adulterer, Adultery
 
-*See also* [[Chastity.md|Chastity]]; [[Fornication.md|Fornication]]; [[Harlot.md|Harlot]]; [[Self-Mastery.md|Self-Mastery]]; [[Sexual Immorality.md|Sexual Immorality]]; [[Whore.md|Whore]]
+*See also* [[Chastity, Chaste.md|Chastity, Chaste]]; [[Fornication.md|Fornication]]; [[Harlot.md|Harlot]]; [[Self-Mastery.md|Self-Mastery]]; [[Sexual Immorality.md|Sexual Immorality]]; [[Whore, Whoredom.md|Whore, Whoredom]]
 
 great *wickedness*, and sin against God, [[Genesis 39.9|Genesis 39:9]].
 

@@ -1,6 +1,6 @@
 # Trustworthiness
 
-*See also* [[Dependability.md|Dependability]]; [[Faithfulness.md|Faithfulness]]; [[Honesty.md|Honesty]]; [[Obedience.md|Obedience]]; [[Trust in God.md|Trust in God]]
+*See also* [[Dependability.md|Dependability]]; [[Faithfulness.md|Faithfulness]]; [[Honesty.md|Honesty]]; [[Obedience, Obedient, Obey.md|Obedience, Obedient, Obey]]; [[Trust in God.md|Trust in God]]
 
 he will … *keep* the way of the Lord, [[Genesis 18.19|Genesis 18:19]].
 

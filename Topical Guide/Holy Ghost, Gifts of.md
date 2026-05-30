@@ -1,6 +1,6 @@
 # Holy Ghost, Gifts of
 
-*See also* [[Heal.md|Heal]]; [[Holy Ghost, Comforter.md|Holy Ghost, Comforter]]; [[Holy Ghost, Mission of.md|Holy Ghost, Mission of]]; [[Prophecy.md|Prophecy]]; [[Revelation.md|Revelation]]; [[Vision.md|Vision]]
+*See also* [[Heal, Healing.md|Heal, Healing]]; [[Holy Ghost, Comforter.md|Holy Ghost, Comforter]]; [[Holy Ghost, Mission of.md|Holy Ghost, Mission of]]; [[Prophecy.md|Prophecy]]; [[Revelation.md|Revelation]]; [[Vision.md|Vision]]
 
 filled him with the *spirit* of God, in wisdom, and in understanding, [[Exodus 31.3|Exodus 31:3]] ([[Exodus 36.1|Exodus 36:1]]).
 

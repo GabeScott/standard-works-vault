@@ -1,6 +1,6 @@
 # Purity, Pure
 
-*See also* [[Chastity.md|Chastity]]; [[Cleanliness.md|Cleanliness]]; [[Holy.md|Holy]]; [[Purification.md|Purification]]; [[Sanctification.md|Sanctification]]; [[Virtue.md|Virtue]]; [[Wash.md|Wash]]
+*See also* [[Chastity, Chaste.md|Chastity, Chaste]]; [[Cleanliness.md|Cleanliness]]; [[Holy, Holier, Holiest.md|Holy, Holier, Holiest]]; [[Purification, Purify, Purifying.md|Purification, Purify, Purifying]]; [[Sanctification, Sanctify.md|Sanctification, Sanctify]]; [[Virtue, Virtuous.md|Virtue, Virtuous]]; [[Wash, Washing.md|Wash, Washing]]
 
 words of the Lord are *pure*, [[Psalms 12.6|Psalms 12:6]].
 

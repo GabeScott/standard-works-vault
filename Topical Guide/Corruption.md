@@ -1,6 +1,6 @@
 # Corruption
 
-*See also* [[Bribe.md|Bribe]]; [[Evil.md|Evil]]; [[False Doctrine.md|False Doctrine]]; [[Filthiness.md|Filthiness]]; [[Fraud.md|Fraud]]; [[Idolatry.md|Idolatry]]; [[Man, Natural, Not Spiritually Reborn.md|Man, Natural, Not Spiritually Reborn]]; [[Pollution.md|Pollution]]; [[Sin.md|Sin]]; [[Wickedness.md|Wickedness]]
+*See also* [[Bribe, Bribery.md|Bribe, Bribery]]; [[Evil.md|Evil]]; [[False Doctrine.md|False Doctrine]]; [[Filthiness, Filthy.md|Filthiness, Filthy]]; [[Fraud.md|Fraud]]; [[Idolatry, Idol.md|Idolatry, Idol]]; [[Man, Natural, Not Spiritually Reborn.md|Man, Natural, Not Spiritually Reborn]]; [[Pollution, Pollute.md|Pollution, Pollute]]; [[Sin.md|Sin]]; [[Wickedness, Wicked.md|Wickedness, Wicked]]
 
 right hand of the mount of *corruption*, [[2 Kings 23.13|2 Kings 23:13]].
 

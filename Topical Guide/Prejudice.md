@@ -1,3 +1,3 @@
 # Prejudice
 
-*See also* [[Ignorance.md|Ignorance]]; [[Injustice.md|Injustice]]; [[Judgment.md|Judgment]]
+*See also* [[Ignorance, Ignorant.md|Ignorance, Ignorant]]; [[Injustice.md|Injustice]]; [[Judgment.md|Judgment]]

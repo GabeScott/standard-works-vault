@@ -1,6 +1,6 @@
 # Dominion
 
-*See also* [[Authority.md|Authority]]; [[Governments.md|Governments]]; [[Kingdom.md|Kingdom]]; [[Power.md|Power]]; [[Reign.md|Reign]]; [[Rule.md|Rule]]; [[Unrighteous Dominion.md|Unrighteous Dominion]]
+*See also* [[Authority.md|Authority]]; [[Governments.md|Governments]]; [[Kingdom.md|Kingdom]]; [[Power, Powerful.md|Power, Powerful]]; [[Reign.md|Reign]]; [[Rule.md|Rule]]; [[Unrighteous Dominion.md|Unrighteous Dominion]]
 
 let them have *dominion* over the fish of the sea, [[Genesis 1.26|Genesis 1:26]] ([[Moses 2.26|Moses 2:26]]; [[Abraham 4.26|Abraham 4:26]]).
 

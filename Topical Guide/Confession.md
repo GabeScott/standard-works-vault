@@ -1,6 +1,6 @@
 # Confession
 
-*See also* [[Baptism, Qualifications for.md|Baptism, Qualifications for]]; [[Confess.md|Confess]]; [[Forgive.md|Forgive]]; [[Repent.md|Repent]]; [[BD Confession.md|BD Confession]]
+*See also* [[Baptism, Qualifications for.md|Baptism, Qualifications for]]; [[Confess.md|Confess]]; [[Forgive, Forgiveness.md|Forgive, Forgiveness]]; [[Repent, Repentance.md|Repent, Repentance]]; [[BD Confession.md|BD Confession]]
 
 he shall *confess* that he hath sinned, [[Leviticus 5.5|Leviticus 5:5]].
 

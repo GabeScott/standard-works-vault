@@ -1,6 +1,6 @@
 # Burden
 
-*See also* [[Affliction.md|Affliction]]; [[Oppression.md|Oppression]]; [[Suffering.md|Suffering]]
+*See also* [[Affliction.md|Affliction]]; [[Oppression, Oppress.md|Oppression, Oppress]]; [[Suffering.md|Suffering]]
 
 taskmasters to afflict them with their *burdens*, [[Exodus 1.11|Exodus 1:11]].
 

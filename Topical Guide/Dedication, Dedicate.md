@@ -1,6 +1,6 @@
 # Dedication, Dedicate
 
-*See also* [[Commitment.md|Commitment]]; [[Consecrate.md|Consecrate]]; [[Diligence.md|Diligence]]; [[Obedience.md|Obedience]]; [[Steadfastness.md|Steadfastness]]
+*See also* [[Commitment.md|Commitment]]; [[Consecrate.md|Consecrate]]; [[Diligence, Diligent, Diligently.md|Diligence, Diligent, Diligently]]; [[Obedience, Obedient, Obey.md|Obedience, Obedient, Obey]]; [[Steadfastness, Steadfast.md|Steadfastness, Steadfast]]
 
 the king … *dedicated* the house of the Lord, [[1 Kings 8.63|1 Kings 8:63]] ([[2 Chronicles 7.5|2 Chronicles 7:5]]).
 

@@ -1,6 +1,6 @@
 # Conceive
 
-*See also* [[Barren.md|Barren]]; [[Children.md|Children]]; [[Family.md|Family]]; [[Marriage, Fatherhood.md|Marriage, Fatherhood]]; [[Marriage, Motherhood.md|Marriage, Motherhood]]
+*See also* [[Barren, Barrenness.md|Barren, Barrenness]]; [[Children.md|Children]]; [[Family.md|Family]]; [[Marriage, Fatherhood.md|Marriage, Fatherhood]]; [[Marriage, Motherhood.md|Marriage, Motherhood]]
 
 Adam knew Eve his wife; and she *conceived*, [[Genesis 4.1|Genesis 4:1]].
 

@@ -1,6 +1,6 @@
 # Wise, Wiser
 
-*See also* [[Prudence.md|Prudence]]; [[Wisdom.md|Wisdom]]
+*See also* [[Prudence, Prudent.md|Prudence, Prudent]]; [[Wisdom.md|Wisdom]]
 
 tree to be desired to make one *wise*, [[Genesis 3.6|Genesis 3:6]] ([[Moses 4.12|Moses 4:12]]).
 

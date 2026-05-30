@@ -1,6 +1,6 @@
 # Fraud
 
-*See also* [[Deceit.md|Deceit]]; [[Guile.md|Guile]]; [[Stealing.md|Stealing]]
+*See also* [[Deceit, Deceive.md|Deceit, Deceive]]; [[Guile.md|Guile]]; [[Stealing, Stolen.md|Stealing, Stolen]]
 
 Thou shalt not *defraud* thy neighbour, [[Leviticus 19.13|Leviticus 19:13]].
 

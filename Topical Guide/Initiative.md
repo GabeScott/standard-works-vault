@@ -1,6 +1,6 @@
 # Initiative
 
-*See also* [[Industry.md|Industry]]; [[Zeal.md|Zeal]]
+*See also* [[Industry, Industrious.md|Industry, Industrious]]; [[Zeal, Zealous.md|Zeal, Zealous]]
 
 every man that giveth it *willingly* with his heart, [[Exodus 25.2|Exodus 25:2]].
 

@@ -1,6 +1,6 @@
 # Guidance, Divine
 
-*See also* [[God, Spirit of.md|God, Spirit of]]; [[God, Wisdom of.md|God, Wisdom of]]; [[Holy Ghost, Mission of.md|Holy Ghost, Mission of]]; [[Inspiration.md|Inspiration]]; [[Revelation.md|Revelation]]; [[Spirit.md|Spirit]]; [[Walking with God.md|Walking with God]]
+*See also* [[God, Spirit of.md|God, Spirit of]]; [[God, Wisdom of.md|God, Wisdom of]]; [[Holy Ghost, Mission of.md|Holy Ghost, Mission of]]; [[Inspiration, Inspire.md|Inspiration, Inspire]]; [[Revelation.md|Revelation]]; [[Spirit.md|Spirit]]; [[Walking with God.md|Walking with God]]
 
 Lord *led* me to the house of my master’s brethren, [[Genesis 24.27|Genesis 24:27]].
 

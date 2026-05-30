@@ -1,6 +1,6 @@
 # Descend
 
-*See also* [[Fall.md|Fall]]; [[Light (verb).md|Light (verb)]]
+*See also* [[Fall, Fallen, Fell.md|Fall, Fallen, Fell]]; [[Light (verb).md|Light (verb)]]
 
 angels of God ascending and *descending*, [[Genesis 28.12|Genesis 28:12]].
 

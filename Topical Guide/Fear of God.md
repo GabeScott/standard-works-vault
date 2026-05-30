@@ -1,6 +1,6 @@
 # Fear of God
 
-*See also* [[Dread.md|Dread]]; [[Honor.md|Honor]]; [[Obedience.md|Obedience]]; [[Respect.md|Respect]]; [[Reverence.md|Reverence]]; [[Worship.md|Worship]]
+*See also* [[Dread.md|Dread]]; [[Honor.md|Honor]]; [[Obedience, Obedient, Obey.md|Obedience, Obedient, Obey]]; [[Respect.md|Respect]]; [[Reverence.md|Reverence]]; [[Worship.md|Worship]]
 
 *Fear* not, Abram: I am thy shield, [[Genesis 15.1|Genesis 15:1]].
 

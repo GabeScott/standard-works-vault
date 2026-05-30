@@ -1,6 +1,6 @@
 # Virtue, Virtuous
 
-*See also* [[Chastity.md|Chastity]]; [[Cleanliness.md|Cleanliness]]; [[Goodness.md|Goodness]]; [[Holiness.md|Holiness]]; [[Modesty.md|Modesty]]; [[Purity.md|Purity]]; [[Sacred.md|Sacred]]
+*See also* [[Chastity, Chaste.md|Chastity, Chaste]]; [[Cleanliness.md|Cleanliness]]; [[Goodness.md|Goodness]]; [[Holiness.md|Holiness]]; [[Modesty.md|Modesty]]; [[Purity, Pure.md|Purity, Pure]]; [[Sacred.md|Sacred]]
 
 thou art a *virtuous* woman, [[Ruth 3.11|Ruth 3:11]].
 

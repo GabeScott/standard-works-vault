@@ -1,6 +1,6 @@
 # Levity
 
-*See also* [[Laughter.md|Laughter]]; [[Sobriety.md|Sobriety]]
+*See also* [[Laughter, Laugh.md|Laughter, Laugh]]; [[Sobriety, Sober, Soberness.md|Sobriety, Sober, Soberness]]
 
 is the *laughter* of the fool, [[Ecclesiastes 7.6|Ecclesiastes 7:6]].
 

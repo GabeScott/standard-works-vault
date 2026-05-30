@@ -1,6 +1,6 @@
 # Weeping
 
-*See also* [[Lamentation.md|Lamentation]]; [[Mourning.md|Mourning]]; [[Wail.md|Wail]]; [[Weep.md|Weep]]
+*See also* [[Lamentation.md|Lamentation]]; [[Mourning, Mourn.md|Mourning, Mourn]]; [[Wail, Wailing.md|Wail, Wailing]]; [[Weep, Wept.md|Weep, Wept]]
 
 *weeping* may endure for a night, but joy cometh in the morning, [[Psalms 30.5|Psalms 30:5]].
 

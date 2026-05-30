@@ -1,6 +1,6 @@
 # Hard, Harder
 
-*See also* [[Hardheartedness.md|Hardheartedness]]
+*See also* [[Hardheartedness, Harden, Hardness.md|Hardheartedness, Harden, Hardness]]
 
 Is any thing too *hard* for the Lord, [[Genesis 18.14|Genesis 18:14]] ([[Jeremiah 32.27|Jeremiah 32:27]]).
 

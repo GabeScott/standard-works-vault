@@ -1,6 +1,6 @@
 # Falsehood
 
-*See also* [[Deceit.md|Deceit]]; [[Hypocrisy.md|Hypocrisy]]; [[Lie.md|Lie]]; [[Lying.md|Lying]]
+*See also* [[Deceit, Deceive.md|Deceit, Deceive]]; [[Hypocrisy, Hypocrite.md|Hypocrisy, Hypocrite]]; [[Lie, Lay, Lain.md|Lie, Lay, Lain]]; [[Lying, Liar, Lie.md|Lying, Liar, Lie]]
 
 their right hand is a right hand of *falsehood*, [[Psalms 144.8|Psalms 144:8]].
 

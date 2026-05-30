@@ -1,6 +1,6 @@
 # Prayer, Pray
 
-*See also* [[Communication.md|Communication]]; [[Faith.md|Faith]]; [[God, Access to.md|God, Access to]]; [[Meditation.md|Meditation]]; [[Supplication.md|Supplication]]; [[BD Prayer.md|BD Prayer]]
+*See also* [[Communication.md|Communication]]; [[Faith.md|Faith]]; [[God, Access to.md|God, Access to]]; [[Meditation, Meditate.md|Meditation, Meditate]]; [[Supplication.md|Supplication]]; [[BD Prayer.md|BD Prayer]]
 
 then began men to *call* upon the name of the Lord, [[Genesis 4.26|Genesis 4:26]] ([[Genesis 21.33|Genesis 21:33]]; [[Romans 10.13|Romans 10:13]]; [[Mosiah 4.11|Mosiah 4:11]]; [[Ether 2.14|Ether 2:14]]; [[Moses 6.4|Moses 6:4]]).
 

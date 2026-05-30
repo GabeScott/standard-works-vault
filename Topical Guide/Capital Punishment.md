@@ -1,6 +1,6 @@
 # Capital Punishment
 
-*See also* [[Blood, Shedding of.md|Blood, Shedding of]]; [[Murder.md|Murder]]
+*See also* [[Blood, Shedding of.md|Blood, Shedding of]]; [[Murder, Murderer.md|Murder, Murderer]]
 
 Whoso sheddeth man’s blood, by man shall his *blood* be shed, [[Genesis 9.6|Genesis 9:6]].
 

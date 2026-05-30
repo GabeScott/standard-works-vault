@@ -1,6 +1,6 @@
 # Cheer
 
-*See also* [[Cheerful.md|Cheerful]]; [[Mirth.md|Mirth]]; [[Rejoice.md|Rejoice]]
+*See also* [[Cheerful, Cheerfulness.md|Cheerful, Cheerfulness]]; [[Mirth.md|Mirth]]; [[Rejoice.md|Rejoice]]
 
 he shall be free at home one year, and shall *cheer* up his wife, [[Deuteronomy 24.5|Deuteronomy 24:5]].
 

@@ -1,6 +1,6 @@
 # Repent, Repentance
 
-*See also* [[Baptism, Qualifications for.md|Baptism, Qualifications for]]; [[Confession.md|Confession]]; [[Contrite Heart.md|Contrite Heart]]; [[Excommunication.md|Excommunication]]; [[Forgive.md|Forgive]]; [[Guilt.md|Guilt]]; [[Problem-Solving.md|Problem-Solving]]; [[Purification.md|Purification]]; [[Remission of Sins.md|Remission of Sins]]; [[Return.md|Return]]; [[Turn.md|Turn]]; [[BD Repentance.md|BD Repentance]]
+*See also* [[Baptism, Qualifications for.md|Baptism, Qualifications for]]; [[Confession.md|Confession]]; [[Contrite Heart.md|Contrite Heart]]; [[Excommunication.md|Excommunication]]; [[Forgive, Forgiveness.md|Forgive, Forgiveness]]; [[Guilt, Guilty.md|Guilt, Guilty]]; [[Problem-Solving.md|Problem-Solving]]; [[Purification, Purify, Purifying.md|Purification, Purify, Purifying]]; [[Remission of Sins.md|Remission of Sins]]; [[Return.md|Return]]; [[Turn.md|Turn]]; [[BD Repentance.md|BD Repentance]]
 
 it *repented* the Lord that he had made man (, [[Genesis 6.6|Genesis 6:6]].
 

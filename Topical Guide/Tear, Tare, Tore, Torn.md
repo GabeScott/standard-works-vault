@@ -1,6 +1,6 @@
 # Tear, Tare, Tore, Torn
 
-*See also* [[Rend.md|Rend]]
+*See also* [[Rend, Rent.md|Rend, Rent]]
 
 Surely he is *torn* in pieces, [[Genesis 44.28|Genesis 44:28]].
 

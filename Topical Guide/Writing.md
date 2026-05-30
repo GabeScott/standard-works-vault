@@ -1,6 +1,6 @@
 # Writing
 
-*See also* [[Write.md|Write]]; [[BD Writing.md|BD Writing]]
+*See also* [[Write, Wrote, Written.md|Write, Wrote, Written]]; [[BD Writing.md|BD Writing]]
 
 the *writing* was the *writing* of God, [[Exodus 32.16|Exodus 32:16]].
 

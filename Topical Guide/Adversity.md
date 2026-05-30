@@ -1,6 +1,6 @@
 # Adversity
 
-*See also* [[Affliction.md|Affliction]]; [[Agency.md|Agency]]; [[Suffering.md|Suffering]]; [[Test.md|Test]]; [[Tribulation.md|Tribulation]]; [[Trouble.md|Trouble]]
+*See also* [[Affliction.md|Affliction]]; [[Agency.md|Agency]]; [[Suffering.md|Suffering]]; [[Test, Try, Prove.md|Test, Try, Prove]]; [[Tribulation.md|Tribulation]]; [[Trouble.md|Trouble]]
 
 saved you out of all your *adversities*, [[1 Samuel 10.19|1 Samuel 10:19]].
 

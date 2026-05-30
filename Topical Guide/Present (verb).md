@@ -1,6 +1,6 @@
 # Present [verb]
 
-*See also* [[Give.md|Give]]; [[Offer.md|Offer]]
+*See also* [[Give, Gave, Given.md|Give, Gave, Given]]; [[Offer.md|Offer]]
 
 come … unto mount Sinai, and *present* thyself, [[Exodus 34.2|Exodus 34:2]].
 

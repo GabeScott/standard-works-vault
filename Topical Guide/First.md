@@ -1,6 +1,6 @@
 # First
 
-*See also* [[Beginning.md|Beginning]]; [[Creation.md|Creation]]
+*See also* [[Beginning.md|Beginning]]; [[Creation, Create.md|Creation, Create]]
 
 evening and the morning were the *first* day, [[Genesis 1.5|Genesis 1:5]].
 

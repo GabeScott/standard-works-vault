@@ -1,6 +1,6 @@
 # Excuse
 
-*See also* [[Apathy.md|Apathy]]; [[Laziness.md|Laziness]]; [[Procrastination.md|Procrastination]]
+*See also* [[Apathy.md|Apathy]]; [[Laziness.md|Laziness]]; [[Procrastination, Procrastinate.md|Procrastination, Procrastinate]]
 
 all with one consent began to make *excuse*, [[Luke 14.18|Luke 14:18]].
 

@@ -1,6 +1,6 @@
 # Strength
 
-*See also* [[Arm.md|Arm]]; [[Courage.md|Courage]]; [[Health.md|Health]]; [[Might.md|Might]]; [[Power.md|Power]]; [[Priesthood, Power of.md|Priesthood, Power of]]; [[Strengthen.md|Strengthen]]; [[Strong.md|Strong]]
+*See also* [[Arm.md|Arm]]; [[Courage, Courageous.md|Courage, Courageous]]; [[Health.md|Health]]; [[Might.md|Might]]; [[Power, Powerful.md|Power, Powerful]]; [[Priesthood, Power of.md|Priesthood, Power of]]; [[Strengthen.md|Strengthen]]; [[Strong, Stronger, Strongest.md|Strong, Stronger, Strongest]]
 
 Lord is my *strength*, [[Exodus 15.2|Exodus 15:2]] ([[Psalms 19.14|Psalms 19:14]]; [[Psalms 27.1|Psalms 27:1]]; [[Psalms 118.14|Psalms 118:14]]; [[Isaiah 12.2|Isaiah 12:2]]; [[Isaiah 26.4|Isaiah 26:4]]; [[2 Nephi 22.2|2 Nephi 22:2]]).
 

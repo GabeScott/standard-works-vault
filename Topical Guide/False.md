@@ -1,6 +1,6 @@
 # False
 
-*See also* [[False Christs.md|False Christs]]; [[False Doctrine.md|False Doctrine]]; [[False Priesthoods.md|False Priesthoods]]; [[False Prophets.md|False Prophets]]; [[Lying.md|Lying]]; [[Wrong.md|Wrong]]
+*See also* [[False Christs.md|False Christs]]; [[False Doctrine.md|False Doctrine]]; [[False Priesthoods.md|False Priesthoods]]; [[False Prophets.md|False Prophets]]; [[Lying, Liar, Lie.md|Lying, Liar, Lie]]; [[Wrong.md|Wrong]]
 
 Thou shalt not bear *false* witness, [[Exodus 20.16|Exodus 20:16]] ([[Deuteronomy 5.20|Deuteronomy 5:20]]; [[Matthew 19.18|Matthew 19:18]]; [[Mark 10.19|Mark 10:19]]; [[Luke 18.20|Luke 18:20]]; [[Romans 13.9|Romans 13:9]]; [[Mosiah 13.23|Mosiah 13:23]]).
 

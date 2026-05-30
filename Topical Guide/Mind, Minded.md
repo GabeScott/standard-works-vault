@@ -1,6 +1,6 @@
 # Mind, Minded
 
-*See also* [[Intelligence.md|Intelligence]]; [[Learn.md|Learn]]; [[Study.md|Study]]
+*See also* [[Intelligence.md|Intelligence]]; [[Learn, Learning.md|Learn, Learning]]; [[Study.md|Study]]
 
 *mind* of the Lord might be shewed them, [[Leviticus 24.12|Leviticus 24:12]].
 

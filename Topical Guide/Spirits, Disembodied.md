@@ -1,6 +1,6 @@
 # Spirits, Disembodied
 
-*See also* [[Death.md|Death]]; [[Paradise.md|Paradise]]; [[Spirits in Prison.md|Spirits in Prison]]
+*See also* [[Death.md|Death]]; [[Paradise, Paradisiacal.md|Paradise, Paradisiacal]]; [[Spirits in Prison.md|Spirits in Prison]]
 
 Abraham gave up the *ghost*, [[Genesis 25.8|Genesis 25:8]] ([[Genesis 49.33|Genesis 49:33]]).
 

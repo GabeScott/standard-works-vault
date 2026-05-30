@@ -1,6 +1,6 @@
 # Tempt
 
-*See also* [[Entice.md|Entice]]; [[Prove.md|Prove]]; [[Temptation.md|Temptation]]; [[Tempter.md|Tempter]]; [[Test.md|Test]]; [[Try.md|Try]]
+*See also* [[Entice.md|Entice]]; [[Prove.md|Prove]]; [[Temptation.md|Temptation]]; [[Tempter.md|Tempter]]; [[Test, Try, Prove.md|Test, Try, Prove]]; [[Try, Tried.md|Try, Tried]]
 
 God did *tempt* Abraham, [[Genesis 22.1|Genesis 22:1]].
 

@@ -1,6 +1,6 @@
 # Timber
 
-*See also* [[Wood.md|Wood]]
+*See also* [[Wood, Woods.md|Wood, Woods]]
 
 they prepared *timber* … to build, [[1 Kings 5.18|1 Kings 5:18]] ([[2 Chronicles 2.9|2 Chronicles 2:9]]).
 

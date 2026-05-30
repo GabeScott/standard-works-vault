@@ -1,6 +1,6 @@
 # Resurrection
 
-*See also* [[Eternal Life.md|Eternal Life]]; [[Fall of Man.md|Fall of Man]]; [[Immortality.md|Immortality]]; [[Jesus Christ, Resurrection.md|Jesus Christ, Resurrection]]; [[BD Resurrection.md|BD Resurrection]]
+*See also* [[Eternal Life.md|Eternal Life]]; [[Fall of Man.md|Fall of Man]]; [[Immortality, Immortal.md|Immortality, Immortal]]; [[Jesus Christ, Resurrection.md|Jesus Christ, Resurrection]]; [[BD Resurrection.md|BD Resurrection]]
 
 he bringeth down to the grave, and *bringeth* up, [[1 Samuel 2.6|1 Samuel 2:6]].
 

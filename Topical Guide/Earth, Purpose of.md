@@ -1,6 +1,6 @@
 # Earth, Purpose of
 
-*See also* [[Creation.md|Creation]]
+*See also* [[Creation, Create.md|Creation, Create]]
 
 replenish the *earth*, and subdue it, [[Genesis 1.28|Genesis 1:28]] ([[Moses 2.28|Moses 2:28]]).
 

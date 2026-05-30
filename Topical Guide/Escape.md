@@ -1,6 +1,6 @@
 # Escape
 
-*See also* [[Deliver.md|Deliver]]; [[Flee.md|Flee]]; [[Salvation.md|Salvation]]
+*See also* [[Deliver, Deliverance.md|Deliver, Deliverance]]; [[Flee, Fled.md|Flee, Fled]]; [[Salvation.md|Salvation]]
 
 *Escape* for thy life; look not behind thee, [[Genesis 19.17|Genesis 19:17]].
 

@@ -1,6 +1,6 @@
 # Rob
 
-*See also* [[Robber.md|Robber]]; [[Robbery.md|Robbery]]; [[Stealing.md|Stealing]]
+*See also* [[Robber.md|Robber]]; [[Robbery.md|Robbery]]; [[Stealing, Stolen.md|Stealing, Stolen]]
 
 not defraud thy neighbour, neither *rob* him, [[Leviticus 19.13|Leviticus 19:13]].
 

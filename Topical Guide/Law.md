@@ -1,6 +1,6 @@
 # Law
 
-*See also* [[Accountability.md|Accountability]]; [[Citizenship.md|Citizenship]]; [[Command.md|Command]]; [[Commandments of God.md|Commandments of God]]; [[Decree.md|Decree]]; [[God, Law of.md|God, Law of]]; [[God, Will of.md|God, Will of]]; [[Governments.md|Governments]]; [[Ignorance.md|Ignorance]]; [[Law of Moses.md|Law of Moses]]; [[Order.md|Order]]; [[Ordinance.md|Ordinance]]; [[Precept.md|Precept]]; [[Statute.md|Statute]]
+*See also* [[Accountability.md|Accountability]]; [[Citizenship.md|Citizenship]]; [[Command.md|Command]]; [[Commandments of God.md|Commandments of God]]; [[Decree.md|Decree]]; [[God, Law of.md|God, Law of]]; [[God, Will of.md|God, Will of]]; [[Governments.md|Governments]]; [[Ignorance, Ignorant.md|Ignorance, Ignorant]]; [[Law of Moses.md|Law of Moses]]; [[Order.md|Order]]; [[Ordinance.md|Ordinance]]; [[Precept.md|Precept]]; [[Statute.md|Statute]]
 
 Joseph made it a *law* over the land, [[Genesis 47.26|Genesis 47:26]].
 

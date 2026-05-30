@@ -1,3 +1,3 @@
 # Criticism
 
-*See also* [[Chastening.md|Chastening]]; [[Murmuring.md|Murmuring]]; [[Reproof.md|Reproof]]
+*See also* [[Chastening.md|Chastening]]; [[Murmuring, Murmur.md|Murmuring, Murmur]]; [[Reproof, Reprove.md|Reproof, Reprove]]

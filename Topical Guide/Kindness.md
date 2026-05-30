@@ -1,6 +1,6 @@
 # Kindness
 
-*See also* [[Benevolence.md|Benevolence]]; [[Compassion.md|Compassion]]; [[Courtesy.md|Courtesy]]; [[Gentle.md|Gentle]]; [[God, Mercy of.md|God, Mercy of]]; [[Grace.md|Grace]]; [[Gracious.md|Gracious]]; [[Mercy.md|Mercy]]
+*See also* [[Benevolence.md|Benevolence]]; [[Compassion.md|Compassion]]; [[Courtesy.md|Courtesy]]; [[Gentle.md|Gentle]]; [[God, Mercy of.md|God, Mercy of]]; [[Grace.md|Grace]]; [[Gracious.md|Gracious]]; [[Mercy, Merciful.md|Mercy, Merciful]]
 
 thy *kindness* which thou shalt shew, [[Genesis 20.13|Genesis 20:13]].
 

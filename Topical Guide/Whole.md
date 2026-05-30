@@ -1,6 +1,6 @@
 # Whole
 
-*See also* [[Just.md|Just]]; [[Perfection.md|Perfection]]; [[Well (adjective, adverb).md|Well (adjective, adverb)]]; [[Wholly.md|Wholly]]
+*See also* [[Just.md|Just]]; [[Perfection, Perfect, Perfectly.md|Perfection, Perfect, Perfectly]]; [[Well.md|Well]]; [[Wholly.md|Wholly]]
 
 mist … watered the *whole* face of the ground, [[Genesis 2.6|Genesis 2:6]] ([[Moses 3.6|Moses 3:6]]; [[Abraham 5.6|Abraham 5:6]]).
 

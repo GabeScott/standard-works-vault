@@ -1,6 +1,6 @@
 # Glory
 
-*See also* [[Celestial Glory.md|Celestial Glory]]; [[Earth, Destiny of.md|Earth, Destiny of]]; [[Earth, Renewal of.md|Earth, Renewal of]]; [[Eternal Life.md|Eternal Life]]; [[Exaltation.md|Exaltation]]; [[Glorify.md|Glorify]]; [[Glorious.md|Glorious]]; [[God, Glory of.md|God, Glory of]]; [[Heaven.md|Heaven]]; [[Honor.md|Honor]]; [[Majesty.md|Majesty]]; [[Man, Potential to Become like Heavenly Father.md|Man, Potential to Become like Heavenly Father]]; [[Praise.md|Praise]]; [[Reward.md|Reward]]; [[Telestial Glory.md|Telestial Glory]]; [[Terrestrial Glory.md|Terrestrial Glory]]; [[Transfiguration.md|Transfiguration]]
+*See also* [[Celestial Glory.md|Celestial Glory]]; [[Earth, Destiny of.md|Earth, Destiny of]]; [[Earth, Renewal of.md|Earth, Renewal of]]; [[Eternal Life.md|Eternal Life]]; [[Exaltation.md|Exaltation]]; [[Glorify.md|Glorify]]; [[Glorious.md|Glorious]]; [[God, Glory of.md|God, Glory of]]; [[Heaven.md|Heaven]]; [[Honor.md|Honor]]; [[Majesty.md|Majesty]]; [[Man, Potential to Become like Heavenly Father.md|Man, Potential to Become like Heavenly Father]]; [[Praise.md|Praise]]; [[Reward.md|Reward]]; [[Telestial Glory.md|Telestial Glory]]; [[Terrestrial Glory.md|Terrestrial Glory]]; [[Transfiguration, Transfigured.md|Transfiguration, Transfigured]]
 
 *glory* is departed from Israel, [[1 Samuel 4.21|1 Samuel 4:21]].
 

@@ -1,6 +1,6 @@
 # Counsel
 
-*See also* [[Edification.md|Edification]]; [[Problem-Solving.md|Problem-Solving]]
+*See also* [[Edification, Edify.md|Edification, Edify]]; [[Problem-Solving.md|Problem-Solving]]
 
 I will give thee *counsel*, [[Exodus 18.19|Exodus 18:19]].
 

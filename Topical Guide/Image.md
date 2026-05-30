@@ -1,6 +1,6 @@
 # Image
 
-*See also* [[god.md|god]]; [[Idolatry.md|Idolatry]]; [[Likeness.md|Likeness]]
+*See also* [[god (lowercase).md|god (lowercase)]]; [[Idolatry, Idol.md|Idolatry, Idol]]; [[Likeness.md|Likeness]]
 
 Let us make man in our *image*, [[Genesis 1.26|Genesis 1:26]] ([[Genesis 1.27|Genesis 1:27]]; [[Genesis 9.6|Genesis 9:6]]).
 

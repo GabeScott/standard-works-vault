@@ -1,6 +1,6 @@
 # Value
 
-*See also* [[Example.md|Example]]; [[God, the Standard of Righteousness.md|God, the Standard of Righteousness]]; [[Motivations.md|Motivations]]; [[Perfection.md|Perfection]]; [[Worth.md|Worth]]
+*See also* [[Example, Ensample.md|Example, Ensample]]; [[God, the Standard of Righteousness.md|God, the Standard of Righteousness]]; [[Motivations.md|Motivations]]; [[Perfection, Perfect, Perfectly.md|Perfection, Perfect, Perfectly]]; [[Worth.md|Worth]]
 
 ye are all physicians of no *value*, [[Job 13.4|Job 13:4]].
 

@@ -1,6 +1,6 @@
 # Thanksgiving
 
-*See also* [[Ingratitude.md|Ingratitude]]; [[Praise.md|Praise]]; [[Prayer.md|Prayer]]; [[Rejoice.md|Rejoice]]; [[Thank.md|Thank]]; [[Thankful.md|Thankful]]; [[Thanks.md|Thanks]]
+*See also* [[Ingratitude.md|Ingratitude]]; [[Praise.md|Praise]]; [[Prayer, Pray.md|Prayer, Pray]]; [[Rejoice.md|Rejoice]]; [[Thank.md|Thank]]; [[Thankful.md|Thankful]]; [[Thanks.md|Thanks]]
 
 offer it for a *thanksgiving*, then he shall offer with the sacrifice of *thanksgiving*, [[Leviticus 7.12|Leviticus 7:12]].
 

@@ -1,6 +1,6 @@
 # Prophecy
 
-*See also* [[Declare.md|Declare]]; [[Holy Ghost, Gifts of.md|Holy Ghost, Gifts of]]; [[Inspiration.md|Inspiration]]; [[Jesus Christ, Prophecies about.md|Jesus Christ, Prophecies about]]; [[Preaching.md|Preaching]]; [[Proclaim.md|Proclaim]]; [[Prophets, Mission of.md|Prophets, Mission of]]; [[Revelation.md|Revelation]]
+*See also* [[Declare.md|Declare]]; [[Holy Ghost, Gifts of.md|Holy Ghost, Gifts of]]; [[Inspiration, Inspire.md|Inspiration, Inspire]]; [[Jesus Christ, Prophecies about.md|Jesus Christ, Prophecies about]]; [[Preaching, Preach.md|Preaching, Preach]]; [[Proclaim.md|Proclaim]]; [[Prophets, Mission of.md|Prophets, Mission of]]; [[Revelation.md|Revelation]]
 
 he shall be thy *spokesman* … instead of God, [[Exodus 4.16|Exodus 4:16]].
 

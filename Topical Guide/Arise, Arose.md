@@ -1,6 +1,6 @@
 # Arise, Arose
 
-*See also* [[Rise.md|Rise]]
+*See also* [[Rise, Rose, Risen.md|Rise, Rose, Risen]]
 
 together with my dead body shall they *arise*, [[Isaiah 26.19|Isaiah 26:19]].
 

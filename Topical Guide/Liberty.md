@@ -1,6 +1,6 @@
 # Liberty
 
-*See also* [[Agency.md|Agency]]; [[Bondage, Physical.md|Bondage, Physical]]; [[Bondage, Spiritual.md|Bondage, Spiritual]]; [[Citizenship.md|Citizenship]]; [[Deliver.md|Deliver]]; [[Freedom.md|Freedom]]; [[Governments.md|Governments]]; [[Opposition.md|Opposition]]
+*See also* [[Agency.md|Agency]]; [[Bondage, Physical.md|Bondage, Physical]]; [[Bondage, Spiritual.md|Bondage, Spiritual]]; [[Citizenship.md|Citizenship]]; [[Deliver, Deliverance.md|Deliver, Deliverance]]; [[Freedom.md|Freedom]]; [[Governments.md|Governments]]; [[Opposition.md|Opposition]]
 
 in the seventh he shall go out *free* for nothing, [[Exodus 21.2|Exodus 21:2]].
 

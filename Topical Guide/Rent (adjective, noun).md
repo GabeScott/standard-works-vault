@@ -1,6 +1,6 @@
 # Rent [adjective, noun]
 
-*See also* [[Rend.md|Rend]]
+*See also* [[Rend, Rent.md|Rend, Rent]]
 
 wine bottles, old, and *rent*, [[Joshua 9.4|Joshua 9:4]].
 

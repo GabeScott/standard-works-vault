@@ -1,6 +1,6 @@
 # Reveal
 
-*See also* [[Manifest.md|Manifest]]; [[Revelation.md|Revelation]]; [[Tell.md|Tell]]
+*See also* [[Manifest.md|Manifest]]; [[Revelation.md|Revelation]]; [[Tell, Told.md|Tell, Told]]
 
 things which are *revealed* belong unto us, [[Deuteronomy 29.29|Deuteronomy 29:29]].
 

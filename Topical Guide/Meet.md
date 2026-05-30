@@ -1,6 +1,6 @@
 # Meet [adjective]
 
-*See also* [[Fit.md|Fit]]; [[Worthiness.md|Worthiness]]
+*See also* [[Fit.md|Fit]]; [[Worthiness, Worthy.md|Worthiness, Worthy]]
 
 I will make him an help *meet* for him, [[Genesis 2.18|Genesis 2:18]] ([[Moses 3.18|Moses 3:18]]; [[Abraham 5.14|Abraham 5:14]]).
 

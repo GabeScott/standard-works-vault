@@ -1,6 +1,6 @@
 # Immortality, Immortal
 
-*See also* [[Earth, Purpose of.md|Earth, Purpose of]]; [[Eternal Life.md|Eternal Life]]; [[Everlasting.md|Everlasting]]; [[Exaltation.md|Exaltation]]; [[Jesus Christ, Mission of.md|Jesus Christ, Mission of]]; [[Life.md|Life]]; [[Man, Potential to Become like Heavenly Father.md|Man, Potential to Become like Heavenly Father]]; [[Resurrection.md|Resurrection]]
+*See also* [[Earth, Purpose of.md|Earth, Purpose of]]; [[Eternal Life.md|Eternal Life]]; [[Everlasting.md|Everlasting]]; [[Exaltation.md|Exaltation]]; [[Jesus Christ, Mission of.md|Jesus Christ, Mission of]]; [[Life, Lives.md|Life, Lives]]; [[Man, Potential to Become like Heavenly Father.md|Man, Potential to Become like Heavenly Father]]; [[Resurrection.md|Resurrection]]
 
 tree of *life* also in the midst of the garden, [[Genesis 2.9|Genesis 2:9]] ([[Moses 3.9|Moses 3:9]]).
 

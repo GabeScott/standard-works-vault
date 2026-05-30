@@ -1,6 +1,6 @@
 # Inquire
 
-*See also* [[Ask.md|Ask]]; [[Entreat.md|Entreat]]; [[Prayer.md|Prayer]]; [[Question.md|Question]]; [[Seek.md|Seek]]
+*See also* [[Ask.md|Ask]]; [[Entreat.md|Entreat]]; [[Prayer, Pray.md|Prayer, Pray]]; [[Question.md|Question]]; [[Seek, Sought.md|Seek, Sought]]
 
 We will call the damsel, and *inquire* at her mouth, [[Genesis 24.57|Genesis 24:57]].
 
