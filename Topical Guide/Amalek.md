@@ -1,3 +1,3 @@
 # Amalek
 
-*See also* [[BD Amalek.md|BD Amalek]]
+*See also* [[BD Amalek, Amalekites|BD Amalek]]

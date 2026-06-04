@@ -145,7 +145,7 @@ God bless you millions of youth in our Church who worthily follow the patterns o
 
 [^8]: See [[D&C 20.41|D&C 20:41]]; [[D&C 33.15|33:15]].
 
-[^9]: See [[D&C 27.12|D&C 27:12–13]][[D&C 27.13|]]; [[Joseph Smith History 1.72|Joseph Smith—History 1:72]].
+[^9]: See [[D&C 27.12|D&C 27:12–13]][[D&C 27.13|]]; [[Pearl of Great Price/Joseph Smith History 1.72|Joseph Smith—History 1:72]].
 
 [^10]: [[D&C 107.3|D&C 107:3]].
 

@@ -6,7 +6,7 @@ Saul, David, and Solomon, the first three kings of Israel, all started out with 
 
 But something important happened during the reign of Solomon that provided some hope for stability in the lives of the covenant people. Solomon built a temple. It was to be a more permanent house of the Lord than the tabernacle had been. And it would represent a more permanent presence of the Lord among His people. Solomon knew that the people would continue to face weakness and trials of various kinds. In dedicating the new holy house, Solomon pleaded with the Lord, “If they … return unto thee with all their heart, … then hear thou their prayer” ([[1 Kings 8.47|1 Kings 8:47–48]][[1 Kings 8.48|]]). That’s part of what temple covenants do for us—they create a connection to God. They secure for us the promise that through our repentance and His mercy, He can “dwell among \[us\]” and never forsake us ([[1 Kings 6.13|1 Kings 6:13]]).
 
-For an overview of the book of 1 Kings, see “[[BD Kings Books Of|Kings, books of]]” in the Bible Dictionary.
+For an overview of the book of 1 Kings, see “[[BD Kings, books of|Kings, books of]]” in the Bible Dictionary.
 
 ## Ideas for Learning at Home and at Church
 

@@ -1,3 +1,3 @@
 # Kadesh
 
-*See also* [[BD Kadesh.md|BD Kadesh]]
+*See also* [[BD Kadesh or Kadesh-barnea|BD Kadesh]]

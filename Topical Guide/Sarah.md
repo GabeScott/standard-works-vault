@@ -1,3 +1,3 @@
 # Sarah
 
-*See also* [[BD Sarah.md|BD Sarah]]
+*See also* [[BD Sarah or Sarai|BD Sarah]]

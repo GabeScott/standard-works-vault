@@ -6,7 +6,7 @@ Sometimes we imagine that our lives should follow a clear path from beginning to
 
 Ruth and Hannah surely understood this. Ruth was not an Israelite, but she married one, and when her husband died, she had a choice to make. Would she return to her family and her old, familiar life, or would she embrace the Israelite faith and a new home with her mother-in-law? (see [[Ruth 1.4|Ruth 1:4–18]][[Ruth 1.5|]][[Ruth 1.6|]][[Ruth 1.7|]][[Ruth 1.8|]][[Ruth 1.9|]][[Ruth 1.10|]][[Ruth 1.11|]][[Ruth 1.12|]][[Ruth 1.13|]][[Ruth 1.14|]][[Ruth 1.15|]][[Ruth 1.16|]][[Ruth 1.17|]][[Ruth 1.18|]]). Hannah’s plan for her life was to bear children, but she could not, and that left her “in bitterness of soul” (see [[1 Samuel 1.1|1 Samuel 1:1–10]][[1 Samuel 1.2|]][[1 Samuel 1.3|]][[1 Samuel 1.4|]][[1 Samuel 1.5|]][[1 Samuel 1.6|]][[1 Samuel 1.7|]][[1 Samuel 1.8|]][[1 Samuel 1.9|]][[1 Samuel 1.10|]]). As you read about Ruth and Hannah, consider the faith they must have had to travel their unexpected paths. Then think about your own journey. It’s different from Ruth’s and Hannah’s—and anyone else’s. But throughout the trials and surprises between here and your eternal destination, you can learn to say with Hannah, “My heart rejoiceth in the Lord” ([[1 Samuel 2.1|1 Samuel 2:1]]).
 
-See also the Bible Dictionary for an overview of the books of [[BD Ruth|Ruth]] and [[BD Samuel Books Of|1 Samuel]].
+See also the Bible Dictionary for an overview of the books of [[BD Ruth|Ruth]] and [[BD Samuel, Books Of|1 Samuel]].
 
 ## Ideas for Learning at Home and at Church
 

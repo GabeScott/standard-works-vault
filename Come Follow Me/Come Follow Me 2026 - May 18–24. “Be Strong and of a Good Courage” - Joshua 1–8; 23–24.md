@@ -4,7 +4,7 @@
 
 It had taken several generations, but the Lord’s promise was about to be fulfilled: the children of Israel were finally going to inherit the promised land. But in their way stood the Jordan River, the walls of Jericho, and a mighty people who had rejected the Lord (see [[1 Nephi 17.35|1 Nephi 17:35]]). And they would have to face all of that without their beloved leader Moses. The situation may have made some Israelites feel weak and fearful, but the Lord said, “Be strong and of a good courage.” What reason did they have to be courageous? It wasn’t because of their own strength—or even Moses’s or Joshua’s—but because “the Lord thy God is with thee whithersoever thou goest” ([[Joshua 1.9|Joshua 1:9]]). When we have our own rivers to cross and walls to bring down, wonderful things can happen in our lives because “the Lord will do wonders among \[us\]” ([[Joshua 3.5|Joshua 3:5]]).
 
-For an overview of the book of Joshua, see “[[BD Joshua Book Of|Joshua, book of]]” in the Bible Dictionary.
+For an overview of the book of Joshua, see “[[BD Joshua, book of|Joshua, book of]]” in the Bible Dictionary.
 
 ## Ideas for Learning at Home and at Church
 

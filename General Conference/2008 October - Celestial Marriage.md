@@ -85,7 +85,7 @@ Celestial marriage is a pivotal part of preparation for eternal life. It require
 
 [^9]: See [[D&C 13.1|D&C 13]].
 
-[^10]: See [[Matthew 16.18|Matthew 16:18–19]][[Matthew 16.19|]]; [[D&C 27.12|D&C 27:12–13]][[D&C 27.13|]]; [[Joseph Smith History 1.72|Joseph Smith—History 1:72]].
+[^10]: See [[Matthew 16.18|Matthew 16:18–19]][[Matthew 16.19|]]; [[D&C 27.12|D&C 27:12–13]][[D&C 27.13|]]; [[Pearl of Great Price/Joseph Smith History 1.72|Joseph Smith—History 1:72]].
 
 [^11]: See [[D&C 110.11|D&C 110:11–16]][[D&C 110.12|]][[D&C 110.13|]][[D&C 110.14|]][[D&C 110.15|]][[D&C 110.16|]].
 

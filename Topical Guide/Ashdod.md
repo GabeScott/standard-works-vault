@@ -1,3 +1,3 @@
 # Ashdod
 
-*See also* [[BD Ashdod.md|BD Ashdod]]
+*See also* [[BD Ashdod or Azotus|BD Ashdod]]

@@ -113,7 +113,7 @@ We can all expect to face trials. But great eternal promises are extended to tho
 
 [^21]: See [[D&C 84.38|D&C 84:38]].
 
-[^22]: See [[Matthew 26.26|Matthew 26:26–28]][[Matthew 26.27|]][[Matthew 26.28|]]; [[JST Matthew 26.22|Joseph Smith Translation, Matthew 26:22–24]][[JST Matthew 26.23|]][[JST Matthew 26.24|]].
+[^22]: See [[Matthew 26.26|Matthew 26:26–28]][[Matthew 26.27|]][[Matthew 26.28|]]; [[JST Matthew 26.22|Joseph Smith Translation, Matthew 26:22–24]][[JST Matthew 26.24|]].
 
 [^23]: Quoted in Victor L. Brown, in Conference Report, Oct. 1975, [[1975 October - The Vision of the Aaronic Priesthood.md|101–2]]; or *Ensign,* Nov. 1975, 68.
 

@@ -73,7 +73,7 @@ With all my heart, I bear witness of Jesus Christ—that He lives, that He loves
 
 [^12]: For example, Jesus is Messiah, the Christ, Great Jehovah, the Firstborn from the Dead, and the Only Begotten Son of God.
 
-[^13]: In addition to President Nelson’s invitation to study the scriptures concerning Jesus in the Topical Guide, you can also study Jesus’s many names by referring to the Bible Dictionary under “[[BD Christ Names Of|Christ, names of]].” You may also wish to study Elder Jeffrey R. Holland’s book *Witness for His Names* (2019) and a devotional talk by Elder Ronald A. Rasband titled “[Name above All Names](https://speeches.byuh.edu/devotionals/name-above-all-names)” (Brigham Young University–Hawaii devotional, Oct. 20, 2020), speeches.byuh.edu.
+[^13]: In addition to President Nelson’s invitation to study the scriptures concerning Jesus in the Topical Guide, you can also study Jesus’s many names by referring to the Bible Dictionary under “[[BD Christ, names of|Christ, names of]].” You may also wish to study Elder Jeffrey R. Holland’s book *Witness for His Names* (2019) and a devotional talk by Elder Ronald A. Rasband titled “[Name above All Names](https://speeches.byuh.edu/devotionals/name-above-all-names)” (Brigham Young University–Hawaii devotional, Oct. 20, 2020), speeches.byuh.edu.
 
 [^14]: See [[John 10.11|John 10:11]].
 
@@ -97,7 +97,7 @@ With all my heart, I bear witness of Jesus Christ—that He lives, that He loves
 
 [^24]: See [[Matthew 9.2|Matthew 9:2]]; [[Mark 6.50|Mark 6:50]]; [[John 16.33|John 16:33]]; [[3 Nephi 1.13|3 Nephi 1:13]]; [[D&C 61.36|Doctrine and Covenants 61:36]].
 
-[^25]: See [[Hebrews 13.8|Hebrews 13:8]]; see also Bible Dictionary, “[[BD Christ Names Of|Christ, names of]].”
+[^25]: See [[Hebrews 13.8|Hebrews 13:8]]; see also Bible Dictionary, “[[BD Christ, names of|Christ, names of]].”
 
 [^26]: See [[John 8.29|John 8:29]].
 

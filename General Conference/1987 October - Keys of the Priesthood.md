@@ -66,7 +66,7 @@ They who *receive* ordinations or callings have obligations of obedience, loyalt
 
 To *understand* the power of the priesthood, we must know its limitations. If an automobile is used recklessly, future permission from parents is likely to be denied. So, if priesthood power be abused, “the Spirit of the Lord is grieved; and when it is withdrawn, Amen to the priesthood or the authority of that man” ([[D&C 121.37|D&C 121:37]]).
 
-To *understand* the power of the priesthood, we must know the divinity of its restoration in these latter days. In 1820, our Heavenly Father and his Son Jesus Christ appeared to the Prophet Joseph Smith. In 1829, John the Baptist conferred the Aaronic Priesthood upon Joseph Smith and Oliver Cowdery (see [[D&C 13.1|D&C 13]]; [[D&C 27.8|27:8]]; [[Joseph Smith History 1.69|JS—H 1:69, 72]][[Joseph Smith History 1.72|]]). Shortly thereafter they received the Melchizedek Priesthood under the hands of Peter, James, and John (see [[D&C 27.11|D&C 27:11–12]][[D&C 27.12|]]).
+To *understand* the power of the priesthood, we must know the divinity of its restoration in these latter days. In 1820, our Heavenly Father and his Son Jesus Christ appeared to the Prophet Joseph Smith. In 1829, John the Baptist conferred the Aaronic Priesthood upon Joseph Smith and Oliver Cowdery (see [[D&C 13.1|D&C 13]]; [[D&C 27.8|27:8]]; [[Joseph Smith History 1.69|JS—H 1:69, 72]][[Pearl of Great Price/Joseph Smith History 1.72]]). Shortly thereafter they received the Melchizedek Priesthood under the hands of Peter, James, and John (see [[D&C 27.11|D&C 27:11–12]][[D&C 27.12|]]).
 
 Later, the Lord spoke to Joseph and Oliver of others to whom specific keys of the priesthood had been committed. Each, in turn, did confer these keys:
 

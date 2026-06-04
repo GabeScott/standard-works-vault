@@ -67,7 +67,7 @@ I testify of God the Father; of our Savior and Redeemer, Jesus Christ; of the Ho
 
 
 
-[^1]: See [[Joseph Smith History 1.68|Joseph Smith—History 1:68–72]][[Joseph Smith History 1.69|]][[Joseph Smith History 1.70|]][[Joseph Smith History 1.71|]][[Joseph Smith History 1.72|]].
+[^1]: See [[Joseph Smith History 1.68|Joseph Smith—History 1:68–72]][[Joseph Smith History 1.69|]][[Joseph Smith History 1.70|]][[Joseph Smith History 1.71|]][[Pearl of Great Price/Joseph Smith History 1.72]].
 
 [^2]: [[D&C 110.1|Doctrine and Covenants 110]][[D&C 110.2|]][[D&C 110.3|]][[D&C 110.4|]][[D&C 110.5|]][[D&C 110.6|]][[D&C 110.7|]][[D&C 110.8|]][[D&C 110.9|]][[D&C 110.10|]][[D&C 110.11|]][[D&C 110.12|]][[D&C 110.13|]][[D&C 110.14|]][[D&C 110.15|]][[D&C 110.16|]], section summary.
 

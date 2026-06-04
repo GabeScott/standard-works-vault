@@ -1,6 +1,6 @@
 # Restoration
 
-*See also* [[Dispensations.md|Dispensations]]; [[Ensign.md|Ensign]]; [[Israel, Restoration of.md|Israel, Restoration of]]; [[Millennium, Preparing a People for.md|Millennium, Preparing a People for]]; [[Restoration of the Gospel.md|Restoration of the Gospel]]; [[Resurrection.md|Resurrection]]; [[BD Restitution.md|BD Restitution]]
+*See also* [[Dispensations.md|Dispensations]]; [[Ensign.md|Ensign]]; [[Israel, Restoration of.md|Israel, Restoration of]]; [[Millennium, Preparing a People for.md|Millennium, Preparing a People for]]; [[Restoration of the Gospel.md|Restoration of the Gospel]]; [[Resurrection.md|Resurrection]]; [[BD Restitution, restoration|BD Restitution]]
 
 this bringeth about the *restoration*, [[Alma 40.22|Alma 40:22]].
 

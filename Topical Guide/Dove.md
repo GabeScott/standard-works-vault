@@ -1,6 +1,6 @@
 # Dove
 
-*See also* [[Holy Ghost, Dove, Sign of.md|Holy Ghost, Dove, Sign of]]; [[Turtledove.md|Turtledove]]; [[BD Dove.md|BD Dove]]
+*See also* [[Holy Ghost, Dove, Sign of.md|Holy Ghost, Dove, Sign of]]; [[Turtledove.md|Turtledove]]; [[BD Dove, sign of|BD Dove]]
 
 sent forth a *dove*, [[Genesis 8.8|Genesis 8:8]].
 

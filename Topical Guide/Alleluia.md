@@ -1,3 +1,3 @@
 # Alleluia
 
-*See also* [[BD Alleluia.md|BD Alleluia]]
+*See also* [[BD Alleluia, hallelujah|BD Alleluia]]

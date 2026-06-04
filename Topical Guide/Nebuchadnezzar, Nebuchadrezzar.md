@@ -1,3 +1,3 @@
 # Nebuchadnezzar, Nebuchadrezzar
 
-*See also* [[BD Nebuchadnezzar.md|BD Nebuchadnezzar]]
+*See also* [[BD Nebuchadnezzar, Nebuchadrezzar|BD Nebuchadnezzar]]

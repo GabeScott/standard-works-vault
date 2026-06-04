@@ -6,7 +6,7 @@ You might think of the book of Proverbs as a collection of wise counsel from lov
 
 And yet, while the two books look at life from different perspectives, they teach similar truths. Ecclesiastes declares: “Let us hear the conclusion of the whole matter: Fear God, and keep his commandments: for this is the whole duty of man” ([[Ecclesiastes 12.13|Ecclesiastes 12:13]]). This is the same principle found throughout Proverbs: “Trust in the Lord with all thine heart” ([[Proverbs 3.5|Proverbs 3:5]]; see also [[Proverbs 3.7|verse 7]]). Life is always better—if not always perfect—when we trust and follow the Lord Jesus Christ.
 
-For an overview of these books, see “[[BD Proverbs Book Of|Proverbs, book of]]” and “[[BD Ecclesiastes|Ecclesiastes]]” in the Bible Dictionary.
+For an overview of these books, see “[[BD Proverbs, book of|Proverbs, book of]]” and “[[BD Ecclesiastes|Ecclesiastes]]” in the Bible Dictionary.
 
 ## Ideas for Learning at Home and at Church
 

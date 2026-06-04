@@ -74,4 +74,4 @@ prophets who had the *keys*, [[D&C 132.39|D&C 132:39]].
 
 I have conferred upon you the *keys* and power of the *priesthood*, [[D&C 132.45|D&C 132:45]] ([[D&C 132.59|D&C 132:59]]).
 
-Peter, James and John, who held the *keys of the Priesthood* of Melchizedek, [[Joseph Smith History 1.72|Joseph Smith History 1:72]].
+Peter, James and John, who held the *keys of the Priesthood* of Melchizedek, [[Pearl of Great Price/Joseph Smith History 1.72|Joseph Smith History 1:72]].

@@ -1,6 +1,6 @@
 # Babylon
 
-*See also* [[Devil, Church of.md|Devil, Church of]]; [[Israel, Bondage of, in Other Lands.md|Israel, Bondage of, in Other Lands]]; [[Worldliness.md|Worldliness]]; [[BD Babylon.md|BD Babylon]]
+*See also* [[Devil, Church of.md|Devil, Church of]]; [[Israel, Bondage of, in Other Lands.md|Israel, Bondage of, in Other Lands]]; [[Worldliness.md|Worldliness]]; [[BD Babylon or Babel|BD Babylon]]
 
 *Babylon* … as … Sodom and Gomorrah, [[Isaiah 13.19|Isaiah 13:19]].
 

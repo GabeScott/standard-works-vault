@@ -4,6 +4,8 @@
 
 At first, the story of the Fall of Adam and Eve might seem like a tragedy. Adam and Eve were cast out of the beautiful Garden of Eden. They were sent into a world of pain, sorrow, and death (see [[Genesis 3.16|Genesis 3:16–19]][[Genesis 3.17|]][[Genesis 3.18|]][[Genesis 3.19|]]). And they were separated from their Heavenly Father. But the truths restored through the Prophet Joseph Smith in the book of Moses give us a unique perspective on the Fall.
 
+[[1 Nephi 3.7|1 Nephi 3:7-8]][[1 Nephi 3.8|]] 
+
 Yes, the Garden of Eden was beautiful. But Adam and Eve needed more than beautiful surroundings. They needed—and we all need—an opportunity to grow. Leaving the Garden of Eden was the necessary first step toward returning to God and eventually becoming like Him. That meant facing opposition, making choices, making mistakes, learning to repent, and trusting the Savior, whose Atonement makes possible progression and “the joy of our redemption” ([[Moses 5.11|Moses 5:11]]). So when you read about the Fall of Adam and Eve, focus not on the seeming tragedy but on the possibilities—not on the paradise Adam and Eve lost but on the glory their choice allows us to receive.
 
 ## Ideas for Learning at Home and at Church
@@ -21,6 +23,13 @@ See also [[Mosiah 3.19|Mosiah 3:19]]; [[Alma 12.21|Alma 12:21–37]][[Alma 12.22
 ### Jesus Christ offers hope and redemption.
 
 Adam and Eve’s story is one of hope and redemption through Jesus Christ. To see why, you might start by searching for the results of the Fall in [[Genesis 3.1|Genesis 3:1–7]][[Genesis 3.2|]][[Genesis 3.3|]][[Genesis 3.4|]][[Genesis 3.5|]][[Genesis 3.6|]][[Genesis 3.7|]]; [[Moses 4.22|Moses 4:22–31]][[Moses 4.23|]][[Moses 4.24|]][[Moses 4.25|]][[Moses 4.26|]][[Moses 4.27|]][[Moses 4.28|]][[Moses 4.29|]][[Moses 4.30|]][[Moses 4.31|]] and marking or listing what you find. How do these results affect you? Then you could search [[Moses 5.4|Moses 5:4–15]][[Moses 5.5|]][[Moses 5.6|]][[Moses 5.7|]][[Moses 5.8|]][[Moses 5.9|]][[Moses 5.10|]][[Moses 5.11|]][[Moses 5.12|]][[Moses 5.13|]][[Moses 5.14|]][[Moses 5.15|]], looking for God’s plan to redeem us from these effects. Why were Adam and Eve “glad” after the angel visited them? What do you learn from them about Heavenly Father’s plan?
+
+How do these results affect me?
+- I know good from evil. Because of the light of Christ, I can distinguish between right and wrong and use my agency to make whatever choice I want. 
+- My physical body gets old and sick and is less than perfect. This causes many struggles in life and can be very frustrating. But God gave us this weakness that we may come unto Him and be strengthened ([[Ether 12.27|Ether 12:27]]).
+- Having kids is difficult. It's difficult for my wife because of all the pain and discomfort. 
+- As the husband, I became the patriarch of the family. It is my responsibility to be an example of righteousness and lead my family with love and patience. I wonder if Adam and Eve both had the priesthood in the Garden of Eden? Probably not.
+- We have to work for our sustenance. Working for temporal things is difficult, it can be easy to get distracted and focused on having more and more. But it also teaches us to appreciate what we have and how to work hard.
 
 See also “Because of Him” (video), Gospel Library.
 

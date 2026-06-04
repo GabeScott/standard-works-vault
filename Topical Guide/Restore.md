@@ -1,6 +1,6 @@
 # Restore
 
-*See also* [[Israel, Restoration of.md|Israel, Restoration of]]; [[Restoration.md|Restoration]]; [[Restoration of the Gospel.md|Restoration of the Gospel]]; [[BD Restitution.md|BD Restitution]]
+*See also* [[Israel, Restoration of.md|Israel, Restoration of]]; [[Restoration.md|Restoration]]; [[Restoration of the Gospel.md|Restoration of the Gospel]]; [[BD Restitution, restoration]]
 
 *restore* the man his wife, [[Genesis 20.7|Genesis 20:7]].
 

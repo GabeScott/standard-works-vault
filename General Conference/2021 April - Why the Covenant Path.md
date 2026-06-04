@@ -127,7 +127,7 @@ With Nephi, “my soul delighteth in the covenants of the Lord.”[^30] On this 
 
 [^22]: [Teachings of Presidents of the Church: Joseph Smith](https://www.churchofjesuschrist.org/study/manual/teachings-joseph-smith/chapter-36?lang=eng&id=p15#p15) (2007), 416.
 
-[^23]: See Bible Dictionary, “[[BD Abraham Covenant Of|Abraham, covenant of]]”; [[Abraham 2.11|Abraham 2:11]].
+[^23]: See Bible Dictionary, “[[BD Abraham, covenant of|Abraham, covenant of]]”; [[Abraham 2.11|Abraham 2:11]].
 
 [^24]: The Book of Mormon is sent to the Gentiles, “that they may repent and come unto me and be baptized in my name and know of the true points of my doctrine, that they may be numbered among my people, O house of Israel” ([[3 Nephi 21.6|3 Nephi 21:6]]).
 

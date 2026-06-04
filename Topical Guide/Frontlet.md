@@ -1,6 +1,6 @@
 # Frontlet
 
-*See also* [[BD Frontlets.md|BD Frontlets]]
+*See also* [[BD Frontlets or phylacteries|BD Frontlets]]
 
 for *frontlets* between thine eyes, [[Exodus 13.16|Exodus 13:16]].
 

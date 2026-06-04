@@ -1,3 +1,3 @@
 # Goliath
 
-*See also* [[BD Goliath.md|BD Goliath]]
+*See also* [[BD Goliath of Gath|BD Goliath]]

@@ -1,3 +1,3 @@
 # Ethiopia
 
-*See also* [[BD Ethiopia.md|BD Ethiopia]]
+*See also* [[BD Ethiopia or Cush|BD Ethiopia]]

@@ -4,7 +4,7 @@
 
 We all know what it’s like to sin, feel bad about it, and then repent and resolve to change our ways. But too often we forget our earlier resolve, and, when temptation comes, we find ourselves committing the same sin. This pattern appears frequently in the book of Judges. Influenced by the beliefs and worship practices of the Canaanites—whom they were supposed to drive out of the land—the Israelites broke their covenants with the Lord and turned away from worshipping Him. As a result, they lost His protection and fell into captivity. And yet each time this happened, the Lord gave His covenant people the chance to repent and raised up a deliverer, a military leader called a “judge.” Not all of the judges in the book of Judges were righteous, but some of them exercised great faith in delivering the children of Israel and restoring them to their covenant relationship with the Lord. These stories remind us that no matter what has led us away from Jesus Christ, He is the Redeemer of Israel and is always willing to deliver us and welcome us back as we return to Him.
 
-For an overview of the book of Judges, see “[[BD Judges Book Of|Judges, book of]]” in the Bible Dictionary.
+For an overview of the book of Judges, see “[[BD Judges, book of]]” in the Bible Dictionary.
 
 ## Ideas for Learning at Home and at Church
 

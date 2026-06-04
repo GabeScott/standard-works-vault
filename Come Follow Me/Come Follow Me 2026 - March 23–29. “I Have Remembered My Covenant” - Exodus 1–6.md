@@ -6,7 +6,7 @@ The invitation to live in Egypt saved Jacob’s family. But after hundreds of ye
 
 There may be times when you’ve felt like asking similar questions. You might wonder, “Does God know what I’m going through? Can He hear my pleas for help?” Israel’s deliverance from Egypt answers such questions clearly: God does not forget His people. He remembers His covenants with us and will fulfill them in His own time and way. “I will redeem you with a stretched out arm,” He declares. “I am the Lord your God, which bringeth you out from under \[your\] burdens” ([[Exodus 6.6|Exodus 6:6–7]][[Exodus 6.7|]]).
 
-For an overview of the book of Exodus, see “[[BD Exodus Book Of|Exodus, book of]]” in the Bible Dictionary.
+For an overview of the book of Exodus, see “[[BD Exodus, book of|Exodus, book of]]” in the Bible Dictionary.
 
 ## Ideas for Learning at Home and Church
 

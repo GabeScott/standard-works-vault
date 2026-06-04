@@ -4,7 +4,7 @@
 
 Many events in the book of Esther might seem like luck or coincidence. How else do you explain how an orphaned Jewish girl became the queen of Persia at just the right time to save her people from slaughter? What are the chances that Esther’s cousin Mordecai would happen to overhear a plot to assassinate the king? Were these coincidences, or were they part of a divine plan? Elder Ronald A. Rasband noted: “What may appear to be a random chance is, in fact, overseen by a loving Father in Heaven. … The Lord is in the small details of our lives” (“[[2017 October - By Divine Design.md|By Divine Design]],” *Ensign* or *Liahona*, Nov. 2017, 56). We might not always recognize the Lord’s influence in these “small details.” But we learn from Esther’s experience that He can guide our path and prepare us “for such a time” ([[Esther 4.14|Esther 4:14]]) when we can be instruments in His hands to fulfill His purposes.
 
-For an overview of the book of Esther, see “[[BD Esther Book Of|Esther, book of]]” in the Bible Dictionary.
+For an overview of the book of Esther, see “[[BD Esther, book of|Esther, book of]]” in the Bible Dictionary.
 
 ## Ideas for Learning at Home and at Church
 

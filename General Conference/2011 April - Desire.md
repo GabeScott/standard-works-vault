@@ -85,7 +85,7 @@ I testify of Jesus Christ, whose love, whose teachings, and whose Atonement make
 
 [^4]: See *Teachings of Presidents of the Church: Joseph Smith* (2007), 211.
 
-[^5]: Neal A. Maxwell, in Conference Report, Oct. 1996, [[1996 October - “According to the Desire of (Our) Hearts”.md|28, 26]]; or *Ensign,* Nov. 1996, 22, 21.
+[^5]: Neal A. Maxwell, in Conference Report, Oct. 1996, [[1996 October - “According to the Desire of [Our] Hearts”|28, 26]]; or *Ensign,* Nov. 1996, 22, 21.
 
 [^6]: See Julie B. Beck, “Teaching the Doctrine of the Family,” *Liahona,* Mar. 2011, 32–37; *Ensign,* Mar. 2011, 12–17.
 

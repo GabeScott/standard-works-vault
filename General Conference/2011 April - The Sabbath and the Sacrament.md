@@ -99,7 +99,7 @@ On this day before the Sabbath, as we begin this great conference, let us rememb
 
 [^7]: [[3 Nephi 18.6|3 Nephi 18:6–7]][[3 Nephi 18.7|]].
 
-[^8]: See [[Joseph Smith History 1.68|Joseph Smith—History 1:68–69, 72]][[Joseph Smith History 1.69|]][[Joseph Smith History 1.72|]]; see also [[D&C 27.12|Doctrine and Covenants 27:12–13]][[D&C 27.13|]].
+[^8]: See [[Joseph Smith History 1.68|Joseph Smith—History 1:68–69, 72]][[Joseph Smith History 1.69|]][[Pearl of Great Price/Joseph Smith History 1.72]]; see also [[D&C 27.12|Doctrine and Covenants 27:12–13]][[D&C 27.13|]].
 
 [^9]: [[D&C 59.9|Doctrine and Covenants 59:9–10, 13]][[D&C 59.10|]][[D&C 59.13|]].
 

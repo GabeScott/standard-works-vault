@@ -6,6 +6,6 @@ The *anointed* (Greek) or *Messiah* (Hebrew). Jesus, who is called Christ, is th
 
 He is the greatest Being to be born on this earth—the perfect example—and all religious things should be done in His name. He is Lord of lords, King of kings, the Creator, the Savior, the God of the whole earth, the Captain of our salvation, the Bright and Morning Star. He is in all things, above all things, through all things, and round about all things; He is Alpha and Omega, the first and the last; His name is above every name and is the only name under heaven by which we can be saved.
 
-He will come again in power and glory to dwell on the earth and will stand as Judge of all mankind at the last day. See also *[[BD Anointed One|Anointed One]]; [[BD Christ Names Of|Christ, names of]]; [[BD Jesus|Jesus]].*
+He will come again in power and glory to dwell on the earth and will stand as Judge of all mankind at the last day. See also *[[BD Anointed One|Anointed One]]; [[BD Christ, names of|Christ, names of]]; [[BD Jesus|Jesus]].*
 
 

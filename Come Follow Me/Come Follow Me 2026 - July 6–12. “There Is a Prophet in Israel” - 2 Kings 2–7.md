@@ -4,7 +4,7 @@
 
 A prophet’s main mission is to teach and testify of the Savior Jesus Christ. Our record of the prophet Elisha, however, doesn’t include much of his teaching or testifying. What the record does include is the miracles Elisha performed, including raising a child from the dead (see [[2 Kings 4.18|2 Kings 4:18–37]][[2 Kings 4.19|]][[2 Kings 4.20|]][[2 Kings 4.21|]][[2 Kings 4.22|]][[2 Kings 4.23|]][[2 Kings 4.24|]][[2 Kings 4.25|]][[2 Kings 4.26|]][[2 Kings 4.27|]][[2 Kings 4.28|]][[2 Kings 4.29|]][[2 Kings 4.30|]][[2 Kings 4.31|]][[2 Kings 4.32|]][[2 Kings 4.33|]][[2 Kings 4.34|]][[2 Kings 4.35|]][[2 Kings 4.36|]][[2 Kings 4.37|]]), feeding a multitude with just a little food (see [[2 Kings 4.42|2 Kings 4:42–44]][[2 Kings 4.43|]][[2 Kings 4.44|]]), and healing a leper (see [[2 Kings 5.1|2 Kings 5:1–14]][[2 Kings 5.2|]][[2 Kings 5.3|]][[2 Kings 5.4|]][[2 Kings 5.5|]][[2 Kings 5.6|]][[2 Kings 5.7|]][[2 Kings 5.8|]][[2 Kings 5.9|]][[2 Kings 5.10|]][[2 Kings 5.11|]][[2 Kings 5.12|]][[2 Kings 5.13|]][[2 Kings 5.14|]]). So while we don’t have Elisha’s words about Christ, we do have Elisha’s ministry and miracles, which do testify of Christ. They are powerful manifestations of the Lord’s life-giving, nourishing, and healing power. Miracles happen more often in our lives than we sometimes realize. To see them, we need to seek the faith Elisha had when he prayed on behalf of his fearful young servant: “Lord, I pray thee, open his eyes, that he may see” ([[2 Kings 6.17|2 Kings 6:17]]).
 
-For more information about 2 Kings, see “[[BD Kings Books Of|Kings, books of]]” in the Bible Dictionary.
+For more information about 2 Kings, see “[[BD Kings, books of|Kings, books of]]” in the Bible Dictionary.
 
 ## Ideas for Learning at Home and at Church
 

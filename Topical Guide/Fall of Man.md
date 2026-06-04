@@ -1,6 +1,6 @@
 # Fall of Man
 
-*See also* [[Carnal Mind.md|Carnal Mind]]; [[Death.md|Death]]; [[Death, Spiritual, First.md|Death, Spiritual, First]]; [[Man, Natural, Not Spiritually Reborn.md|Man, Natural, Not Spiritually Reborn]]; [[Sensuality.md|Sensuality]]; [[BD Fall of Adam.md|BD Fall of Adam]]
+*See also* [[Carnal Mind.md|Carnal Mind]]; [[Death.md|Death]]; [[Death, Spiritual, First.md|Death, Spiritual, First]]; [[Man, Natural, Not Spiritually Reborn.md|Man, Natural, Not Spiritually Reborn]]; [[Sensuality.md|Sensuality]]; [[BD Fall of Adam and Eve|BD Fall of Adam]]
 
 day that thou eatest thereof thou shalt surely *die*, [[Genesis 2.17|Genesis 2:17]] ([[Moses 3.17|Moses 3:17]]).
 

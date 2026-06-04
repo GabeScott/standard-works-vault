@@ -9,6 +9,29 @@ Because of the covenant God made with him, Abraham has been called “the father
 [[Abraham 1.1|Abraham 1:1–19]][[Abraham 1.2|]][[Abraham 1.3|]][[Abraham 1.4|]][[Abraham 1.5|]][[Abraham 1.6|]][[Abraham 1.7|]][[Abraham 1.8|]][[Abraham 1.9|]][[Abraham 1.10|]][[Abraham 1.11|]][[Abraham 1.12|]][[Abraham 1.13|]][[Abraham 1.14|]][[Abraham 1.15|]][[Abraham 1.16|]][[Abraham 1.17|]][[Abraham 1.18|]][[Abraham 1.19|]]
 ### God will bless me for my faith and righteous desires.
 
+#### Desires
+"Desire" comes up 419 times in the standard works
+- What is a desire?
+	- “For me, a desire is a conscious, private longing for which each person is responsible,” Elder Andersen said. “It is a powerful hope, a quiet, soul-felt anticipation originating from that sovereign territory we each possess. We are all influenced by our families [and] our culture, and yet I believe there is a place inside of us that we uniquely and individually control and create. These desires are being constructed or developed, fortified or weakened constantly, whether they are righteous or unrighteous.”
+- What do you guys desire?
+- Do you think you can change your desires?
+	- [[Mosiah 5.2|Mosiah 5:2]] 
+- What do you think God desires?
+- How can we find out what our desires are?
+	- We can look at our past accomplishments. What did we set out to do? Is that a worthy desire?
+
+“We are all influenced by our families \[and\] our culture,” Elder Neil L. Andersen taught, “and yet I believe there is a place inside of us that we uniquely and individually control and create. … Eventually, our inner desires are given life and they are seen in our choices and in our actions” (“[Educate Your Desires, Elder Andersen Counsels](https://www.churchofjesuschrist.org/prophets-and-apostles/unto-all-the-world/educate-your-desires-elder-andersen-counsels),” ChurchofJesusChrist.org). Consider how [[Abraham 1.1|Abraham 1:1–19]][[Abraham 1.2|]][[Abraham 1.3|]][[Abraham 1.4|]][[Abraham 1.5|]][[Abraham 1.6|]][[Abraham 1.7|]][[Abraham 1.8|]][[Abraham 1.9|]][[Abraham 1.10|]][[Abraham 1.11|]][[Abraham 1.12|]][[Abraham 1.13|]][[Abraham 1.14|]][[Abraham 1.15|]][[Abraham 1.16|]][[Abraham 1.17|]][[Abraham 1.18|]][[Abraham 1.19|]] demonstrates what Elder Andersen taught. Questions like these might help:
+
+#### Abraham
+- What do we know about Abraham?
+	- Originally named Abram
+	- Lived in a wicked land
+	- Was called of God to leave and inherit a land called Canaan
+	- Had a son, Isaac, after being childless for many years. Commanded to sacrifice
+	- Given a covenant promise that his posterity would bless all the earth
+
+Verses to read:
+- 1-2, 5-7
 “We are all influenced by our families \[and\] our culture,” Elder Neil L. Andersen taught, “and yet I believe there is a place inside of us that we uniquely and individually control and create. … Eventually, our inner desires are given life and they are seen in our choices and in our actions” (“[Educate Your Desires, Elder Andersen Counsels](https://www.churchofjesuschrist.org/prophets-and-apostles/unto-all-the-world/educate-your-desires-elder-andersen-counsels),” ChurchofJesusChrist.org). Consider how [[Abraham 1.1|Abraham 1:1–19]][[Abraham 1.2|]][[Abraham 1.3|]][[Abraham 1.4|]][[Abraham 1.5|]][[Abraham 1.6|]][[Abraham 1.7|]][[Abraham 1.8|]][[Abraham 1.9|]][[Abraham 1.10|]][[Abraham 1.11|]][[Abraham 1.12|]][[Abraham 1.13|]][[Abraham 1.14|]][[Abraham 1.15|]][[Abraham 1.16|]][[Abraham 1.17|]][[Abraham 1.18|]][[Abraham 1.19|]] demonstrates what Elder Andersen taught. Questions like these might help:
 
 - What did Abraham desire? How were his desires evident in his actions? How did God support his desires?

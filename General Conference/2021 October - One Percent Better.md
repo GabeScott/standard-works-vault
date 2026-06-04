@@ -71,7 +71,7 @@ To this end, Elder Neal A. Maxwell taught, “Each assertion of a righteous desi
 
 [^13]: [[D&C 93.13|Doctrine and Covenants 93:13]].
 
-[^14]: Neal A. Maxwell, “[[1996 October - “According to the Desire of (Our) Hearts”.md|According to the Desire of (Our) Hearts]],” *Ensign*, Nov. 1996, 22.
+[^14]: Neal A. Maxwell, “[[1996 October - “According to the Desire of [Our] Hearts”|According to the Desire of (Our) Hearts]],” *Ensign*, Nov. 1996, 22.
 
 [^15]: See [[Alma 37.6|Alma 37:6]].
 

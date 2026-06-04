@@ -135,7 +135,7 @@ As men and women, sisters and brothers, sons and daughters of God, we move forwa
 
 [^10]: [[John 15.16|John 15:16]].
 
-[^11]: See [[Joseph Smith History 1.72|Joseph Smith—History 1:72]]; see also [[D&C 13.1|Doctrine and Covenants 13]]; [[D&C 27.1|27]][[D&C 27.2|]][[D&C 27.3|]][[D&C 27.4|]][[D&C 27.5|]][[D&C 27.6|]][[D&C 27.7|]][[D&C 27.8|]][[D&C 27.9|]][[D&C 27.10|]][[D&C 27.11|]][[D&C 27.12|]][[D&C 27.13|]][[D&C 27.14|]][[D&C 27.15|]][[D&C 27.16|]][[D&C 27.17|]][[D&C 27.18|]].
+[^11]: See [[Pearl of Great Price/Joseph Smith History 1.72|Joseph Smith—History 1:72]]; see also [[D&C 13.1|Doctrine and Covenants 13]]; [[D&C 27.1|27]][[D&C 27.2|]][[D&C 27.3|]][[D&C 27.4|]][[D&C 27.5|]][[D&C 27.6|]][[D&C 27.7|]][[D&C 27.8|]][[D&C 27.9|]][[D&C 27.10|]][[D&C 27.11|]][[D&C 27.12|]][[D&C 27.13|]][[D&C 27.14|]][[D&C 27.15|]][[D&C 27.16|]][[D&C 27.17|]][[D&C 27.18|]].
 
 [^12]: See M. Russell Ballard, “Let Us Think Straight” (BYU Campus Education Week devotional, Aug. 20, 2013); [speeches.byu.edu](https://speeches.byu.edu). Elder Ballard stated: “Why are men ordained to priesthood offices and not women? President Gordon B. Hinckley explained that it was the Lord, not man, ‘who designated that men in His Church should hold the priesthood’ and that it was also the Lord who endowed women with ‘capabilities to round out this great and marvelous organization, which is the Church and kingdom of God’ (“Women of the Church,” *Ensign,* November 1996, 70). When all is said and done, the Lord has not revealed why He has organized His Church as He has.”
 

@@ -99,7 +99,7 @@ God lives. Jesus is the Christ. He directs His Church through His prophets and a
 
 [^9]: See [[D&C 128.18|D&C 128:18]].
 
-[^10]: See [[Joseph Smith History 1.72|Joseph Smith—History 1:72]]; [[D&C 27.8|D&C 27:8, 12]][[D&C 27.12|]].
+[^10]: See [[Pearl of Great Price/Joseph Smith History 1.72|Joseph Smith—History 1:72]]; [[D&C 27.8|D&C 27:8, 12]][[D&C 27.12|]].
 
 [^11]: See [[D&C 27.5|D&C 27:5]].
 

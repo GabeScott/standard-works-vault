@@ -1,3 +1,3 @@
 # Arabia
 
-*See also* [[BD Arabia.md|BD Arabia]]
+*See also* [[BD Arabia, Arabians|BD Arabia]]

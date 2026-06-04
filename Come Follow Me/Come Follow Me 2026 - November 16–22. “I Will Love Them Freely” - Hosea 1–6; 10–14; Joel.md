@@ -6,7 +6,7 @@ Israel’s covenant with the Lord was meant to be so deep and meaningful that th
 
 Joel shared a similar message: “Turn unto the Lord your God: for he is gracious and merciful, slow to anger, and of great kindness” ([[Joel 2.13|Joel 2:13]]). Reading these prophets’ words may prompt you to ponder your own relationship with the Lord—to think about how His faithfulness to you inspires you to be faithful to Him.
 
-For an overview of the books of Hosea and Joel, see “[[BD Hosea|Hosea, or Hoshea]]” and “[[BD Joel|Joel]]” in the Bible Dictionary.
+For an overview of the books of Hosea and Joel, see “[[BD Hosea, or Hoshea|Hosea, or Hoshea]]” and “[[BD Joel|Joel]]” in the Bible Dictionary.
 
 ## Ideas for Learning at Home and at Church
 

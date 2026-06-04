@@ -1,6 +1,6 @@
 # God, Glory of
 
-*See also* [[Glory.md|Glory]]; [[BD Glory of the Lord.md|BD Glory of the Lord]]
+*See also* [[Glory.md|Glory]]; [[BD Glory of the Lord, or of Jehovah|BD Glory of the Lord]]
 
 *glory* of the Lord appeared in the cloud, [[Exodus 16.10|Exodus 16:10]].
 

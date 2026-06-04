@@ -81,7 +81,7 @@ I bear my witness that Jesus Christ lives and that through Him, we may triumph o
 
 [^10]: See [[Proverbs 23.7|Proverbs 23:7]]; [[Jeremiah 17.10|Jeremiah 17:10]]; [[2 Nephi 9.39|2 Nephi 9:39]]; [[Mosiah 4.30|Mosiah 4:30]]; [[Alma 12.14|Alma 12:14]]; [[D&C 137.9|Doctrine and Covenants 137:9]].
 
-[^11]: Neal A. Maxwell, “[[1996 October - “According to the Desire of (Our) Hearts”.md|According to the Desire of (Our) Hearts]],” *Ensign,* Nov. 1996, 22; see also [[Matthew 22.14|Matthew 22:14]]; [[D&C 95.5|Doctrine and Covenants 95:5]].
+[^11]: Neal A. Maxwell, “[[1996 October - “According to the Desire of [Our] Hearts”|According to the Desire of (Our) Hearts]],” *Ensign,* Nov. 1996, 22; see also [[Matthew 22.14|Matthew 22:14]]; [[D&C 95.5|Doctrine and Covenants 95:5]].
 
 [^12]: See [[Mormon 9.27|Mormon 9:27–29]][[Mormon 9.28|]][[Mormon 9.29|]]; see also [[Mosiah 2.41|Mosiah 2:41]].
 

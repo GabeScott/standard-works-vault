@@ -173,7 +173,7 @@ I know that God is our Father. He introduced His Son, Jesus Christ, to Joseph Sm
 
 [^15]: [[2 Peter 1.21|2 Peter 1:21]].
 
-[^16]: See [[D&C 27.12|D&C 27:12]]; [[Joseph Smith History 1.72|Joseph Smith—History 1:72]].
+[^16]: See [[D&C 27.12|D&C 27:12]]; [[Pearl of Great Price/Joseph Smith History 1.72|Joseph Smith—History 1:72]].
 
 [^17]: [[D&C 112.32|D&C 112:32–33]][[D&C 112.33|]].
 

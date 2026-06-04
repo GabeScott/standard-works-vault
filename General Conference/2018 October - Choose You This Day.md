@@ -38,7 +38,7 @@ Christ’s advocacy is, at least in part, to remind us that He has paid for our 
 
 In stark contrast, Lucifer is an accuser or prosecutor. John the Revelator described Lucifer’s ultimate defeat: “And I heard a loud voice saying in heaven, Now is come salvation, and strength, and the kingdom of our God, and the power of his Christ.” Why? Because “the accuser of our brethren is cast down, which accused them before our God day and night. And they overcame him by the blood of the Lamb, and by the word of their testimony.”[^13]
 
-Lucifer is this accuser. He spoke against us in the premortal existence, and he continues to denounce us in this life. He seeks to drag us down. He wants us to experience endless woe. He is the one who tells us we are not adequate, the one who tells us we are not good enough, the one who tells us there is no recovery from a mistake. He is the ultimate bully, the one who kicks us when we are down.
+Lucifer is this accuser. He spoke against us in the premortal existence, and he continues to denounce us in this life. He seeks to drag us down. He wants us to experience endless woe. He is the one who tells us we are not adequate, the one who tells us we are not good enough, the one who tells us there is no recovery from a mistake. He is the ultimate bully, the one who kicks us when we are down. ^f1394c
 
 If Lucifer were teaching a child to walk and the child stumbled, he would scream at the child, punish him, and tell him to quit trying. Lucifer’s ways bring discouragement and despair—eventually and always. This father of lies is the ultimate purveyor of falsehood[^14] and cunningly works to deceive and distract us, “for he seeketh that all men might be miserable like unto himself.”[^15]
 

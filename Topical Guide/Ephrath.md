@@ -1,3 +1,3 @@
 # Ephrath
 
-*See also* [[BD Ephrath.md|BD Ephrath]]
+*See also* [[BD Ephrath, Ephratah|BD Ephrath]]

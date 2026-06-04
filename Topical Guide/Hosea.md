@@ -1,3 +1,3 @@
 # Hosea
 
-*See also* [[BD Hosea.md|BD Hosea]]
+*See also* [[BD Hosea, or Hoshea|BD Hosea]]

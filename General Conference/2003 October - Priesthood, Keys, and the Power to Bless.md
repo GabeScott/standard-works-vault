@@ -43,7 +43,7 @@ I am so grateful that a 14-year-old boy, Joseph Smith, entered a grove of trees 
 
 
 
-[^1]: See [[D&C 13.1|D&C 13]]; [[Joseph Smith History 1.68|Joseph Smith—History 1:68–72]][[Joseph Smith History 1.69|]][[Joseph Smith History 1.70|]][[Joseph Smith History 1.71|]][[Joseph Smith History 1.72|]].
+[^1]: See [[D&C 13.1|D&C 13]]; [[Joseph Smith History 1.68|Joseph Smith—History 1:68–72]][[Joseph Smith History 1.69|]][[Joseph Smith History 1.70|]][[Joseph Smith History 1.71|]][[Pearl of Great Price/Joseph Smith History 1.72]].
 
 [^2]: See [[D&C 27.12|D&C 27:12–13]][[D&C 27.13|]].
 

@@ -1,6 +1,6 @@
 # Ship
 
-*See also* [[BD Ship.md|BD Ship]]
+*See also* [[BD Ship, shipping|BD Ship]]
 
 Jehoshaphat made *ships* … to go … for gold, [[1 Kings 22.48|1 Kings 22:48]] ([[2 Chronicles 20.36|2 Chronicles 20:36]]).
 

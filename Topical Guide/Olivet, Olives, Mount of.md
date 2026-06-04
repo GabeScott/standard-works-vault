@@ -1,6 +1,6 @@
 # Olivet, Olives, Mount of
 
-*See also* [[BD Olives, Mount of.md|BD Olives, Mount of]]
+*See also* [[BD Olives, Mount of, or Olivet|BD Olives, Mount of]]
 
 David went up … mount *Olivet*, and wept, [[2 Samuel 15.30|2 Samuel 15:30]].
 

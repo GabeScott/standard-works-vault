@@ -1,3 +1,3 @@
 # Elath
 
-*See also* [[BD Elath.md|BD Elath]]
+*See also* [[BD Elath or Eloth|BD Elath]]

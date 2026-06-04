@@ -171,7 +171,7 @@ May God grant that we may be worthy to enter there and receive the fulness of th
 
 [^20]: [[D&C 42.11|D&C 42:11]].
 
-[^21]: [[Joseph Smith History 1.72|JS—H 1:72]].
+[^21]: [[Pearl of Great Price/Joseph Smith History 1.72|JS—H 1:72]].
 
 [^22]: [[D&C 13.1|D&C 13]].
 

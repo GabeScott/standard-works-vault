@@ -1,3 +1,3 @@
 # Ezion-gaber
 
-*See also* [[BD Ezion-gaber.md|BD Ezion-gaber]]
+*See also* [[BD Ezion-gaber or -geber|BD Ezion-gaber]]

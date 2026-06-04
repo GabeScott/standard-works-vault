@@ -93,7 +93,7 @@ God lives. Jesus is the Christ. His Church has been restored to bless all people
 
 [^12]: [[3 Nephi 20.26|3 Nephi 20:26]].
 
-[^13]: See [[Genesis 17.1|Genesis 17:1–10, 19]][[Genesis 17.2|]][[Genesis 17.3|]][[Genesis 17.4|]][[Genesis 17.5|]][[Genesis 17.6|]][[Genesis 17.7|]][[Genesis 17.8|]][[Genesis 17.9|]][[Genesis 17.10|]][[Genesis 17.19|]]; [[Leviticus 26.42|Leviticus 26:42]]; [[Acts 3.25|Acts 3:25]]; Bible Dictionary, “[[BD Abraham Covenant Of|Abraham, Covenant of]].”
+[^13]: See [[Genesis 17.1|Genesis 17:1–10, 19]][[Genesis 17.2|]][[Genesis 17.3|]][[Genesis 17.4|]][[Genesis 17.5|]][[Genesis 17.6|]][[Genesis 17.7|]][[Genesis 17.8|]][[Genesis 17.9|]][[Genesis 17.10|]][[Genesis 17.19|]]; [[Leviticus 26.42|Leviticus 26:42]]; [[Acts 3.25|Acts 3:25]]; Bible Dictionary, “[[BD Abraham, covenant of|Abraham, Covenant of]].”
 
 [^14]: See [[Genesis 26.1|Genesis 26:1–5, 24]][[Genesis 26.2|]][[Genesis 26.3|]][[Genesis 26.4|]][[Genesis 26.5|]][[Genesis 26.24|]].
 

@@ -1,3 +1,3 @@
 # Ammon
 
-*See also* [[BD Ammon.md|BD Ammon]]
+*See also* [[BD Ammon, Ammonites|BD Ammon]]

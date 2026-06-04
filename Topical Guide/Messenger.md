@@ -34,4 +34,4 @@ When a *messenger* comes … offer him your hand, [[D&C 129.4|D&C 129:4]].
 
 among the righteous … appointed *messengers*, [[D&C 138.30|D&C 138:30]].
 
-a *messenger* sent from the presence of God, [[Joseph Smith History 1.33|Joseph Smith History 1:33]] ([[Joseph Smith History 1.72|Joseph Smith History 1:72]]).
+a *messenger* sent from the presence of God, [[Joseph Smith History 1.33|Joseph Smith History 1:33]] ([[Pearl of Great Price/Joseph Smith History 1.72|Joseph Smith History 1:72]]).

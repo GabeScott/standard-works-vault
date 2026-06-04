@@ -53,7 +53,7 @@ Consider the magnitude of our blessing to have the Holy Bible and some 900 addit
 
 
 
-[^1]: The following sources were consulted for information about William Tyndale: David Daniell, *The Bible in English* (2003), 140–57; Lenet Hadley Read, *How We Got the Bible* (1985), 67–74; S. Michael Wilcox, *Fire in the Bones: William Tyndale—Martyr, Father of the English Bible* (2004); John Foxe, *The New Foxe’s Book of Martyrs* (1997), 121–33; Bible Dictionary, “[[BD Bible English|Bible, English]].”
+[^1]: The following sources were consulted for information about William Tyndale: David Daniell, *The Bible in English* (2003), 140–57; Lenet Hadley Read, *How We Got the Bible* (1985), 67–74; S. Michael Wilcox, *Fire in the Bones: William Tyndale—Martyr, Father of the English Bible* (2004); John Foxe, *The New Foxe’s Book of Martyrs* (1997), 121–33; Bible Dictionary, “[[BD Bible, English|Bible, English]].”
 
 [^2]: See interview of Richard Neitzel Holzapfel, in Michael De Groote, “Questioning the Alternative Jesus,” *Deseret News,* Nov. 26, 2009, M5.
 

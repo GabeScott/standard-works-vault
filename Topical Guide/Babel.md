@@ -1,3 +1,3 @@
 # Babel
 
-*See also* [[BD Babylon.md|BD Babylon]]
+*See also* [[BD Babylon or Babel|BD Babylon]]

@@ -1,3 +1,3 @@
 # Retaliation
 
-*See also* [[BD Retaliation, law of.md|BD Retaliation, law of]]
+*See also* [[BD Retaliation, law of, or lex talionis|BD Retaliation, law of]]

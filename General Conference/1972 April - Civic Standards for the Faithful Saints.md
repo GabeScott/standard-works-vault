@@ -101,4 +101,4 @@ God bless us all that we may use these standards and by so doing bless ourselves
 
 
 
-#BookOfMormon #Standards #U.s.Constitution
+#BookOfMormon #Standards #USConstitution

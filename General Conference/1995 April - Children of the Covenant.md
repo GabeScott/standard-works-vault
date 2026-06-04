@@ -137,7 +137,7 @@ With that doctrine implanted deeply within our souls, the sting of death is soot
 
 [^13]: See [[Genesis 28.1|Gen. 28:1–4, 10–14]][[Genesis 28.2|]][[Genesis 28.3|]][[Genesis 28.4|]][[Genesis 28.10|]][[Genesis 28.11|]][[Genesis 28.12|]][[Genesis 28.13|]][[Genesis 28.14|]]; [[Genesis 35.9|35:9–13]][[Genesis 35.10|]][[Genesis 35.11|]][[Genesis 35.12|]][[Genesis 35.13|]]; [[Genesis 48.3|48:3–4]][[Genesis 48.4|]].
 
-[^14]: [[1 Chronicles 16.15|1 Chr. 16:15]]. See also [[Genesis 17.1|Gen. 17:1–10, 19]][[Genesis 17.2|]][[Genesis 17.3|]][[Genesis 17.4|]][[Genesis 17.5|]][[Genesis 17.6|]][[Genesis 17.7|]][[Genesis 17.8|]][[Genesis 17.9|]][[Genesis 17.10|]][[Genesis 17.19|]]; [[Leviticus 26.42|Lev. 26:42]]; [[Acts 3.25|Acts 3:25]]; LDS Bible Dictionary, “[[BD Abraham Covenant Of|Abraham, Covenant of]],” p. 602.
+[^14]: [[1 Chronicles 16.15|1 Chr. 16:15]]. See also [[Genesis 17.1|Gen. 17:1–10, 19]][[Genesis 17.2|]][[Genesis 17.3|]][[Genesis 17.4|]][[Genesis 17.5|]][[Genesis 17.6|]][[Genesis 17.7|]][[Genesis 17.8|]][[Genesis 17.9|]][[Genesis 17.10|]][[Genesis 17.19|]]; [[Leviticus 26.42|Lev. 26:42]]; [[Acts 3.25|Acts 3:25]]; LDS Bible Dictionary, “[[BD Abraham, covenant of|Abraham, Covenant of]],” p. 602.
 
 [^15]: [[1 Nephi 15.18|1 Ne. 15:18]]; emphasis added. Other prophecies convey similar meaning. Among them are the following:
 

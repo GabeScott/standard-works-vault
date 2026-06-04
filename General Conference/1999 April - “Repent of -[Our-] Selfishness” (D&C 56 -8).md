@@ -40,7 +40,7 @@ Some of the selfish wrongly believe that there is no divine law anyway, so there
 
 Unsurprisingly, therefore, selfishness leads to terrible perceptual and behavioral blunders. For instance, Cain, corrupted by his seeking of power, said after slaying Abel, “I am free” ([[Moses 5.33|Moses 5:33]]; see also [[Moses 6.15|6:15]]).
 
-One of the worst consequences of severe selfishness, therefore, is this profound loss of proportionality, like straining at gnats while swallowing camels (see [[Matthew 23.24|Matt. 23:24]]; see also [[Matthew 23.note24a|JST in footnote 24a]]). Today there are, for example, those who strain over various gnats but swallow the practice of partial-birth abortions. Small wonder, therefore, that selfishness magnifies a mess of pottage into a banquet and makes 30 pieces of silver look like a treasure trove.
+One of the worst consequences of severe selfishness, therefore, is this profound loss of proportionality, like straining at gnats while swallowing camels (see [[Matthew 23.24|Matt. 23:24]]; see also [[Matthew 23.24|JST in footnote 24a]]). Today there are, for example, those who strain over various gnats but swallow the practice of partial-birth abortions. Small wonder, therefore, that selfishness magnifies a mess of pottage into a banquet and makes 30 pieces of silver look like a treasure trove.
 
 Developmentally, what transpires is like what happened to an ancient group of children “who did grow up … , that they became for themselves”—hardened and errant ([[3 Nephi 1.29|3 Ne. 1:29]]; see also [[3 Nephi 1.30|v. 30]]). Devastating cultural change can and does happen “in the space of not many years,” including replacing the much-needed spirit of community with a diversified alliance of dalliance (see [[Helaman 4.26|Hel. 4:26]]).
 

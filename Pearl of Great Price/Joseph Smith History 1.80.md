@@ -1,0 +1,7 @@
+# Joseph Smith History 1:80
+
+>“This was not long desired before it was realized. The Lord, who is rich in mercy, and ever willing to answer the consistent prayer of the humble, after we had called upon Him in a fervent manner, aside from the abodes of men, condescended to manifest to us His will. On a sudden, as from the midst of eternity, the voice of the Redeemer spake peace to us, while the veil was parted and the angel of God came down clothed with glory, and delivered the anxiously looked for message, and the keys of the Gospel of repentance. What joy! what wonder! what amazement! While the world was racked and distracted—while millions were groping as the blind for the wall, and while all men were resting upon uncertainty, as a general mass, our eyes beheld, our ears heard, as in the ‘blaze of day’; yes, more—above the glitter of the May sunbeam, which then shed its brilliancy over the face of nature! Then his voice, though mild, pierced to the center, and his words, ‘I am thy fellow-servant,’ dispelled every fear. We listened, we gazed, we admired! ’Twas the voice of an angel from glory, ’twas a message from the Most High! And as we heard we rejoiced, while His love enkindled upon our souls, and we were wrapped in the vision of the Almighty! Where was room for doubt? Nowhere; uncertainty had fled, doubt had sunk no more to rise, while fiction and deception had fled forever!
+
+[Joseph Smith History 1:80](https://www.churchofjesuschrist.org/study/scriptures/pgp/js-h/1?lang=eng&id=80#p80)
+
+#PoGP_Deep_Study 

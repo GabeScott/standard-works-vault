@@ -83,7 +83,7 @@ My dear brothers and sisters, as you choose to let God prevail in your lives, yo
 
 [^2]: In Hebrew, *Abram* is a noble name meaning “exalted father.” But when God changed that name to *Abraham,* the name took on even greater significance, meaning “father of a multitude.” Indeed, Abraham was to be the “father of many nations.” (See [[Genesis 17.5|Genesis 17:5]]; [[Nehemiah 9.7|Nehemiah 9:7]].)
 
-[^3]: The Lord God Jehovah made a covenant with Abraham that the Savior of the world would be born through Abraham’s seed, certain lands would be inherited, and all nations would be blessed through Abraham’s lineage (see Bible Dictionary, “[[BD Abraham Covenant Of|Abraham, covenant of]]”).
+[^3]: The Lord God Jehovah made a covenant with Abraham that the Savior of the world would be born through Abraham’s seed, certain lands would be inherited, and all nations would be blessed through Abraham’s lineage (see Bible Dictionary, “[[BD Abraham, covenant of|Abraham, covenant of]]”).
 
 [^4]: See Bible Dictionary, “[[BD Israel|Israel]].”
 

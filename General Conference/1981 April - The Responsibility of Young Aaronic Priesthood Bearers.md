@@ -98,7 +98,7 @@ While Joseph Smith was translating the Book of Mormon with Oliver Cowdery as the
 
 Joseph Smith received direction to baptize Oliver Cowdery and Oliver to baptize Joseph. Then the Aaronic Priesthood was conferred upon each.
 
-The heavenly messenger “said that his name was … John the Baptist, … and that he acted under the direction of Peter, James and John, who held the keys of the Priesthood of Melchizedek, which … would in due time be conferred on” Joseph and Oliver. (See [[Joseph Smith History 1.72|JS—H 1:72]].)
+The heavenly messenger “said that his name was … John the Baptist, … and that he acted under the direction of Peter, James and John, who held the keys of the Priesthood of Melchizedek, which … would in due time be conferred on” Joseph and Oliver. (See [[Pearl of Great Price/Joseph Smith History 1.72|JS—H 1:72]].)
 
 You hold this same sacred authority to declare repentance, to baptize, to administer the sacrament, to assist the bishop, and to be concerned for those needing special encouragement.
 

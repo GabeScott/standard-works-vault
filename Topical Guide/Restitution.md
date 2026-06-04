@@ -1,6 +1,6 @@
 # Restitution
 
-*See also* [[Repent, Repentance.md|Repent, Repentance]]; [[Restoration.md|Restoration]]; [[Restoration of the Gospel.md|Restoration of the Gospel]]; [[BD Restitution.md|BD Restitution]]
+*See also* [[Repent, Repentance.md|Repent, Repentance]]; [[Restoration.md|Restoration]]; [[Restoration of the Gospel.md|Restoration of the Gospel]]; [[BD Restitution, restoration|BD Restitution]]
 
 he should make full *restitution*, [[Exodus 22.3|Exodus 22:3]].
 

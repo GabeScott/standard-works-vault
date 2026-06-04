@@ -57,7 +57,7 @@ I testify that while many circumstances in life may be beyond our control, none 
 
 [^2]: [[2 Nephi 26.33|2 Nephi 26:33]].
 
-[^3]: Neal A. Maxwell, “[[1996 October - “According to the Desire of (Our) Hearts”.md|According to the Desires of (Our) Hearts]],” *Ensign*, Nov. 1996, 21.
+[^3]: Neal A. Maxwell, “[[1996 October - “According to the Desire of [Our] Hearts”|According to the Desires of (Our) Hearts]],” *Ensign*, Nov. 1996, 21.
 
 [^4]: [[Alma 7.11|Alma 7:11, 12]][[Alma 7.12|]].
 

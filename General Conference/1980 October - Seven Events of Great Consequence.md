@@ -52,7 +52,7 @@ Event number four: Two additional years pass. And now comes another visitation, 
 
 *“Upon you my fellow servants, in the name of Messiah, I confer the Priesthood of Aaron, which holds the keys of the ministering of angels, and of the gospel of repentance, and of baptism by immersion for the remission of sins, …*
 
-“The messenger who visited us on this occasion and conferred this Priesthood upon us, said that his name was John, the same that is called John the Baptist in the New Testament, and that he acted under the direction of Peter, James and John, who held the keys of the Priesthood of Melchizedek, which Priesthood, he said, would in due time be conferred on us.” ([[Joseph Smith History 1.68|JS—H 1:68–69, 72]][[Joseph Smith History 1.69|]][[Joseph Smith History 1.72|]].)
+“The messenger who visited us on this occasion and conferred this Priesthood upon us, said that his name was John, the same that is called John the Baptist in the New Testament, and that he acted under the direction of Peter, James and John, who held the keys of the Priesthood of Melchizedek, which Priesthood, he said, would in due time be conferred on us.” ([[Joseph Smith History 1.68|JS—H 1:68–69, 72]][[Joseph Smith History 1.69|]][[Pearl of Great Price/Joseph Smith History 1.72]].)
 
 Peter, James, and John came and ordained them to the Melchizedek Priesthood, which holds the power to act in the name of Deity.
 

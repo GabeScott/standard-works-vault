@@ -166,6 +166,6 @@ nevertheless a fact that I had beheld a *vision*, [[Joseph Smith History 1.24|Jo
 
 a *messenger* sent from the presence of God, [[Joseph Smith History 1.33|Joseph Smith History 1:33]].
 
-*messenger* who visited us on this occasion, [[Joseph Smith History 1.72|Joseph Smith History 1:72]].
+*messenger* who visited us on this occasion, [[Pearl of Great Price/Joseph Smith History 1.72|Joseph Smith History 1:72]].
 
 We believe in … prophecy, revelation, *visions*, [[Articles of Faith 1.7|Articles of Faith 1:7]].

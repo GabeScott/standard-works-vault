@@ -1,6 +1,6 @@
 # Joseph Smith
 
-*See also* [[Book of Mormon.md|Book of Mormon]]; [[Prophets, Mission of.md|Prophets, Mission of]]; [[Restoration of the Gospel.md|Restoration of the Gospel]]; [[BD Joseph Smith Translation.md|BD Joseph Smith Translation]]
+*See also* [[Book of Mormon.md|Book of Mormon]]; [[Prophets, Mission of.md|Prophets, Mission of]]; [[Restoration of the Gospel.md|Restoration of the Gospel]]; [[BD Joseph Smith Translation (JST)|BD Joseph Smith Translation]]
 
 shall come forth a *rod* out of the stem of Jesse, [[Isaiah 11.1|Isaiah 11:1]] ([[2 Nephi 21.1|2 Nephi 21:1]]).
 
