@@ -5,7 +5,7 @@
 [Psalms 14:1](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/14.1?lang=eng#p1)
 
 
-[^a]: [[JST Psalm 14.1|JST Ps. 14:1–7 (Appendix)]][[JST Psalm 14.2|]][[JST Psalm 14.3|]][[JST Psalm 14.4|]][[JST Psalm 14.5|]][[JST Psalm 14.6|]][[JST Psalm 14.7|]].  
+[^a]: [[JST Psalms 14.1|JST Ps. 14:1–7 (Appendix)]][[JST Psalms 14.2|]][[JST Psalms 14.3|]][[JST Psalms 14.4|]][[JST Psalms 14.5|]][[JST Psalms 14.6|]][[JST Psalms 14.7|]].  
 [^b]: [[Psalms 53.1|Ps. 53:1 (1–6)]][[Psalms 53.2|]][[Psalms 53.3|]][[Psalms 53.4|]][[Psalms 53.5|]][[Psalms 53.6|]]; [[Proverbs 10.21|Prov. 10:21]].  
 [^c]: [[Psalms 10.2|Ps. 10:4 (2–11)]][[Psalms 10.3|]][[Psalms 10.4|]][[Psalms 10.5|]][[Psalms 10.6|]][[Psalms 10.7|]][[Psalms 10.8|]][[Psalms 10.9|]][[Psalms 10.10|]][[Psalms 10.11|]].  
 [^d]: [[Alma 30.37|Alma 30:40 (37–41)]][[Alma 30.38|]][[Alma 30.39|]][[Alma 30.40|]][[Alma 30.41|]].  

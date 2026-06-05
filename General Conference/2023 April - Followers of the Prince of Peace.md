@@ -51,7 +51,7 @@ I testify that Jesus Christ lives and that His perfect love, expressed through H
 
 [^2]: In James E. Talmage, *[Jesus the Christ](https://www.churchofjesuschrist.org/study/manual/jesus-the-christ/chapter-29?lang=eng&id=p22#p22)* (1916), 517.
 
-[^3]: See [[JST Psalm 24.9|Joseph Smith Translation, Psalm 24:9]] (in the Bible appendix); [[Isaiah 9.6|Isaiah 9:6]]; [[1 Timothy 6.15|1 Timothy 6:15]]; [[Revelation 17.14|Revelation 17:14]]; [[Revelation 19.16|19:16]]; [[2 Nephi 19.6|2 Nephi 19:6]].
+[^3]: See [[JST Psalms 24.9|Joseph Smith Translation, Psalm 24:9]] (in the Bible appendix); [[Isaiah 9.6|Isaiah 9:6]]; [[1 Timothy 6.15|1 Timothy 6:15]]; [[Revelation 17.14|Revelation 17:14]]; [[Revelation 19.16|19:16]]; [[2 Nephi 19.6|2 Nephi 19:6]].
 
 [^4]: [[Luke 19.38|Luke 19:38]].
 

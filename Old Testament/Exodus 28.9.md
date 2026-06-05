@@ -6,4 +6,4 @@
 
 
 [^a]: [[Exodus 25.7|Ex. 25:7]].  
-[^b]: See [[JST Psalm 24.8|JST Ps. 24:8 (Appendix)]].  
+[^b]: See [[JST Psalms 24.8|JST Ps. 24:8 (Appendix)]].  
