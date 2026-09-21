@@ -4,7 +4,7 @@
 
 When the Lord first called Jeremiah to be a prophet, He told him that his mission would be “to root out, and to pull down” ([[Jeremiah 1.10|Jeremiah 1:10]])—and in Jerusalem, there was plenty of wickedness to root out and pull down. But this was only part of Jeremiah’s mission—he was also called “to build, and to plant” ([[Jeremiah 1.10|Jeremiah 1:10]]). What could be built or planted in the desolate ruins left by the rebellion of the covenant people? Asked another way, when sin or adversity has left our lives in ruins, how can we rebuild and plant again? The answer lies in “the Branch of righteousness” ([[Jeremiah 33.15|Jeremiah 33:15]]), the promised Messiah. He brings “a new covenant” ([[Jeremiah 31.31|Jeremiah 31:31]])—one that requires more than the outward appearance of devotion. His law must be “in \[our\] inward parts,” written “in \[our\] hearts.” That’s what it means for the Lord to “be \[our\] God” and for us to “be \[His\] people” ([[Jeremiah 31.33|Jeremiah 31:33]]). It’s a lifelong process, and we will still make mistakes and have cause to mourn from time to time. But when we do, the Lord promises, “I will turn their mourning into joy” ([[Jeremiah 31.13|Jeremiah 31:13]]).
 
-For an overview of Lamentations, see “[Lamentations, Book of](https://churchofjesuschrist.org/study/scriptures/gs/lamentations-book-of?lang=eng)” in the Guide to the Scriptures.
+For an overview of Lamentations, see “[[GS Lamentations, Book of|Lamentations, Book of]]” in the Guide to the Scriptures.
 
 ## Ideas for Learning at Home and at Church
 
@@ -16,7 +16,7 @@ In [[Jeremiah 31.1|Jeremiah 31]][[Jeremiah 31.2|]][[Jeremiah 31.3|]][[Jeremiah 3
 [[Jeremiah 31.31|Jeremiah 31:31–34]][[Jeremiah 31.32|]][[Jeremiah 31.33|]][[Jeremiah 31.34|]]; [[Jeremiah 32.37|32:37–42]][[Jeremiah 32.38|]][[Jeremiah 32.39|]][[Jeremiah 32.40|]][[Jeremiah 32.41|]][[Jeremiah 32.42|]]
 ### “They shall be my people, and I will be their God.”
 
-Although the Israelites had broken their covenants, Jeremiah prophesied that the Lord would again establish a “new” and “everlasting covenant” with them ([[Jeremiah 31.31|Jeremiah 31:31]]; [[Jeremiah 32.40|32:40]]). What is that covenant? Consider looking for insights in Guide to the Scriptures, “[New and Everlasting Covenant](https://churchofjesuschrist.org/study/scriptures/gs/new-and-everlasting-covenant?lang=eng),” Gospel Library.
+Although the Israelites had broken their covenants, Jeremiah prophesied that the Lord would again establish a “new” and “everlasting covenant” with them ([[Jeremiah 31.31|Jeremiah 31:31]]; [[Jeremiah 32.40|32:40]]). What is that covenant? Consider looking for insights in Guide to the Scriptures, “[[GS New and Everlasting Covenant|New and Everlasting Covenant]],” Gospel Library, (see also Alan R. Walker, "[[2026 April - A Peculiar Treasure.md|A Peculiar Treasure]]," *Liahona*, May 2026, 82–84).
 
 As you read [[Jeremiah 31.31|Jeremiah 31:31–34]][[Jeremiah 31.32|]][[Jeremiah 31.33|]][[Jeremiah 31.34|]]; [[Jeremiah 32.37|32:37–42]][[Jeremiah 32.38|]][[Jeremiah 32.39|]][[Jeremiah 32.40|]][[Jeremiah 32.41|]][[Jeremiah 32.42|]], ponder:
 

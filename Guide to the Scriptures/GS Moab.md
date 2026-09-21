@@ -1,0 +1,9 @@
+# Moab
+
+[Link](https://www.churchofjesuschrist.org/study/scriptures/gs/moab?lang=eng)
+
+*See also* [[GS Lot|Lot]]
+
+A land in Old Testament times located east of the Dead Sea. The Moabites were descendants of Lot and were related to the Israelites. They spoke a language similar to Hebrew. There was constant warfare between the Moabites and the Israelites ([[Judges 3.12|Judg. 3:12–30]][[Judges 3.13|]][[Judges 3.14|]][[Judges 3.15|]][[Judges 3.16|]][[Judges 3.17|]][[Judges 3.18|]][[Judges 3.19|]][[Judges 3.20|]][[Judges 3.21|]][[Judges 3.22|]][[Judges 3.23|]][[Judges 3.24|]][[Judges 3.25|]][[Judges 3.26|]][[Judges 3.27|]][[Judges 3.28|]][[Judges 3.29|]][[Judges 3.30|]]; [[Judges 11.17|11:17]]; [[2 Samuel 8.2|2 Sam. 8:2]]; [[2 Kings 3.6|2 Kgs. 3:6–27]][[2 Kings 3.7|]][[2 Kings 3.8|]][[2 Kings 3.9|]][[2 Kings 3.10|]][[2 Kings 3.11|]][[2 Kings 3.12|]][[2 Kings 3.13|]][[2 Kings 3.14|]][[2 Kings 3.15|]][[2 Kings 3.16|]][[2 Kings 3.17|]][[2 Kings 3.18|]][[2 Kings 3.19|]][[2 Kings 3.20|]][[2 Kings 3.21|]][[2 Kings 3.22|]][[2 Kings 3.23|]][[2 Kings 3.24|]][[2 Kings 3.25|]][[2 Kings 3.26|]][[2 Kings 3.27|]]; [[2 Chronicles 20.1|2 Chr. 20:1–25]][[2 Chronicles 20.2|]][[2 Chronicles 20.3|]][[2 Chronicles 20.4|]][[2 Chronicles 20.5|]][[2 Chronicles 20.6|]][[2 Chronicles 20.7|]][[2 Chronicles 20.8|]][[2 Chronicles 20.9|]][[2 Chronicles 20.10|]][[2 Chronicles 20.11|]][[2 Chronicles 20.12|]][[2 Chronicles 20.13|]][[2 Chronicles 20.14|]][[2 Chronicles 20.15|]][[2 Chronicles 20.16|]][[2 Chronicles 20.17|]][[2 Chronicles 20.18|]][[2 Chronicles 20.19|]][[2 Chronicles 20.20|]][[2 Chronicles 20.21|]][[2 Chronicles 20.22|]][[2 Chronicles 20.23|]][[2 Chronicles 20.24|]][[2 Chronicles 20.25|]]; [[Isaiah 15.1|Isa. 15]][[Isaiah 15.2|]][[Isaiah 15.3|]][[Isaiah 15.4|]][[Isaiah 15.5|]][[Isaiah 15.6|]][[Isaiah 15.7|]][[Isaiah 15.8|]][[Isaiah 15.9|]]).
+
+

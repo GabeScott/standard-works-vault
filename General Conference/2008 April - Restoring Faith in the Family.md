@@ -91,7 +91,7 @@ It is my prayer that we can stand together, with courage and conviction, as guar
 
 [^1]: [[Alma 42.8|Alma 42:8]]; see also [[Alma 24.14|Alma 24:14]].
 
-[^2]: See Guide to the Scriptures, “[Principle](https://www.churchofjesuschrist.org/study/scriptures/gs/principle?lang=eng),” www.scriptures.lds.org.
+[^2]: See Guide to the Scriptures, “[[GS Principle|Principle]],” www.scriptures.lds.org.
 
 [^3]: [[1 Corinthians 2.11|1 Corinthians 2:11]].
 

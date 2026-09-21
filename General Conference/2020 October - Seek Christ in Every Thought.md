@@ -63,7 +63,7 @@ I bear my witness that Jesus Christ lives and that through Him, we may triumph o
 
 [^1]: [[Psalms 139.1|Psalm 139:1–3]][[Psalms 139.2|]][[Psalms 139.3|]].
 
-[^2]: See Guide to the Scriptures, “[Omniscient](https://www.churchofjesuschrist.org/study/scriptures/gs/omniscient?lang=eng),” scriptures.ChurchofJesusChrist.org; see also [[Matthew 6.8|Matthew 6:8]]; [[2 Nephi 2.24|2 Nephi 2:24]]; [[3 Nephi 28.6|3 Nephi 28:6]]; [[D&C 6.16|Doctrine and Covenants 6:16]].
+[^2]: See Guide to the Scriptures, “[[GS Omniscient|Omniscient]],” scriptures.ChurchofJesusChrist.org; see also [[Matthew 6.8|Matthew 6:8]]; [[2 Nephi 2.24|2 Nephi 2:24]]; [[3 Nephi 28.6|3 Nephi 28:6]]; [[D&C 6.16|Doctrine and Covenants 6:16]].
 
 [^3]: See [[Psalms 119.2|Psalm 119:2]]; [[Isaiah 45.22|Isaiah 45:22]]; [[Mosiah 7.33|Mosiah 7:33]]; [[D&C 6.36|Doctrine and Covenants 6:36]].
 
@@ -81,7 +81,7 @@ I bear my witness that Jesus Christ lives and that through Him, we may triumph o
 
 [^10]: See [[Proverbs 23.7|Proverbs 23:7]]; [[Jeremiah 17.10|Jeremiah 17:10]]; [[2 Nephi 9.39|2 Nephi 9:39]]; [[Mosiah 4.30|Mosiah 4:30]]; [[Alma 12.14|Alma 12:14]]; [[D&C 137.9|Doctrine and Covenants 137:9]].
 
-[^11]: Neal A. Maxwell, “[[1996 October - “According to the Desire of [Our] Hearts”|According to the Desire of (Our) Hearts]],” *Ensign,* Nov. 1996, 22; see also [[Matthew 22.14|Matthew 22:14]]; [[D&C 95.5|Doctrine and Covenants 95:5]].
+[^11]: Neal A. Maxwell, “[[1996 October - “According to the Desire of -[Our-] Hearts”|According to the Desire of (Our) Hearts]],” *Ensign,* Nov. 1996, 22; see also [[Matthew 22.14|Matthew 22:14]]; [[D&C 95.5|Doctrine and Covenants 95:5]].
 
 [^12]: See [[Mormon 9.27|Mormon 9:27–29]][[Mormon 9.28|]][[Mormon 9.29|]]; see also [[Mosiah 2.41|Mosiah 2:41]].
 
@@ -89,7 +89,7 @@ I bear my witness that Jesus Christ lives and that through Him, we may triumph o
 
 [^14]: See [[Mormon 9.28|Mormon 9:28]].
 
-[^15]: See Guide to the Scriptures, “[Lust](https://www.churchofjesuschrist.org/study/scriptures/gs/lust?lang=eng),” scriptures.ChurchofJesusChrist.org.
+[^15]: See Guide to the Scriptures, “[[GS Lust|Lust]],” scriptures.ChurchofJesusChrist.org.
 
 [^16]: [[Galatians 5.19|Galatians 5:19–21]][[Galatians 5.20|]][[Galatians 5.21|]].
 

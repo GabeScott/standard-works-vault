@@ -28,7 +28,7 @@ In 1838, in a message similar to that given in the Sermon on the Mount, the Lord
 
 Our days are so extraordinary that they were even shown in a vision to the prophet Isaiah; he too saw and prophesied of this day of the Restoration of the Church of Jesus Christ and of its purpose, saying, “And he shall set up an ensign for the nations, and shall assemble the outcasts of Israel, and gather together the dispersed of Judah from the four corners of the earth” ([[Isaiah 11.12|Isaiah 11:12]]).
 
-In a scriptural context an ensign, or a standard, is a flag around which people would gather in a unity of purpose. In ancient times a standard served as a rallying point for soldiers in battle. Symbolically speaking, the Book of Mormon and the restored Church of Jesus Christ are standards to all nations. (See Guide to the Scriptures, “[Ensign](https://www.churchofjesuschrist.org/study/scriptures/gs/ensign?lang=eng),” scriptures.lds.org.)
+In a scriptural context an ensign, or a standard, is a flag around which people would gather in a unity of purpose. In ancient times a standard served as a rallying point for soldiers in battle. Symbolically speaking, the Book of Mormon and the restored Church of Jesus Christ are standards to all nations. (See Guide to the Scriptures, “[[GS Ensign|Ensign]],” scriptures.lds.org.)
 
 Without a doubt, one of the great standards of these latter days is this magnificent general conference, where the great work and plan of our Heavenly Father “to bring to pass the immortality and eternal life of man” ([[Moses 1.39|Moses 1:39]]) is continually proclaimed.
 

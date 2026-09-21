@@ -101,7 +101,7 @@ I testify that pressing forward on the covenant path provides spiritual safety a
 
 [^3]: [[2 Nephi 28.21|2 Nephi 28:21]]; emphasis added.
 
-[^4]: See [[Ezekiel 33.7|Ezekiel 33:7]]; [[D&C 101.44|Doctrine and Covenants 101:44–58]][[D&C 101.45|]][[D&C 101.46|]][[D&C 101.47|]][[D&C 101.48|]][[D&C 101.49|]][[D&C 101.50|]][[D&C 101.51|]][[D&C 101.52|]][[D&C 101.53|]][[D&C 101.54|]][[D&C 101.55|]][[D&C 101.56|]][[D&C 101.57|]][[D&C 101.58|]]; Guide to the Scriptures, “[Watch, Watchmen](https://www.churchofjesuschrist.org/study/scriptures/gs/watch-watchmen?lang=eng),” scriptures.ChurchofJesusChrist.org.
+[^4]: See [[Ezekiel 33.7|Ezekiel 33:7]]; [[D&C 101.44|Doctrine and Covenants 101:44–58]][[D&C 101.45|]][[D&C 101.46|]][[D&C 101.47|]][[D&C 101.48|]][[D&C 101.49|]][[D&C 101.50|]][[D&C 101.51|]][[D&C 101.52|]][[D&C 101.53|]][[D&C 101.54|]][[D&C 101.55|]][[D&C 101.56|]][[D&C 101.57|]][[D&C 101.58|]]; Guide to the Scriptures, “[[GS Watch, Watchmen|Watch, Watchmen]],” scriptures.ChurchofJesusChrist.org.
 
 [^5]: [[Alma 34.39|Alma 34:39]].
 
@@ -109,7 +109,7 @@ I testify that pressing forward on the covenant path provides spiritual safety a
 
 [^7]: [[D&C 50.46|Doctrine and Covenants 50:46]].
 
-[^8]: Guide to the Scriptures, “[Devil](https://www.churchofjesuschrist.org/study/scriptures/gs/devil?lang=eng),” scriptures.ChurchofJesusChrist.org.
+[^8]: Guide to the Scriptures, “[[GS Devil|Devil]],” scriptures.ChurchofJesusChrist.org.
 
 [^9]: See [[2 Nephi 2.27|2 Nephi 2:27]].
 

@@ -151,13 +151,13 @@ I testify that Jesus Christ is the Savior of the world and that His is the only 
 
 [^45]: Confirmation occurs by the laying on of hands (see, for example, [[Acts 8.17|Acts 8:17]]).
 
-[^46]: See [[D&C 20.28|Doctrine and Covenants 20:28]]; Guide to the Scriptures, “[Holy Ghost,](https://www.churchofjesuschrist.org/study/scriptures/gs/holy-ghost?lang=eng)” scriptures.lds.org.
+[^46]: See [[D&C 20.28|Doctrine and Covenants 20:28]]; Guide to the Scriptures, “[[GS Holy Ghost|Holy Ghost,]]” scriptures.lds.org.
 
 [^47]: See [[2 Corinthians 3.18|2 Corinthians 3:18]]; [[1 Nephi 14.14|1 Nephi 14:14]]; [[D&C 93.20|Doctrine and Covenants 93:20]].
 
 [^48]: See [[3 Nephi 27.20|3 Nephi 27:20]].
 
-[^49]: Guide to the Scriptures, “[Sanctification,](https://www.churchofjesuschrist.org/study/scriptures/gs/sanctification?lang=eng)” scriptures.lds.org.
+[^49]: Guide to the Scriptures, “[[GS Sanctification|Sanctification,]]” scriptures.lds.org.
 
 [^50]: See [[Moroni 7.48|Moroni 7:48]]; [[Moroni 8.26|8:26]]; [[Moroni 10.8|10:8–18.]][[Moroni 10.9|]][[Moroni 10.10|]][[Moroni 10.11|]][[Moroni 10.12|]][[Moroni 10.13|]][[Moroni 10.14|]][[Moroni 10.15|]][[Moroni 10.16|]][[Moroni 10.17|]][[Moroni 10.18|]]
 

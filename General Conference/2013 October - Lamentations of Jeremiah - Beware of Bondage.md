@@ -93,7 +93,7 @@ Let us avoid the despair and sorrow of those who fall into captivity and can no 
 
 [^11]: Russell M. Nelson, “The Book of Mormon and the Gathering of Israel” (address given at the seminar for new mission presidents, June 26, 2013), 6, Church History Library, Salt Lake City.
 
-[^12]: Guide to the Scriptures, “[Israel](https://www.churchofjesuschrist.org/study/scriptures/gs/israel?lang=eng)”; scriptures.lds.org.
+[^12]: Guide to the Scriptures, “[[GS Israel|Israel]]”; scriptures.lds.org.
 
 [^13]: The Lord, speaking in our day, said, “The whole world lieth in sin, and groaneth under darkness and under the bondage of sin … because they come not unto me” ([[D&C 84.49|Doctrine and Covenants 84:49–50]][[D&C 84.50|]]).
 

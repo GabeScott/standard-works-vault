@@ -83,7 +83,7 @@ Our God will see that we receive justice and fairness, *but if not.* … He will
 
 
 
-[^1]: See Guide to the Scriptures, “[Faith](https://www.churchofjesuschrist.org/study/scriptures/gs/faith?lang=eng&id=p1#p1),” 80; see also [[Hebrews 11.1|Hebrews 11:1]]; [[Alma 32.21|Alma 32:21]]; [[Ether 12.6|Ether 12:6]].
+[^1]: See Guide to the Scriptures, “[[GS Faith|Faith]],” 80; see also [[Hebrews 11.1|Hebrews 11:1]]; [[Alma 32.21|Alma 32:21]]; [[Ether 12.6|Ether 12:6]].
 
 [^2]: [[Daniel 3.15|Daniel 3:15]].
 

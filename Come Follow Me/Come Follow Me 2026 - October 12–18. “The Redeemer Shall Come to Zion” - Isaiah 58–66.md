@@ -19,7 +19,7 @@ Why would anyone voluntarily go without food when food is available? As you stud
 
 In his message “[[2015 April - “Is Not This the Fast That I Have Chosen”.md|Is Not This the Fast That I Have Chosen?]]” (*Ensign* or *Liahona*, May 2015, 22–25), President Henry B. Eyring shared several examples of how people have been blessed by fasting and fast offerings. How have you witnessed similar blessings in your life?
 
-See also “[Bless Our Fast, We Pray](https://churchofjesuschrist.org/study/manual/hymns/bless-our-fast-we-pray?lang=eng),” *Hymns*, no. 138; Topics and Questions, “[Fasting and Fast Offerings,](https://churchofjesuschrist.org/study/manual/gospel-topics/fasting-and-fast-offerings?lang=eng)” Gospel Library.
+See also “[Bless Our Fast, We Pray](https://churchofjesuschrist.org/study/manual/hymns/bless-our-fast-we-pray?lang=eng),” *Hymns*, no. 138; Topics and Questions, “[Fasting and Fast Offerings,](https://churchofjesuschrist.org/study/manual/gospel-topics/fasting-and-fast-offerings-study-guide?lang=eng)” Gospel Library.
 
 > **Get to know the people you teach.** “Being a Christlike teacher includes getting to know the people you teach and striving to understand what is in their hearts. … You can find out how they learn best. You can ask questions, listen carefully, and observe. Above all, you can pray for the understanding that only the Spirit can give. The better you know a person, the better able you are to help him or her find personal meaning and power in the gospel of Jesus Christ. Once you understand a person’s thirst, the Spirit can teach you how to help quench it with the Savior’s living water” (*Teaching in the Savior’s Way*, [13](https://churchofjesuschrist.org/study/manual/teaching-in-the-saviors-way-2022/07-part-2/08-love-those-you-teach?lang=eng&id=p7#p7)).
 
@@ -79,7 +79,7 @@ See also [[Articles of Faith 1.10|Articles of Faith 1:10]]; Russell M. Nelson, �
 [[Isaiah 58.6|Isaiah 58:6–11]][[Isaiah 58.7|]][[Isaiah 58.8|]][[Isaiah 58.9|]][[Isaiah 58.10|]][[Isaiah 58.11|]]
 ### Fasting blesses me and others in need.
 
-- Perhaps the best way to encourage your children to fast—when they are ready—is to help them understand the Lord’s purposes for this law. Consider reading together [[Isaiah 58.6|Isaiah 58:6–11]][[Isaiah 58.7|]][[Isaiah 58.8|]][[Isaiah 58.9|]][[Isaiah 58.10|]][[Isaiah 58.11|]] to find answers to these questions: Why do we fast? How do we fast? You could also look in “[Fast, Fasting](https://churchofjesuschrist.org/study/scriptures/gs/fast-fasting?lang=eng)” in the Guide to the Scriptures.
+- Perhaps the best way to encourage your children to fast—when they are ready—is to help them understand the Lord’s purposes for this law. Consider reading together [[Isaiah 58.6|Isaiah 58:6–11]][[Isaiah 58.7|]][[Isaiah 58.8|]][[Isaiah 58.9|]][[Isaiah 58.10|]][[Isaiah 58.11|]] to find answers to these questions: Why do we fast? How do we fast? You could also look in “[[GS Fast, Fasting|Fast, Fasting]]” in the Guide to the Scriptures.
 
 - If you have had a meaningful experience with fasting, share it with your children. You could also ask them how they would explain to a friend why the Lord gave us this law.
 
@@ -100,7 +100,7 @@ See also [[Articles of Faith 1.10|Articles of Faith 1:10]]; Russell M. Nelson, �
 
 - [[Isaiah 65.17|Isaiah 65:17–25]][[Isaiah 65.18|]][[Isaiah 65.19|]][[Isaiah 65.20|]][[Isaiah 65.21|]][[Isaiah 65.22|]][[Isaiah 65.23|]][[Isaiah 65.24|]][[Isaiah 65.25|]] describes what the earth will be like when the Savior comes again. As you read these verses with your children, help them look for how life will be different in the “new earth” Isaiah described. Why will this be a time to be “glad and rejoice for ever”? ([[Isaiah 65.18|verse 18]]).
 
-- You could also sing together a song about the Second Coming, such as “[When the Savior Comes Again](https://www.churchofjesuschrist.org/media/music/songs/when-the-savior-comes-again)” (Gospel Library). Share with each other what you are looking forward to about the Savior’s return. What can we do to prepare for that day?
+- You could also sing together a song about the Second Coming, such as “[When the Savior Comes Again](https://churchofjesuschrist.org/study/music/hymns-for-home-and-church/when-the-savior-comes-again?lang=eng)” (*Hymns for Home and Church*, Gospel Library). Share with each other what you are looking forward to about the Savior’s return. What can we do to prepare for that day?
 
 > For more, see this month’s issue of the *[Friend](https://churchofjesuschrist.org/study/magazines/friend?lang=eng)* magazine.
 

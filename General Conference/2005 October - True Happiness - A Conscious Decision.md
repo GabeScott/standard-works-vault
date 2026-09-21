@@ -51,7 +51,7 @@ I leave with you my love and my humble testimony, in the name of the Lord Jesus 
 
 [^2]: [[1 Nephi 1.20|1 Nephi 1:20]]; emphasis added.
 
-[^3]: See Guide to the Scriptures, “[Joy](https://www.churchofjesuschrist.org/study/scriptures/gs/joy?lang=eng&id=p1#p1),” 137.
+[^3]: See Guide to the Scriptures, “[[GS Joy|Joy]],” 137.
 
 [^4]: See [[2 Nephi 9.43|2 Nephi 9:43]].
 

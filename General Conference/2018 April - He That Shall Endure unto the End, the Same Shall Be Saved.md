@@ -89,7 +89,7 @@ Whatever our personal situations may be, I testify that our Heavenly Father is c
 
 [^1]: [[Matthew 24.13|Matthew 24:13]].
 
-[^2]: Guide to the Scriptures, “[Endure](https://www.churchofjesuschrist.org/study/scriptures/gs/endure?lang=eng),” scriptures.lds.org.
+[^2]: Guide to the Scriptures, “[[GS Endure|Endure]],” scriptures.lds.org.
 
 [^3]: [[John 6.66|John 6:66–67]][[John 6.67|]].
 

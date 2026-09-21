@@ -117,7 +117,7 @@ This is my witness and testimony, in the sacred name of Him who will always come
 
 [^21]: Bible Dictionary, “[[BD Faith|Faith]].”
 
-[^22]: Guide to the Scriptures, “[Faith](https://www.churchofjesuschrist.org/study/scriptures/gs/faith?lang=eng),” scriptures.ChurchofJesusChrist.org.
+[^22]: Guide to the Scriptures, “[[GS Faith|Faith]],” scriptures.ChurchofJesusChrist.org.
 
 [^23]: [[D&C 123.17|Doctrine and Covenants 123:17]].
 

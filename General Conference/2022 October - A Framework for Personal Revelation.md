@@ -53,7 +53,7 @@ The elements of the framework for personal revelation are overlapping and mutual
 
 [^1]: Elder Dieter F. Uchtdorf has consistently and effectively used analogies related to aircraft to teach important gospel principles. For example, he recently linked pilots’ preflight checklists to teaching like the Savior in “[A Teacher’s Checklist](https://www.churchofjesuschrist.org/study/broadcasts/language-recording/2022/05/11uchtdorf?lang=eng&id=p11#p11)” (\[broadcast for teachers, June 12, 2022\], broadcasts.ChurchofJesusChrist.org).
 
-[^2]: The Holy Ghost is the third member of the Godhead, is often referred to as the Spirit or the Spirit of God, and performs vital roles in the plan of salvation. He bears witness of the Father and the Son, reveals the truth of all things, sanctifies those who have repented and been baptized, and is the Holy Spirit of Promise (see Guide to the Scriptures, “[Holy Ghost](https://www.churchofjesuschrist.org/study/scriptures/gs/holy-ghost?lang=eng),” scriptures.ChurchofJesusChrist.org).
+[^2]: The Holy Ghost is the third member of the Godhead, is often referred to as the Spirit or the Spirit of God, and performs vital roles in the plan of salvation. He bears witness of the Father and the Son, reveals the truth of all things, sanctifies those who have repented and been baptized, and is the Holy Spirit of Promise (see Guide to the Scriptures, “[[GS Holy Ghost|Holy Ghost]],” scriptures.ChurchofJesusChrist.org).
 
 [^3]: See [[2 Nephi 31.19|2 Nephi 31:19–21]][[2 Nephi 31.20|]][[2 Nephi 31.21|]]; [[Mosiah 4.8|Mosiah 4:8]]. There is no other way whereby we “can be saved in the kingdom of God.” Wishing otherwise will not create an alternative path.
 
@@ -77,7 +77,7 @@ The elements of the framework for personal revelation are overlapping and mutual
 
 [^13]: [[James 4.3|James 4:3]]; see James 4:3, New International Version; [[2 Nephi 4.35|2 Nephi 4:35]]; [[D&C 8.10|Doctrine and Covenants 8:10]]; [[D&C 46.7|46:7]]; [[D&C 88.64|88:64–65]][[D&C 88.65|]].
 
-[^14]: See [[D&C 88.64|Doctrine and Covenants 88:64–65]][[D&C 88.65|]]; Guide to the Scriptures, “[Prayer](https://www.churchofjesuschrist.org/study/scriptures/gs/prayer?lang=eng),” scriptures.ChurchofJesusChrist.org.
+[^14]: See [[D&C 88.64|Doctrine and Covenants 88:64–65]][[D&C 88.65|]]; Guide to the Scriptures, “[[GS Prayer|Prayer]],” scriptures.ChurchofJesusChrist.org.
 
 [^15]: See [[3 Nephi 18.20|3 Nephi 18:20]]; [[Moroni 7.26|Moroni 7:26]].
 

@@ -47,7 +47,7 @@ Several of Zechariah’s writings point both to the earthly ministry of Jesus Ch
 
 What do you think it would have been like to be among the people welcoming Jesus into Jerusalem as described in [[Zechariah 9.9|Zechariah 9:9–11]][[Zechariah 9.10|]][[Zechariah 9.11|]]? How can you welcome Him into your life, your homes, and your community?
 
-See also Guide to the Scriptures, “[Messiah](https://churchofjesuschrist.org/study/scriptures/gs/messiah?lang=eng),” Gospel Library; “The Lord’s Triumphal Entry into Jerusalem” (video), Gospel Library; Ronald A. Rasband, “[[2023 April - Hosanna to the Most High God.md|Hosanna to the Most High God]],” *Liahona*, May 2023, 108–12.
+See also Guide to the Scriptures, “[[GS Messiah|Messiah]],” Gospel Library; “The Lord’s Triumphal Entry into Jerusalem” (video), Gospel Library; Ronald A. Rasband, “[[2023 April - Hosanna to the Most High God.md|Hosanna to the Most High God]],” *Liahona*, May 2023, 108–12.
 
 > For more, see this month’s issues of the *[Liahona](https://churchofjesuschrist.org/study/magazines/liahona?lang=eng)* and *[For the Strength of Youth](https://churchofjesuschrist.org/study/magazines/for-the-strength-of-youth?lang=eng)* magazines.
 
@@ -79,7 +79,7 @@ See also Guide to the Scriptures, “[Messiah](https://churchofjesuschrist.org/s
 
 - In a vision, Zechariah saw a high priest who was “clothed with filthy garments” ([[Zechariah 3.3|Zechariah 3:3]]). An angel gave him clean clothing. You could help your children discover important truths by reading together [[Zechariah 3.1|Zechariah 3:1–7]][[Zechariah 3.2|]][[Zechariah 3.3|]][[Zechariah 3.4|]][[Zechariah 3.5|]][[Zechariah 3.6|]][[Zechariah 3.7|]] and talking about what the dirty clothing and clean clothing might represent. How do we become clean from our sins, even after we are baptized? How does our baptismal covenant help us “walk in \[the Lord’s\] ways”?
 
-- You and your children could look at a picture of a baptism, like the one in this outline. Why do we wear white at our baptism? You could also sing a song about baptism, such as “When I Am Baptized” (*Children’s Songbook*, 103); what does the song teach about why the Lord wants us to be baptized?
+- You and your children could look at a picture of a baptism, like the one in this outline. Why do we wear white at our baptism? You could also sing a song about baptism, such as “[When I Am Baptized](https://churchofjesuschrist.org/study/music/hymns-for-home-and-church/when-i-am-baptized?lang=eng)” (*Hymns for Home and Church*, Gospel Library); what does the song teach about why the Lord wants us to be baptized?
 
 [[Zechariah 9.9|Zechariah 9:9–11]][[Zechariah 9.10|]][[Zechariah 9.11|]]; [[Zechariah 11.12|11:12]]; [[Zechariah 13.6|13:6–7]][[Zechariah 13.7|]]
 ### Jesus Christ is the promised Messiah.

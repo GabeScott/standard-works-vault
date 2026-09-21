@@ -69,7 +69,7 @@ I testify that God lives. “Man of Holiness is his name.”[^17] Jesus Christ i
 
 [^2]: *Sacrifice* is derived from the Latin *sacrificium*, which is comprised of the two Latin roots *sacer* and *facere*, according to the *Merriam-Webster Dictionary* (see merriam-webster.com). The word *sacer* means “sacred” or “holy,” and the word *facere* means “to make or do,” according to the *Latin-English Dictionary* (see latin-english.com).
 
-[^3]: Guide to the Scriptures, “[Sacrifice](https://www.churchofjesuschrist.org/study/scriptures/gs/sacrifice?lang=eng),” scriptures.ChurchofJesusChrist.org.
+[^3]: Guide to the Scriptures, “[[GS Sacrifice|Sacrifice]],” scriptures.ChurchofJesusChrist.org.
 
 [^4]: [[Hosea 6.6|Hosea 6:6]]; see footnote *b*, indicating that *mercy* in Hebrew means “charity” or “lovingkindness.” See also [[Matthew 9.10|Matthew 9:10–13]][[Matthew 9.11|]][[Matthew 9.12|]][[Matthew 9.13|]]; [[Matthew 12.7|12:7]].
 

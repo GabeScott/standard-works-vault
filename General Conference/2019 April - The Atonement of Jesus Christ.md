@@ -109,7 +109,7 @@ I bear my witness that the Savior’s Atonement is not only infinite in scope bu
 
 [^12]: [[D&C 123.17|Doctrine and Covenants 123:17]].
 
-[^13]: See Bible Dictionary, “[[BD Grace|Grace]]”; see also Guide to the Scriptures, “[Grace](https://www.churchofjesuschrist.org/study/scriptures/gs/grace?lang=eng),” scriptures.ChurchofJesusChrist.org.
+[^13]: See Bible Dictionary, “[[BD Grace|Grace]]”; see also Guide to the Scriptures, “[[GS Grace|Grace]],” scriptures.ChurchofJesusChrist.org.
 
 [^14]: [[Moroni 10.32|Moroni 10:32]].
 

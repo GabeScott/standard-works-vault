@@ -77,7 +77,7 @@ My dear brothers and sisters, on this Easter Sunday, I bear my solemn witness th
 
 [^13]: See [[John 10.17|John 10:17–18]][[John 10.18|]].
 
-[^14]: See [[1 Peter 1.19|1 Peter 1:19]]; [[2 Nephi 2.7|2 Nephi 2:7]]; [[Mosiah 15.2|Mosiah 15:2–5]][[Mosiah 15.3|]][[Mosiah 15.4|]][[Mosiah 15.5|]]; see also Guide to the Scriptures, “[Justice](https://www.churchofjesuschrist.org/study/scriptures/gs/justice?lang=eng),” scriptures.ChurchofJesusChrist.org.
+[^14]: See [[1 Peter 1.19|1 Peter 1:19]]; [[2 Nephi 2.7|2 Nephi 2:7]]; [[Mosiah 15.2|Mosiah 15:2–5]][[Mosiah 15.3|]][[Mosiah 15.4|]][[Mosiah 15.5|]]; see also Guide to the Scriptures, “[[GS Justice|Justice]],” scriptures.ChurchofJesusChrist.org.
 
 [^15]: *[Teachings of Presidents of the Church: Joseph Smith](https://www.churchofjesuschrist.org/study/manual/teachings-joseph-smith/chapter-3?lang=eng&id=p11#p11)* (2007), 48.
 
@@ -85,7 +85,7 @@ My dear brothers and sisters, on this Easter Sunday, I bear my solemn witness th
 
 [^17]: See [[John 3.16|John 3:16]]; [[Acts 17.30|Acts 17:30]]; [[Mosiah 2.41|Mosiah 2:41]]; [[Alma 42.6|Alma 42:6–9]][[Alma 42.7|]][[Alma 42.8|]][[Alma 42.9|]]; [[3 Nephi 11.31|3 Nephi 11:31–40]][[3 Nephi 11.32|]][[3 Nephi 11.33|]][[3 Nephi 11.34|]][[3 Nephi 11.35|]][[3 Nephi 11.36|]][[3 Nephi 11.37|]][[3 Nephi 11.38|]][[3 Nephi 11.39|]][[3 Nephi 11.40|]]; [[D&C 29.40|Doctrine and Covenants 29:40–42]][[D&C 29.41|]][[D&C 29.42|]]; [[D&C 133.16|133:16]].
 
-[^18]: See [[Alma 5.13|Alma 5:13]]; see also Guide to the Scriptures, “[Repent, Repentance](https://www.churchofjesuschrist.org/study/scriptures/gs/repent-repentance?lang=eng),” scriptures.ChurchofJesusChrist.org.
+[^18]: See [[Alma 5.13|Alma 5:13]]; see also Guide to the Scriptures, “[[GS Repent, Repentance|Repent, Repentance]],” scriptures.ChurchofJesusChrist.org.
 
 [^19]: See [[Alma 36.17|Alma 36:17–20]][[Alma 36.18|]][[Alma 36.19|]][[Alma 36.20|]]; [[D&C 19.4|Doctrine and Covenants 19:4, 15–18]][[D&C 19.15|]][[D&C 19.16|]][[D&C 19.17|]][[D&C 19.18|]].
 

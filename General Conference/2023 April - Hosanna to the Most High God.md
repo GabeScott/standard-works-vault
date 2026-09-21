@@ -133,7 +133,7 @@ I leave with you my blessing as an Apostle of Jesus Christ that you will diligen
 
 [^33]: [[Matthew 25.12|Matthew 25:12]]. In the Sermon on the Mount, the Lord refers to those who presume to have “done many wonderful works,” saying, as suggested in the account of the five foolish virgins, “I know you not” (see [[Matthew 7.22|Matthew 7:22–23]][[Matthew 7.23|]]).
 
-[^34]: Just as water is critical to mortal life, Jesus Christ and His teachings (living water) are critical for eternal life (see Guide to the Scriptures, “[Living Water](https://www.churchofjesuschrist.org/study/scriptures/gs/living-water?lang=eng),” scriptures.ChurchofJesusChrist.org; see also [[Isaiah 12.3|Isaiah 12:3]]; [[Jeremiah 2.13|Jeremiah 2:13]]; [[John 4.6|John 4:6–15]][[John 4.7|]][[John 4.8|]][[John 4.9|]][[John 4.10|]][[John 4.11|]][[John 4.12|]][[John 4.13|]][[John 4.14|]][[John 4.15|]]; [[John 7.37|7:37]]; [[1 Nephi 11.25|1 Nephi 11:25]]; [[D&C 10.66|Doctrine and Covenants 10:66]]; [[D&C 63.23|63:23]]).
+[^34]: Just as water is critical to mortal life, Jesus Christ and His teachings (living water) are critical for eternal life (see Guide to the Scriptures, “[[GS Living Water|Living Water]],” scriptures.ChurchofJesusChrist.org; see also [[Isaiah 12.3|Isaiah 12:3]]; [[Jeremiah 2.13|Jeremiah 2:13]]; [[John 4.6|John 4:6–15]][[John 4.7|]][[John 4.8|]][[John 4.9|]][[John 4.10|]][[John 4.11|]][[John 4.12|]][[John 4.13|]][[John 4.14|]][[John 4.15|]]; [[John 7.37|7:37]]; [[1 Nephi 11.25|1 Nephi 11:25]]; [[D&C 10.66|Doctrine and Covenants 10:66]]; [[D&C 63.23|63:23]]).
 
 [^35]: [[3 Nephi 4.32|3 Nephi 4:32]].
 

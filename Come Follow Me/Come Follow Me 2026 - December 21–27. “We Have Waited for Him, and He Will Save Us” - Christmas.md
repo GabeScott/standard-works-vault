@@ -34,7 +34,7 @@ Many of the traditions associated with Christmas can have symbolic meanings that
 
 What other symbols, passages, and accounts have you found in the scriptures that testify of Jesus Christ?
 
-See also [[2 Nephi 11.4|2 Nephi 11:4]]; [[Mosiah 3.14|Mosiah 3:14–15]][[Mosiah 3.15|]]; [[Moses 6.63|Moses 6:63]]; “[Types or Symbols of Christ](https://churchofjesuschrist.org/study/scriptures/gs/jesus-christ?lang=eng&id=title15-p161#title15)” and “[Jesus Christ](https://churchofjesuschrist.org/study/scriptures/gs/jesus-christ?lang=eng),” both in Guide to the Scriptures (Gospel Library).
+See also [[2 Nephi 11.4|2 Nephi 11:4]]; [[Mosiah 3.14|Mosiah 3:14–15]][[Mosiah 3.15|]]; [[Moses 6.63|Moses 6:63]]; “[[GS Jesus Christ|Types or Symbols of Christ]]” and “[[GS Jesus Christ|Jesus Christ]],” both in Guide to the Scriptures (Gospel Library).
 
 ### “His name shall be called Wonderful.”
 

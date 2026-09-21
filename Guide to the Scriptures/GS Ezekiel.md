@@ -1,0 +1,11 @@
+# Ezekiel
+
+[Link](https://www.churchofjesuschrist.org/study/scriptures/gs/ezekiel?lang=eng)
+
+A prophet who wrote the book of Ezekiel in the Old Testament. He was a priest of the family of Zadok and one of the Jewish captives carried away by Nebuchadnezzar. He settled with the Jewish exiles in Babylon and prophesied during a period of twenty-two years, from 592 to 570 
+
+## The book of Ezekiel
+
+The book of Ezekiel can be separated into four divisions. [[Ezekiel 1.1|Chapters 1–3]][[Ezekiel 1.2|]][[Ezekiel 1.3|]][[Ezekiel 1.4|]][[Ezekiel 1.5|]][[Ezekiel 1.6|]][[Ezekiel 1.7|]][[Ezekiel 1.8|]][[Ezekiel 1.9|]][[Ezekiel 1.10|]][[Ezekiel 1.11|]][[Ezekiel 1.12|]][[Ezekiel 1.13|]][[Ezekiel 1.14|]][[Ezekiel 1.15|]][[Ezekiel 1.16|]][[Ezekiel 1.17|]][[Ezekiel 1.18|]][[Ezekiel 1.19|]][[Ezekiel 1.20|]][[Ezekiel 1.21|]][[Ezekiel 1.22|]][[Ezekiel 1.23|]][[Ezekiel 1.24|]][[Ezekiel 1.25|]][[Ezekiel 1.26|]][[Ezekiel 1.27|]][[Ezekiel 1.28|]] tell about a vision of God and Ezekiel’s call to serve; [[Ezekiel 4.1|chapters 4–24]][[Ezekiel 4.2|]][[Ezekiel 4.3|]][[Ezekiel 4.4|]][[Ezekiel 4.5|]][[Ezekiel 4.6|]][[Ezekiel 4.7|]][[Ezekiel 4.8|]][[Ezekiel 4.9|]][[Ezekiel 4.10|]][[Ezekiel 4.11|]][[Ezekiel 4.12|]][[Ezekiel 4.13|]][[Ezekiel 4.14|]][[Ezekiel 4.15|]][[Ezekiel 4.16|]][[Ezekiel 4.17|]] speak of judgments on Jerusalem and why they were given; [[Ezekiel 25.1|chapters 25–32]][[Ezekiel 25.2|]][[Ezekiel 25.3|]][[Ezekiel 25.4|]][[Ezekiel 25.5|]][[Ezekiel 25.6|]][[Ezekiel 25.7|]][[Ezekiel 25.8|]][[Ezekiel 25.9|]][[Ezekiel 25.10|]][[Ezekiel 25.11|]][[Ezekiel 25.12|]][[Ezekiel 25.13|]][[Ezekiel 25.14|]][[Ezekiel 25.15|]][[Ezekiel 25.16|]][[Ezekiel 25.17|]] proclaim judgments on the nations; and [[Ezekiel 33.1|chapters 33–48]][[Ezekiel 33.2|]][[Ezekiel 33.3|]][[Ezekiel 33.4|]][[Ezekiel 33.5|]][[Ezekiel 33.6|]][[Ezekiel 33.7|]][[Ezekiel 33.8|]][[Ezekiel 33.9|]][[Ezekiel 33.10|]][[Ezekiel 33.11|]][[Ezekiel 33.12|]][[Ezekiel 33.13|]][[Ezekiel 33.14|]][[Ezekiel 33.15|]][[Ezekiel 33.16|]][[Ezekiel 33.17|]][[Ezekiel 33.18|]][[Ezekiel 33.19|]][[Ezekiel 33.20|]][[Ezekiel 33.21|]][[Ezekiel 33.22|]][[Ezekiel 33.23|]][[Ezekiel 33.24|]][[Ezekiel 33.25|]][[Ezekiel 33.26|]][[Ezekiel 33.27|]][[Ezekiel 33.28|]][[Ezekiel 33.29|]][[Ezekiel 33.30|]][[Ezekiel 33.31|]][[Ezekiel 33.32|]][[Ezekiel 33.33|]] record visions of latter-day Israel.
+
+

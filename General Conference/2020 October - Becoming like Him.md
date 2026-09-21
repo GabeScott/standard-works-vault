@@ -93,7 +93,7 @@ I know that becoming like Him through His divine help and strength *is* achievab
 
 [^14]: Russell M. Nelson, “[[2019 April - We Can Do Better and Be Better.md|We Can Do Better and Be Better]],” *Ensign* or *Liahona,* May 2019, 67.
 
-[^15]: See Bible Dictionary, “[[BD Grace|Grace]]”; Guide to the Scriptures, “[Grace,](https://www.churchofjesuschrist.org/study/scriptures/gs/grace?lang=eng)” scriptures.ChurchofJesusChrist.org.
+[^15]: See Bible Dictionary, “[[BD Grace|Grace]]”; Guide to the Scriptures, “[[GS Grace|Grace,]]” scriptures.ChurchofJesusChrist.org.
 
 [^16]: See Sheldon, *In His Steps,* 246: “If our definition of being a Christian is simply to enjoy the privileges of worship, be generous at no expense to ourselves, have a good, easy time surrounded by pleasant friends and by comfortable things, live respectably and at the same time avoid the world’s great stress of sin and trouble because it is too much pain to bear it—if this is our definition of Christianity, surely we are a long way from following \[in\] the steps of Him who trod the way with groans and tears and sobs of anguish for a lost humanity; who sweat, as it were, great drops of blood, who cried out on the upreared cross, ‘My God, my God, why has thou forsaken me?’”
 

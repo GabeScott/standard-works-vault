@@ -1,0 +1,9 @@
+# Eden
+
+[Link](https://www.churchofjesuschrist.org/study/scriptures/gs/eden?lang=eng)
+
+*See also* [[GS Adam|Adam]]; [[GS Eve|Eve]]
+
+The home of our first parents, Adam and Eve ([[Genesis 2.1|Gen. 2:8–3:24]][[Genesis 2.2|]][[Genesis 2.3|]][[Genesis 2.4|]][[Genesis 2.5|]][[Genesis 2.6|]][[Genesis 2.7|]][[Genesis 2.8|]][[Genesis 2.9|]][[Genesis 2.10|]][[Genesis 2.11|]][[Genesis 2.12|]][[Genesis 2.13|]][[Genesis 2.14|]][[Genesis 2.15|]][[Genesis 2.16|]][[Genesis 2.17|]][[Genesis 2.18|]][[Genesis 2.19|]][[Genesis 2.20|]][[Genesis 2.21|]][[Genesis 2.22|]][[Genesis 2.23|]][[Genesis 2.24|]][[Genesis 2.25|]]; [[Genesis 4.16|4:16]]; [[2 Nephi 2.19|2 Ne. 2:19–25]][[2 Nephi 2.20|]][[2 Nephi 2.21|]][[2 Nephi 2.22|]][[2 Nephi 2.23|]][[2 Nephi 2.24|]][[2 Nephi 2.25|]]; [[Moses 3.1|Moses 3–4]][[Moses 3.2|]][[Moses 3.3|]][[Moses 3.4|]][[Moses 3.5|]][[Moses 3.6|]][[Moses 3.7|]][[Moses 3.8|]][[Moses 3.9|]][[Moses 3.10|]][[Moses 3.11|]][[Moses 3.12|]][[Moses 3.13|]][[Moses 3.14|]][[Moses 3.15|]][[Moses 3.16|]][[Moses 3.17|]][[Moses 3.18|]][[Moses 3.19|]][[Moses 3.20|]][[Moses 3.21|]][[Moses 3.22|]][[Moses 3.23|]][[Moses 3.24|]][[Moses 3.25|]]; [[Abraham 5.1|Abr. 5]][[Abraham 5.2|]][[Abraham 5.3|]][[Abraham 5.4|]][[Abraham 5.5|]][[Abraham 5.6|]][[Abraham 5.7|]][[Abraham 5.8|]][[Abraham 5.9|]][[Abraham 5.10|]][[Abraham 5.11|]][[Abraham 5.12|]][[Abraham 5.13|]][[Abraham 5.14|]][[Abraham 5.15|]][[Abraham 5.16|]][[Abraham 5.17|]][[Abraham 5.18|]][[Abraham 5.19|]][[Abraham 5.20|]][[Abraham 5.21|]]), designated as a garden, eastward in Eden. Adam and Eve were sent out of Eden after eating of the forbidden fruit and becoming mortal ([[Moses 4.29|Moses 4:29]]). Latter-day revelation confirms the biblical account of the Garden of Eden. It adds the important information that the garden was located on what is now the North American continent.
+
+

@@ -105,7 +105,7 @@ I am eternally grateful for the loving-kindness, patience, and long-suffering of
 
 [^17]: [[Moroni 6.8|Moroni 6:8]]; emphasis added.
 
-[^18]: Guide to the Scriptures, “[Repent, Repentance](https://www.churchofjesuschrist.org/study/scriptures/gs/repent-repentance?lang=eng),” scriptures.lds.org.
+[^18]: Guide to the Scriptures, “[[GS Repent, Repentance|Repent, Repentance]],” scriptures.lds.org.
 
 [^19]: Boyd K. Packer, Kingsland Georgia Stake conference, Aug. 1997.
 

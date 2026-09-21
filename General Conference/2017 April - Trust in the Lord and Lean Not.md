@@ -85,7 +85,7 @@ I add my testimony to that of our beloved prophet. If we trust in our Heavenly F
 
 [^4]: [[Moroni 7.48|Moroni 7:48]].
 
-[^5]: See Guide to the Scriptures, “[Prayer](https://www.churchofjesuschrist.org/study/scriptures/gs/prayer?lang=eng),” scriptures.lds.org.
+[^5]: See Guide to the Scriptures, “[[GS Prayer|Prayer]],” scriptures.lds.org.
 
 [^6]: [[Mosiah 2.17|Mosiah 2:17]].
 

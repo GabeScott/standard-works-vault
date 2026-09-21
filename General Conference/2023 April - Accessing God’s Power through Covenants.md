@@ -55,13 +55,13 @@ As you come to Christ and are connected to Him and our Heavenly Father by covena
 
 [^2]: Approximately 30 miles.
 
-[^3]: We have a choice because God has given us the privilege to choose and act for ourselves. See Guide to the Scriptures, “[Agency](https://www.churchofjesuschrist.org/study/scriptures/gs/agency?lang=eng),” scriptures.ChurchofJesusChrist.org; [[2 Nephi 2.27|2 Nephi 2:27]]; [[Moses 7.32|Moses 7:32]].
+[^3]: We have a choice because God has given us the privilege to choose and act for ourselves. See Guide to the Scriptures, “[[GS Agency|Agency]],” scriptures.ChurchofJesusChrist.org; [[2 Nephi 2.27|2 Nephi 2:27]]; [[Moses 7.32|Moses 7:32]].
 
 [^4]: See [[Mosiah 3.19|Mosiah 3:19]].
 
 [^5]: Russell M. Nelson, “[[2022 October - Overcome the World and Find Rest.md|Overcome the World and Find Rest]],” *Liahona*, Nov. 2022, 96, 97.
 
-[^6]: See Guide to the Scriptures, “[Covenant](https://www.churchofjesuschrist.org/study/scriptures/gs/covenant?lang=eng),” scriptures.ChurchofJesusChrist.org.
+[^6]: See Guide to the Scriptures, “[[GS Covenant|Covenant]],” scriptures.ChurchofJesusChrist.org.
 
 [^7]: Everyone stumbles on occasion, but God is patient with our stumbles and has given us the gift of repentance even after breaking a covenant. As Elder Richard G. Scott taught, “The Lord sees weaknesses differently than He \[sees\] rebellion … \[because\] when the Lord speaks of weaknesses, it is always with mercy” (“[[2013 October - Personal Strength through the Atonement of Jesus Christ.md|Personal Strength through the Atonement of Jesus Christ]],” *Ensign* or *Liahona*, Nov. 2013, 83). Thus, we should not doubt the Savior’s ability to help us with our weaknesses. However, consciously breaking a covenant with the callous plan to repent afterwards—in other words, preplanned sin and repentance—is repugnant to the Lord (see [[Hebrews 6.4|Hebrews 6:4–6]][[Hebrews 6.5|]][[Hebrews 6.6|]]).
 

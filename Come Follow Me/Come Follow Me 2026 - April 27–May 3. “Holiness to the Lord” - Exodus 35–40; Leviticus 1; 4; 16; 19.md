@@ -15,10 +15,10 @@ For an overview of the book of Leviticus, see “[[BD Leviticus|Leviticus]]” i
 
 | What object did you find? | What can this represent? |
 | --- | --- |
-| Ark of the covenant ([[Exodus 37.1\|Exodus 37:1–9]][[Exodus 37.2\|]][[Exodus 37.3\|]][[Exodus 37.4\|]][[Exodus 37.5\|]][[Exodus 37.6\|]][[Exodus 37.7\|]][[Exodus 37.8\|]][[Exodus 37.9\|]]; [[Exodus 40.20\|40:20–21]][[Exodus 40.21\|]]) | (See [[Exodus 25.20\|Exodus 25:20–22]][[Exodus 25.21\|]][[Exodus 25.22\|]]; Guide to the Scriptures, “[Ark of the Covenant](https://churchofjesuschrist.org/study/scriptures/gs/ark-of-the-covenant?lang=eng)”) |
+| Ark of the covenant ([[Exodus 37.1\|Exodus 37:1–9]][[Exodus 37.2\|]][[Exodus 37.3\|]][[Exodus 37.4\|]][[Exodus 37.5\|]][[Exodus 37.6\|]][[Exodus 37.7\|]][[Exodus 37.8\|]][[Exodus 37.9\|]]; [[Exodus 40.20\|40:20–21]][[Exodus 40.21\|]]) | (See [[Exodus 25.20\|Exodus 25:20–22]][[Exodus 25.21\|]][[Exodus 25.22\|]]; Guide to the Scriptures, “[[GS Ark of the Covenant\|Ark of the Covenant]]”) |
 | Altar of incense ([[Exodus 40.26\|Exodus 40:26–27]][[Exodus 40.27\|]]; see also [[Exodus 30.1\|Exodus 30:1, 6–8]][[Exodus 30.6\|]][[Exodus 30.7\|]][[Exodus 30.8\|]]) | (See [[Revelation 8.3\|Revelation 8:3–4]][[Revelation 8.4\|]]) |
 | Candlestick or lampstand ([[Exodus 37.17\|Exodus 37:17–24]][[Exodus 37.18\|]][[Exodus 37.19\|]][[Exodus 37.20\|]][[Exodus 37.21\|]][[Exodus 37.22\|]][[Exodus 37.23\|]][[Exodus 37.24\|]]) | (See [[Matthew 5.14\|Matthew 5:14–16]][[Matthew 5.15\|]][[Matthew 5.16\|]]; [[John 8.12\|John 8:12]]) |
-| Altar of sacrifice ([[Exodus 38.1\|Exodus 38:1–7]][[Exodus 38.2\|]][[Exodus 38.3\|]][[Exodus 38.4\|]][[Exodus 38.5\|]][[Exodus 38.6\|]][[Exodus 38.7\|]]; see also [[Exodus 27.1\|Exodus 27:1]]; [[Exodus 29.10\|29:10–14]][[Exodus 29.11\|]][[Exodus 29.12\|]][[Exodus 29.13\|]][[Exodus 29.14\|]]) | (See Guide to the Scriptures, “[Sacrifice](https://churchofjesuschrist.org/study/scriptures/gs/sacrifice?lang=eng)”) |
+| Altar of sacrifice ([[Exodus 38.1\|Exodus 38:1–7]][[Exodus 38.2\|]][[Exodus 38.3\|]][[Exodus 38.4\|]][[Exodus 38.5\|]][[Exodus 38.6\|]][[Exodus 38.7\|]]; see also [[Exodus 27.1\|Exodus 27:1]]; [[Exodus 29.10\|29:10–14]][[Exodus 29.11\|]][[Exodus 29.12\|]][[Exodus 29.13\|]][[Exodus 29.14\|]]) | (See Guide to the Scriptures, “[[GS Sacrifice\|Sacrifice]]”) |
 | Laver (basin) of water ([[Exodus 30.17\|Exodus 30:17–21]][[Exodus 30.18\|]][[Exodus 30.19\|]][[Exodus 30.20\|]][[Exodus 30.21\|]]) | (See [[2 Chronicles 4.6\|2 Chronicles 4:6]]; [[Isaiah 1.16\|Isaiah 1:16]]; [[Jeremiah 33.8\|Jeremiah 33:8]]) |
 |  |  |
 |  |  |
@@ -69,7 +69,7 @@ See also “[Thoughts to Keep in Mind: The Tabernacle and Sacrifice](https://chu
 
 - [Why did the Lord command Moses to wash, anoint, and clothe Aaron and his sons?](https://churchofjesuschrist.org/study/manual/scripture-helps-old-testament/16-exodus-35-40-leviticus-1-4-16-19?lang=eng&id=p_u6uFe-p_ujPw5#p_u6uFe)
 
-- [What as the Day of Atonement?](https://churchofjesuschrist.org/study/manual/scripture-helps-old-testament/16-exodus-35-40-leviticus-1-4-16-19?lang=eng&id=p_xNDHY-p_eHaqM#p_xNDHY)
+- [What was the Day of Atonement?](https://churchofjesuschrist.org/study/manual/scripture-helps-old-testament/16-exodus-35-40-leviticus-1-4-16-19?lang=eng&id=p_xNDHY-p_eHaqM#p_xNDHY)
 
 [Click to see more.](https://churchofjesuschrist.org/study/manual/scripture-helps-old-testament/16-exodus-35-40-leviticus-1-4-16-19?lang=eng)
 
@@ -94,7 +94,7 @@ See also “[Thoughts to Keep in Mind: The Tabernacle and Sacrifice](https://chu
 
 - The animal sacrifices described in the Old Testament were meant to teach the children of Israel about forgiveness through Jesus Christ. Consider how reading about these sacrifices could do the same for your children. You could show pictures of Jesus Christ in Gethsemane and on the cross (see *Gospel Art Book*, [nos. 56](https://churchofjesuschrist.org/study/manual/gospel-art-book/new-testament?lang=eng&id=figure29#figure29), [57](https://churchofjesuschrist.org/study/manual/gospel-art-book/new-testament?lang=eng&id=figure30#figure30)) as you read with the children [[Leviticus 1.1|Leviticus 1:1–4]][[Leviticus 1.2|]][[Leviticus 1.3|]][[Leviticus 1.4|]]. Help them find words or phrases that remind them of the sacrifice of Jesus Christ.
 
-- You might also read together [[3 Nephi 9.19|3 Nephi 9:19–20]][[3 Nephi 9.20|]] to find out what we are commanded to sacrifice instead of animals. What does it mean to offer a broken heart and contrite spirit to the Lord? See Guide to the Scriptures, “[Broken Heart](https://churchofjesuschrist.org/study/scriptures/gs/broken-heart?lang=eng)” (Gospel Library) for help answering this question.
+- You might also read together [[3 Nephi 9.19|3 Nephi 9:19–20]][[3 Nephi 9.20|]] to find out what we are commanded to sacrifice instead of animals. What does it mean to offer a broken heart and contrite spirit to the Lord? See Guide to the Scriptures, “[[GS Broken Heart|Broken Heart]]” (Gospel Library) for help answering this question.
 
 > For more, see this month’s issue of the *[Friend](https://churchofjesuschrist.org/study/magazines/friend?lang=eng)* magazine.
 

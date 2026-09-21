@@ -71,7 +71,7 @@ I bear my witness that Jesus Christ is our Savior. I testify to you that, thanks
 
 [^2]: [[Moroni 7.44|Moroni 7:44]].
 
-[^3]: Guide to the Scriptures, “[Meek, Meekness](https://www.churchofjesuschrist.org/study/scriptures/gs/meek-meekness?lang=eng)”; scriptures.lds.org.
+[^3]: Guide to the Scriptures, “[[GS Meek, Meekness|Meek, Meekness]]”; scriptures.lds.org.
 
 [^4]: See [[Galatians 5.22|Galatians 5:22–23]][[Galatians 5.23|]].
 

@@ -89,7 +89,7 @@ This Jesus should not be a fictional Jesus,[^37] or a simplistic Jesus,[^38] or 
 
 [^6]: [[John 6.68|John 6:68–69]][[John 6.69|]]; emphasis added.
 
-[^7]: Guide to the Scriptures, “[Belief, Believe](https://www.churchofjesuschrist.org/study/scriptures/gs/belief-believe?lang=eng),” Gospel Library.
+[^7]: Guide to the Scriptures, “[[GS Belief, Believe|Belief, Believe]],” Gospel Library.
 
 [^8]: See [[Acts 4.10|Acts 4:10–12]][[Acts 4.11|]][[Acts 4.12|]]; [[Mosiah 3.17|Mosiah 3:17]]; [[Moroni 7.24|Moroni 7:24–26]][[Moroni 7.25|]][[Moroni 7.26|]]; [[Articles of Faith 1.4|Articles of Faith 1:4]].
 

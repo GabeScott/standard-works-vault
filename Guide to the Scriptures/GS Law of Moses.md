@@ -1,0 +1,20 @@
+# Law of Moses
+
+[Link](https://www.churchofjesuschrist.org/study/scriptures/gs/law-of-moses?lang=eng)
+
+*See also* [[GS Aaronic Priesthood|Aaronic Priesthood]]; [[GS Clean and Unclean|Clean and Unclean]]; [[GS Law|Law]]; [[GS Moses|Moses]]
+
+God gave laws through Moses to the house of Israel to replace the higher law that they had failed to obey ([[Exodus 34.1|Ex. 34]][[Exodus 34.2|]][[Exodus 34.3|]][[Exodus 34.4|]][[Exodus 34.5|]][[Exodus 34.6|]][[Exodus 34.7|]][[Exodus 34.8|]][[Exodus 34.9|]][[Exodus 34.10|]][[Exodus 34.11|]][[Exodus 34.12|]][[Exodus 34.13|]][[Exodus 34.14|]][[Exodus 34.15|]][[Exodus 34.16|]][[Exodus 34.17|]][[Exodus 34.18|]][[Exodus 34.19|]][[Exodus 34.20|]][[Exodus 34.21|]][[Exodus 34.22|]][[Exodus 34.23|]][[Exodus 34.24|]][[Exodus 34.25|]][[Exodus 34.26|]][[Exodus 34.27|]][[Exodus 34.28|]][[Exodus 34.29|]][[Exodus 34.30|]][[Exodus 34.31|]][[Exodus 34.32|]][[Exodus 34.33|]][[Exodus 34.34|]][[Exodus 34.35|]]; [[JST Exodus 34.1|JST, Ex. 34:1–2]][[JST Exodus 34.2|]]; [[JST Deuteronomy 10.2|JST, Deut. 10:2 (Bible Appendix)]]). The law of Moses consisted of many principles, rules, ceremonies, rituals, and symbols to remind the people of their duties and responsibilities. It included a law of moral, ethical, religious, and physical commandments and performances—including sacrifices ([[Leviticus 1.1|Lev. 1–7]][[Leviticus 1.2|]][[Leviticus 1.3|]][[Leviticus 1.4|]][[Leviticus 1.5|]][[Leviticus 1.6|]][[Leviticus 1.7|]][[Leviticus 1.8|]][[Leviticus 1.9|]][[Leviticus 1.10|]][[Leviticus 1.11|]][[Leviticus 1.12|]][[Leviticus 1.13|]][[Leviticus 1.14|]][[Leviticus 1.15|]][[Leviticus 1.16|]][[Leviticus 1.17|]])—that were intended to remind them of God and their duty towards Him ([[Mosiah 13.30|Mosiah 13:30]]). Faith, repentance, baptism in water, and remission of sins were part of the law, as were the Ten Commandments and many other commandments of high ethical and moral value. Much of the ceremonial law was fulfilled at the death and Resurrection of Jesus Christ, which ended sacrifice by the shedding of blood ([[Alma 34.13|Alma 34:13–14]][[Alma 34.14|]]). The law was administered under the Aaronic Priesthood and was a preparatory gospel to bring its adherents to Christ.
+
+- I will give unto them the law as at the first, but it shall be after the law of a carnal commandment, [[JST Exodus 34.1|JST, Ex. 34:1–2]][[JST Exodus 34.2|]].
+
+- The law was our schoolmaster to bring us unto Christ, [[Galatians 3.19|Gal. 3:19–24]][[Galatians 3.20|]][[Galatians 3.21|]][[Galatians 3.22|]][[Galatians 3.23|]][[Galatians 3.24|]].
+
+- We keep the law of Moses and look forward with steadfastness unto Christ, [[2 Nephi 25.24|2 Ne. 25:24–30]][[2 Nephi 25.25|]][[2 Nephi 25.26|]][[2 Nephi 25.27|]][[2 Nephi 25.28|]][[2 Nephi 25.29|]][[2 Nephi 25.30|]].
+- Salvation does not come by the law of Moses alone, [[Mosiah 12.1|Mosiah 12:27–13:32]][[Mosiah 12.2|]][[Mosiah 12.3|]][[Mosiah 12.4|]][[Mosiah 12.5|]][[Mosiah 12.6|]][[Mosiah 12.7|]][[Mosiah 12.8|]][[Mosiah 12.9|]][[Mosiah 12.10|]][[Mosiah 12.11|]][[Mosiah 12.12|]][[Mosiah 12.13|]][[Mosiah 12.14|]][[Mosiah 12.15|]][[Mosiah 12.16|]][[Mosiah 12.17|]][[Mosiah 12.18|]][[Mosiah 12.19|]][[Mosiah 12.20|]][[Mosiah 12.21|]][[Mosiah 12.22|]][[Mosiah 12.23|]][[Mosiah 12.24|]][[Mosiah 12.25|]][[Mosiah 12.26|]][[Mosiah 12.27|]][[Mosiah 12.28|]][[Mosiah 12.29|]][[Mosiah 12.30|]][[Mosiah 12.31|]][[Mosiah 12.32|]][[Mosiah 12.33|]][[Mosiah 12.34|]][[Mosiah 12.35|]][[Mosiah 12.36|]][[Mosiah 12.37|]].
+- In me is the law of Moses fulfilled, [[3 Nephi 9.17|3 Ne. 9:17]].
+- The law which was given unto Moses hath an end in me, [[3 Nephi 15.1|3 Ne. 15:1–10]][[3 Nephi 15.2|]][[3 Nephi 15.3|]][[3 Nephi 15.4|]][[3 Nephi 15.5|]][[3 Nephi 15.6|]][[3 Nephi 15.7|]][[3 Nephi 15.8|]][[3 Nephi 15.9|]][[3 Nephi 15.10|]].
+
+- Because of disobedience, the Lord took Moses and the Holy Priesthood from the children of Israel, leaving the law of carnal commandments, [[D&C 84.23|D&C 84:23–27]][[D&C 84.24|]][[D&C 84.25|]][[D&C 84.26|]][[D&C 84.27|]].
+
+

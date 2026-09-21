@@ -77,7 +77,7 @@ Jesus Christ is the King! I testify of Him in the name of Jesus Christ, amen.
 
 [^1]: See [[2 Nephi 2.22|2 Nephi 2:22–25]][[2 Nephi 2.23|]][[2 Nephi 2.24|]][[2 Nephi 2.25|]]; [[2 Nephi 9.18|9:18]]; [[Mosiah 2.41|Mosiah 2:41]].
 
-[^2]: See Guide to the Scriptures, “[Plan of Redemption](https://www.churchofjesuschrist.org/study/scriptures/gs/plan-of-redemption?lang=eng)”; scriptures.lds.org.
+[^2]: See Guide to the Scriptures, “[[GS Plan of Redemption|Plan of Redemption]]”; scriptures.lds.org.
 
 [^3]: [[Articles of Faith 1.3|Articles of Faith 1:3]].
 
@@ -89,7 +89,7 @@ Jesus Christ is the King! I testify of Him in the name of Jesus Christ, amen.
 
 [^7]: See [[D&C 107.25|Doctrine and Covenants 107:25–26]][[D&C 107.26|]].
 
-[^8]: See Guide to the Scriptures, “[First Presidency](https://www.churchofjesuschrist.org/study/scriptures/gs/first-presidency?lang=eng),” “[Apostle](https://www.churchofjesuschrist.org/study/scriptures/gs/apostle?lang=eng),” “[Seventy](https://www.churchofjesuschrist.org/study/scriptures/gs/seventy?lang=eng)”; scriptures.lds.org.
+[^8]: See Guide to the Scriptures, “[[GS First Presidency|First Presidency]],” “[[GS Apostle|Apostle]],” “[[GS Seventy|Seventy]]”; scriptures.lds.org.
 
 [^9]: *Handbook 2: Administering the Church* (2010), 2.2.
 

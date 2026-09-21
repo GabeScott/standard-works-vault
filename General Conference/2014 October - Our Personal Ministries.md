@@ -71,7 +71,7 @@ That we may do so is my prayer in the name of Jesus Christ, amen.
 
 [^1]: [[D&C 18.10|Doctrine and Covenants 18:10, 15]][[D&C 18.15|]]; emphasis added.
 
-[^2]: See Guide to the Scriptures, “[Soul](https://www.churchofjesuschrist.org/study/scriptures/gs/soul?lang=eng)”; scriptures.lds.org.
+[^2]: See Guide to the Scriptures, “[[GS Soul|Soul]]”; scriptures.lds.org.
 
 [^3]: Linda K. Burton, “First Observe, Then Serve,” *Ensign* or *Liahona,* Nov. 2012, 78.
 

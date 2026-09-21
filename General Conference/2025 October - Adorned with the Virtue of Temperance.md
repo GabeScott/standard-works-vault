@@ -63,11 +63,11 @@ I solemnly bear my testimony that the constant pursuit of temperance purifies ou
 
 [^6]: [[Titus 1.7|Titus 1:7]].
 
-[^7]: See Guide to the Scriptures, “[Pride](https://www.churchofjesuschrist.org/study/scriptures/gs/pride?lang=eng),” Gospel Library.
+[^7]: See Guide to the Scriptures, “[[GS Pride|Pride]],” Gospel Library.
 
-[^8]: See Guide to the Scriptures, “[Anger](https://www.churchofjesuschrist.org/study/scriptures/gs/anger?lang=eng),” Gospel Library.
+[^8]: See Guide to the Scriptures, “[[GS Anger|Anger]],” Gospel Library.
 
-[^9]: See Guide to the Scriptures, “[Contention](https://www.churchofjesuschrist.org/study/scriptures/gs/contention?lang=eng),” Gospel Library.
+[^9]: See Guide to the Scriptures, “[[GS Contention|Contention]],” Gospel Library.
 
 [^10]: See [[2 Nephi 25.23|2 Nephi 25:23]].
 
@@ -83,7 +83,7 @@ I solemnly bear my testimony that the constant pursuit of temperance purifies ou
 
 [^16]: [[3 Nephi 11.37|3 Nephi 11:37]]; see also [[Mark 10.15|Mark 10:15]]; [[Luke 18.17|Luke 18:17]]; [[Mosiah 3.19|Mosiah 3:19]]; [[3 Nephi 9.22|3 Nephi 9:22]].
 
-[^17]: See [[3 Nephi 12.22|3 Nephi 12:22–24]][[3 Nephi 12.23|]][[3 Nephi 12.24|]]; see also Guide to the Scriptures, “[Forgive](https://www.churchofjesuschrist.org/study/scriptures/gs/forgive?lang=eng),” Gospel Library.
+[^17]: See [[3 Nephi 12.22|3 Nephi 12:22–24]][[3 Nephi 12.23|]][[3 Nephi 12.24|]]; see also Guide to the Scriptures, “[[GS Forgive|Forgive]],” Gospel Library.
 
 [^18]: See [[3 Nephi 22.10|3 Nephi 22:10]]; see also [[Psalms 94.14|Psalm 94:14]]; [[D&C 35.25|Doctrine and Covenants 35:25]].
 

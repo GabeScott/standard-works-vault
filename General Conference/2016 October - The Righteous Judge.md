@@ -91,7 +91,7 @@ There is only one way to judge righteous judgment, as Jesus Christ does, and tha
 
 [^4]: *Teachings of Presidents of the Church: Joseph Smith* (2007), 71; emphasis added.
 
-[^5]: Guide to the Scriptures, [“Sacrifice](https://www.churchofjesuschrist.org/study/scriptures/gs/sacrifice?lang=eng),” scriptures.lds.org.
+[^5]: Guide to the Scriptures, [[GS Sacrifice|“Sacrifice]],” scriptures.lds.org.
 
 [^6]: See Bible Dictionary, “[[BD Sacrifices|Sacrifices]].”
 

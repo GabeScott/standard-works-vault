@@ -45,7 +45,7 @@ Jesus is the Redeemer of the world, and this is His Church. I bear witness of th
 
 
 
-[^1]: See Guide to the Scriptures, “[Doctrine of Christ](https://www.churchofjesuschrist.org/study/scriptures/gs/doctrine-of-christ?lang=eng),” scriptures.ChurchofJesusChrist.org.
+[^1]: See Guide to the Scriptures, “[[GS Doctrine of Christ|Doctrine of Christ]],” scriptures.ChurchofJesusChrist.org.
 
 [^2]: See [[Isaiah 61.10|Isaiah 61:10]].
 
@@ -53,7 +53,7 @@ Jesus is the Redeemer of the world, and this is His Church. I bear witness of th
 
 [^4]: See [[Joseph Smith History 1.11|Joseph Smith—History 1:11–13]][[Joseph Smith History 1.12|]][[Joseph Smith History 1.13|]].
 
-[^5]: See Guide to the Scriptures, “[Holy Ghost](https://www.churchofjesuschrist.org/study/scriptures/gs/holy-ghost?lang=eng),” scriptures.ChurchofJesusChrist.org.
+[^5]: See Guide to the Scriptures, “[[GS Holy Ghost|Holy Ghost]],” scriptures.ChurchofJesusChrist.org.
 
 [^6]: See [[Galatians 2.20|Galatians 2:20]].
 
@@ -69,25 +69,25 @@ Jesus is the Redeemer of the world, and this is His Church. I bear witness of th
 
 [^12]: [[3 Nephi 2.1|3 Nephi 2:1–2]][[3 Nephi 2.2|]].
 
-[^13]: See Guide to the Scriptures, “[Natural Man](https://www.churchofjesuschrist.org/study/scriptures/gs/natural-man?lang=eng),” scriptures.ChurchofJesusChrist.org.
+[^13]: See Guide to the Scriptures, “[[GS Natural Man|Natural Man]],” scriptures.ChurchofJesusChrist.org.
 
 [^14]: [[D&C 19.23|Doctrine and Covenants 19:23]].
 
-[^15]: See Guide to the Scriptures, “[Humble, Humility](https://www.churchofjesuschrist.org/study/scriptures/gs/humble-humility?lang=eng),” scriptures.ChurchofJesusChrist.org.
+[^15]: See Guide to the Scriptures, “[[GS Humble, Humility|Humble, Humility]],” scriptures.ChurchofJesusChrist.org.
 
 [^16]: [[D&C 4.2|Doctrine and Covenants 4:2]].
 
 [^17]: See [[Matthew 22.36|Matthew 22:36–40]][[Matthew 22.37|]][[Matthew 22.38|]][[Matthew 22.39|]][[Matthew 22.40|]].
 
-[^18]: See Guide to the Scriptures, “[Jesus Christ](https://www.churchofjesuschrist.org/study/scriptures/gs/jesus-christ?lang=eng),” scriptures.ChurchofJesusChrist.org.
+[^18]: See Guide to the Scriptures, “[[GS Jesus Christ|Jesus Christ]],” scriptures.ChurchofJesusChrist.org.
 
 [^19]: See [[D&C 6.36|Doctrine and Covenants 6:36]].
 
 [^20]: See [[Luke 2.52|Luke 2:52]].
 
-[^21]: See Guide to the Scriptures, “[Righteous, Righteousness](https://www.churchofjesuschrist.org/study/scriptures/gs/righteous-righteousness?lang=eng),” scriptures.ChurchofJesusChrist.org.
+[^21]: See Guide to the Scriptures, “[[GS Righteous, Righteousness|Righteous, Righteousness]],” scriptures.ChurchofJesusChrist.org.
 
-[^22]: See Guide to the Scriptures, “[Thankful, Thanks, Thanksgiving](https://www.churchofjesuschrist.org/study/scriptures/gs/thankful-thanks-thanksgiving?lang=eng),” scriptures.ChurchofJesusChrist.org.
+[^22]: See Guide to the Scriptures, “[[GS Thankful, Thanks, Thanksgiving|Thankful, Thanks, Thanksgiving]],” scriptures.ChurchofJesusChrist.org.
 
 [^23]: See [[2 Nephi 32.3|2 Nephi 32:3]].
 
@@ -105,7 +105,7 @@ Jesus is the Redeemer of the world, and this is His Church. I bear witness of th
 
 [^30]: See [[2 Corinthians 3.3|2 Corinthians 3:3]].
 
-[^31]: See Guide to the Scriptures, “[Walk, Walk with God](https://www.churchofjesuschrist.org/study/scriptures/gs/walk-walk-with-god?lang=eng),” scriptures.ChurchofJesusChrist.org.
+[^31]: See Guide to the Scriptures, “[[GS Walk, Walk with God|Walk, Walk with God]],” scriptures.ChurchofJesusChrist.org.
 
 [^32]: [[D&C 78.18|Doctrine and Covenants 78:18–19]][[D&C 78.19|]].
 

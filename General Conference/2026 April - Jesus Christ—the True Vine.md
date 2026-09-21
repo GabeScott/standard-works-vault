@@ -61,7 +61,7 @@ In this sacred Easter season, I solemnly testify that Jesus Christ is the True V
 
 [^13]: See [[Hebrews 5.4|Hebrews 5:4]].
 
-[^14]: See [[D&C 84.45|Doctrine and Covenants 84:45]]; see also Guide to the Scriptures, “[Light, Light of Christ](https://www.churchofjesuschrist.org/study/scriptures/gs/light-light-of-christ?lang=eng),” “[Truth](https://www.churchofjesuschrist.org/study/scriptures/gs/truth?lang=eng),” Gospel Library; Topical Guide, “[[Jesus Christ, Light of the World|Jesus Christ, Light of the World]].”
+[^14]: See [[D&C 84.45|Doctrine and Covenants 84:45]]; see also Guide to the Scriptures, “[[GS Light, Light of Christ|Light, Light of Christ]],” “[[GS Truth|Truth]],” Gospel Library; Topical Guide, “[[Jesus Christ, Light of the World|Jesus Christ, Light of the World]].”
 
 [^15]: See [[Isaiah 55.1|Isaiah 55:1, 3, 6, 12]][[Isaiah 55.3|]][[Isaiah 55.6|]][[Isaiah 55.12|]]; [[Matthew 11.28|Matthew 11:28–30]][[Matthew 11.29|]][[Matthew 11.30|]]; [[Galatians 5.22|Galatians 5:22–23]][[Galatians 5.23|]]; [[3 Nephi 27.20|3 Nephi 27:20]].
 

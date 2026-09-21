@@ -1,0 +1,30 @@
+# Melchizedek Priesthood
+
+[Link](https://www.churchofjesuschrist.org/study/scriptures/gs/melchizedek-priesthood?lang=eng)
+
+*See also* [[GS Elder|Elder]]; [[GS Melchizedek|Melchizedek]]; [[GS Priesthood|Priesthood]]
+
+The Melchizedek Priesthood is the higher or greater priesthood; the Aaronic Priesthood is the lesser priesthood. The Melchizedek Priesthood includes the keys of the spiritual blessings of the Church. Through the ordinances of the higher priesthood the power of godliness is made manifest to men ([[D&C 84.18|D&C 84:18–25]][[D&C 84.19|]][[D&C 84.20|]][[D&C 84.21|]][[D&C 84.22|]][[D&C 84.23|]][[D&C 84.24|]][[D&C 84.25|]]; [[D&C 107.18|107:18–21]][[D&C 107.19|]][[D&C 107.20|]][[D&C 107.21|]]).
+
+God first revealed this higher priesthood to Adam. The patriarchs and prophets in every dispensation had this authority ([[D&C 84.6|D&C 84:6–17]][[D&C 84.7|]][[D&C 84.8|]][[D&C 84.9|]][[D&C 84.10|]][[D&C 84.11|]][[D&C 84.12|]][[D&C 84.13|]][[D&C 84.14|]][[D&C 84.15|]][[D&C 84.16|]][[D&C 84.17|]]). It was first called the Holy Priesthood, after the Order of the Son of God. It later became known as the Melchizedek Priesthood ([[D&C 107.2|D&C 107:2–4]][[D&C 107.3|]][[D&C 107.4|]]).
+
+When the children of Israel failed to live up to the privileges and covenants of the Melchizedek Priesthood, the Lord took away the higher law and gave them a lesser priesthood and a lesser law ([[D&C 84.23|D&C 84:23–26]][[D&C 84.24|]][[D&C 84.25|]][[D&C 84.26|]]). These were called the Aaronic Priesthood and the law of Moses. When Jesus came to the earth, He restored the Melchizedek Priesthood to the Jews and began to build up the Church among them. However, the priesthood and the Church were lost again through apostasy. They were later restored through Joseph Smith Jr. ([[D&C 27.12|D&C 27:12–13]][[D&C 27.13|]]; [[D&C 128.20|128:20]]; [[Joseph Smith History 1.73|JS—H 1:73]]).
+
+Within the Melchizedek Priesthood are the offices of elder, high priest, patriarch, Seventy, and Apostle ([[D&C 107.1|D&C 107]][[D&C 107.2|]][[D&C 107.3|]][[D&C 107.4|]][[D&C 107.5|]][[D&C 107.6|]][[D&C 107.7|]][[D&C 107.8|]][[D&C 107.9|]][[D&C 107.10|]][[D&C 107.11|]][[D&C 107.12|]][[D&C 107.13|]][[D&C 107.14|]][[D&C 107.15|]][[D&C 107.16|]][[D&C 107.17|]][[D&C 107.18|]][[D&C 107.19|]][[D&C 107.20|]][[D&C 107.21|]][[D&C 107.22|]][[D&C 107.23|]][[D&C 107.24|]][[D&C 107.25|]][[D&C 107.26|]][[D&C 107.27|]][[D&C 107.28|]][[D&C 107.29|]][[D&C 107.30|]][[D&C 107.31|]][[D&C 107.32|]][[D&C 107.33|]][[D&C 107.34|]][[D&C 107.35|]][[D&C 107.36|]][[D&C 107.37|]][[D&C 107.38|]][[D&C 107.39|]][[D&C 107.40|]][[D&C 107.41|]][[D&C 107.42|]][[D&C 107.43|]][[D&C 107.44|]][[D&C 107.45|]][[D&C 107.46|]][[D&C 107.47|]][[D&C 107.48|]][[D&C 107.49|]][[D&C 107.50|]][[D&C 107.51|]][[D&C 107.52|]][[D&C 107.53|]][[D&C 107.54|]][[D&C 107.55|]][[D&C 107.56|]][[D&C 107.57|]][[D&C 107.58|]][[D&C 107.59|]][[D&C 107.60|]][[D&C 107.61|]][[D&C 107.62|]][[D&C 107.63|]][[D&C 107.64|]][[D&C 107.65|]][[D&C 107.66|]][[D&C 107.67|]][[D&C 107.68|]][[D&C 107.69|]][[D&C 107.70|]][[D&C 107.71|]][[D&C 107.72|]][[D&C 107.73|]][[D&C 107.74|]][[D&C 107.75|]][[D&C 107.76|]][[D&C 107.77|]][[D&C 107.78|]][[D&C 107.79|]][[D&C 107.80|]][[D&C 107.81|]][[D&C 107.82|]][[D&C 107.83|]][[D&C 107.84|]][[D&C 107.85|]][[D&C 107.86|]][[D&C 107.87|]][[D&C 107.88|]][[D&C 107.89|]][[D&C 107.90|]][[D&C 107.91|]][[D&C 107.92|]][[D&C 107.93|]][[D&C 107.94|]][[D&C 107.95|]][[D&C 107.96|]][[D&C 107.97|]][[D&C 107.98|]][[D&C 107.99|]][[D&C 107.100|]]). The Melchizedek Priesthood will always be a part of the kingdom of God upon the earth.
+
+The President of The Church of Jesus Christ of Latter-day Saints is the president of the high or Melchizedek Priesthood, and he holds all the keys that pertain to the kingdom of God on the earth. The calling of President is held by only one man at a time, and he is the only person on the earth authorized to exercise all priesthood keys ([[D&C 107.64|D&C 107:64–67]][[D&C 107.65|]][[D&C 107.66|]][[D&C 107.67|]]; [[D&C 132.7|132:7]]).
+
+- Christ shall be a priest forever after the order of Melchizedek, [[Psalms 110.4|Ps. 110:4]] ([[Hebrews 5.6|Heb. 5:6, 10]][[Hebrews 5.10|]]; [[Hebrews 7.11|7:11]]).
+
+- The Melchizedek Priesthood administers the gospel, [[Hebrews 7.1|Heb. 7]][[Hebrews 7.2|]][[Hebrews 7.3|]][[Hebrews 7.4|]][[Hebrews 7.5|]][[Hebrews 7.6|]][[Hebrews 7.7|]][[Hebrews 7.8|]][[Hebrews 7.9|]][[Hebrews 7.10|]][[Hebrews 7.11|]][[Hebrews 7.12|]][[Hebrews 7.13|]][[Hebrews 7.14|]][[Hebrews 7.15|]][[Hebrews 7.16|]][[Hebrews 7.17|]][[Hebrews 7.18|]][[Hebrews 7.19|]][[Hebrews 7.20|]][[Hebrews 7.21|]][[Hebrews 7.22|]][[Hebrews 7.23|]][[Hebrews 7.24|]][[Hebrews 7.25|]][[Hebrews 7.26|]][[Hebrews 7.27|]][[Hebrews 7.28|]] ([[D&C 84.18|D&C 84:18–25]][[D&C 84.19|]][[D&C 84.20|]][[D&C 84.21|]][[D&C 84.22|]][[D&C 84.23|]][[D&C 84.24|]][[D&C 84.25|]]).
+
+- Melchizedek exercised mighty faith and received the office of the high priesthood, [[Alma 13.18|Alma 13:18]].
+
+- The Melchizedek Priesthood was conferred on Joseph Smith and Oliver Cowdery, [[D&C 27.12|D&C 27:12–13]][[D&C 27.13|]] ([[Joseph Smith History 1.72|JS—H 1:72]]).
+- This priesthood received by oath and covenant, [[D&C 84.33|D&C 84:33–42]][[D&C 84.34|]][[D&C 84.35|]][[D&C 84.36|]][[D&C 84.37|]][[D&C 84.38|]][[D&C 84.39|]][[D&C 84.40|]][[D&C 84.41|]][[D&C 84.42|]].
+- There are two divisions or grand heads, the Melchizedek and the Aaronic priesthoods, [[D&C 107.6|D&C 107:6]].
+- The Melchizedek Priesthood holds the rights to administer all spiritual blessings, [[D&C 107.8|D&C 107:8–18]][[D&C 107.9|]][[D&C 107.10|]][[D&C 107.11|]][[D&C 107.12|]][[D&C 107.13|]][[D&C 107.14|]][[D&C 107.15|]][[D&C 107.16|]][[D&C 107.17|]][[D&C 107.18|]].
+- Moses, Elias, and Elijah gave Joseph Smith and Oliver Cowdery priesthood keys, [[D&C 110.11|D&C 110:11–16]][[D&C 110.12|]][[D&C 110.13|]][[D&C 110.14|]][[D&C 110.15|]][[D&C 110.16|]].
+- I now give unto you the officers belonging to my priesthood, that ye may hold the keys thereof, [[D&C 124.123|D&C 124:123]].
+
+
