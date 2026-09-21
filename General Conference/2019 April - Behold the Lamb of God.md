@@ -61,7 +61,7 @@ Beloved friends, as we unite across the globe each week in what we hope is an in
 
 [^5]: [[Revelation 13.8|Revelation 13:8]].
 
-[^6]: See Bible Dictionary, “[[BD Anointed One|Anointed One]]”; see also Guide to the Scriptures, “[Anointed One](https://www.churchofjesuschrist.org/study/scriptures/gs/anointed-one?lang=eng),” scriptures.ChurchofJesusChrist.org.
+[^6]: See Bible Dictionary, “[[BD Anointed One|Anointed One]]”; see also Guide to the Scriptures, “[[GS Anointed One|Anointed One]],” scriptures.ChurchofJesusChrist.org.
 
 [^7]: Ironically, Cain’s slaying of Abel, an act ultimately directed by Satan, may have been linked to Cain’s earlier anger over his sacrificial offering being rejected by the Lord while Abel’s was accepted.
 

@@ -57,7 +57,7 @@ What do [[Jeremiah 3.14|Jeremiah 3:14–18]][[Jeremiah 3.15|]][[Jeremiah 3.16|]]
 
 In his message “[Hope of Israel](https://churchofjesuschrist.org/study/broadcasts/worldwide-devotional-for-young-adults/2018/06/hope-of-israel?lang=eng),” President Russell M. Nelson, like Jeremiah, taught that the gathering of Israel “is the most important thing taking place on earth today” (worldwide youth devotional, June 3, 2018, Gospel Library). Read or listen to his message, and see if you can discover (a) how President Nelson defines the gathering of Israel, (b) how he describes its importance, and (c) how you can be part of the gathering.
 
-> For more, see this month’s issues of the *[Liahona](https://churchofjesuschrist.org/study/magazines/liahona?lang=eng)* and *[For the Strength of Youth](https://churchofjesuschrist.org/study/magazines/for-the-strength-of-youth?lang=eng)* magazines.
+> For more, see this month’s issues of the [Liahona](https://churchofjesuschrist.org/study/magazines/liahona?lang=eng) and *[For the Strength of Youth](https://churchofjesuschrist.org/study/magazines/for-the-strength-of-youth?lang=eng)* magazines.
 
 
 ### Scripture Helps
@@ -77,7 +77,7 @@ In his message “[Hope of Israel](https://churchofjesuschrist.org/study/broadca
 
 - To introduce the important truth taught in [[Jeremiah 1.5|Jeremiah 1:5]], you could show your children a picture of a baby (or, if possible, you could look at pictures of your children when they were babies). Ask your children if they know where they lived before they were born. You could also sing together a song that teaches about our premortal life, such as “[I Lived in Heaven](https://churchofjesuschrist.org/study/manual/childrens-songbook/i-lived-in-heaven?lang=eng)” (*Children’s Songbook*, 4).
 
-- If your children would like to learn more, you could help them find “[Premortal Life](https://churchofjesuschrist.org/study/scriptures/gs/premortal-life?lang=eng)” in the Guide to the Scriptures. They could look for answers to “who,” “when,” and “what” questions about the premortal life.
+- If your children would like to learn more, you could help them find “[[GS Premortal Life|Premortal Life]]” in the Guide to the Scriptures. They could look for answers to “who,” “when,” and “what” questions about the premortal life.
 
 [[Jeremiah 1.4|Jeremiah 1:4–19]][[Jeremiah 1.5|]][[Jeremiah 1.6|]][[Jeremiah 1.7|]][[Jeremiah 1.8|]][[Jeremiah 1.9|]][[Jeremiah 1.10|]][[Jeremiah 1.11|]][[Jeremiah 1.12|]][[Jeremiah 1.13|]][[Jeremiah 1.14|]][[Jeremiah 1.15|]][[Jeremiah 1.16|]][[Jeremiah 1.17|]][[Jeremiah 1.18|]][[Jeremiah 1.19|]]
 ### Prophets are called to speak the words of the Lord.

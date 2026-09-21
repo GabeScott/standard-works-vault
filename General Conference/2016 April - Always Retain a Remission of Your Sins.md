@@ -115,7 +115,7 @@ Although none of us can achieve perfection in this life, we can become increasin
 
 [^13]: See [[3 Nephi 27.19|3 Nephi 27:19–21]][[3 Nephi 27.20|]][[3 Nephi 27.21|]].
 
-[^14]: See Guide to the Scriptures, “[Ordinances](https://www.churchofjesuschrist.org/study/scriptures/gs/ordinances?lang=eng),” scriptures.lds.org.
+[^14]: See Guide to the Scriptures, “[[GS Ordinances|Ordinances]],” scriptures.lds.org.
 
 [^15]: [[D&C 84.19|Doctrine and Covenants 84:19–21]][[D&C 84.20|]][[D&C 84.21|]].
 

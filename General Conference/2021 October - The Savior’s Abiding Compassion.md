@@ -63,9 +63,9 @@ I pray that we will become more long-suffering and understanding of others and t
 
 [^7]: See [[Matthew 20.34|Matthew 20:34]]; [[Mark 1.41|Mark 1:41]]; [[Luke 7.13|Luke 7:13]]; [[3 Nephi 17.6|3 Nephi 17:6]].
 
-[^8]: See Guide to the Scriptures, “[Charity](https://www.churchofjesuschrist.org/study/scriptures/gs/charity?lang=eng),” scriptures.ChurchofJesusChrist.org.
+[^8]: See Guide to the Scriptures, “[[GS Charity|Charity]],” scriptures.ChurchofJesusChrist.org.
 
-[^9]: See Guide to the Scriptures, “[Compassion](https://www.churchofjesuschrist.org/study/scriptures/gs/compassion?lang=eng).”
+[^9]: See Guide to the Scriptures, “[[GS Compassion|Compassion]].”
 
 [^10]: See [[Luke 7.1|Luke 7:1–10]][[Luke 7.2|]][[Luke 7.3|]][[Luke 7.4|]][[Luke 7.5|]][[Luke 7.6|]][[Luke 7.7|]][[Luke 7.8|]][[Luke 7.9|]][[Luke 7.10|]].
 
@@ -75,7 +75,7 @@ I pray that we will become more long-suffering and understanding of others and t
 
 [^13]: [[Matthew 7.3|Matthew 7:3]].
 
-[^14]: See Guide to the Scriptures, “[Omniscient](https://www.churchofjesuschrist.org/study/scriptures/gs/omniscient?lang=eng).”
+[^14]: See Guide to the Scriptures, “[[GS Omniscient|Omniscient]].”
 
 [^15]: See [[1 Samuel 16.7|1 Samuel 16:7]].
 
@@ -85,6 +85,6 @@ I pray that we will become more long-suffering and understanding of others and t
 
 [^18]: [[3 Nephi 12.48|3 Nephi 12:48]].
 
-[^19]: See Guide to the Scriptures, “[Peacemaker](https://www.churchofjesuschrist.org/study/scriptures/gs/peacemaker?lang=eng).”
+[^19]: See Guide to the Scriptures, “[[GS Peacemaker|Peacemaker]].”
 
 #Compassion #Judging #JesusChrist #Mercy

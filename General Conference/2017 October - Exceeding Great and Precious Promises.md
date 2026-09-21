@@ -117,7 +117,7 @@ I witness that our Heavenly Father lives and is the author of the plan of salvat
 
 [^9]: [[2 Nephi 28.30|2 Nephi 28:30]].
 
-[^10]: See [[Moroni 2.2|Moroni 2:2]]; Guide to the Scriptures, “[Holy Ghost](https://www.churchofjesuschrist.org/study/scriptures/gs/holy-ghost?lang=eng),” scriptures.lds.org.
+[^10]: See [[Moroni 2.2|Moroni 2:2]]; Guide to the Scriptures, “[[GS Holy Ghost|Holy Ghost]],” scriptures.lds.org.
 
 [^11]: See [[Mosiah 4.10|Mosiah 4:10–12]][[Mosiah 4.11|]][[Mosiah 4.12|]].
 

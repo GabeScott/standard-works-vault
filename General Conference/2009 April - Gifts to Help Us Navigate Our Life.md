@@ -103,11 +103,11 @@ We have been taught this weekend by prophets, seers, and revelators. I am gratef
 
 [^6]: Luis de Camõens, *The Lusiad,* book I, stanza 1, trans. William Julius Mickle (1776).
 
-[^7]: “[Conscience](https://www.churchofjesuschrist.org/study/scriptures/gs/conscience?lang=eng&id=p1#p1),” in Guide to the Scriptures, at [scriptures.lds.org](https://www.churchofjesuschrist.org/study/scriptures?lang=eng).
+[^7]: “[[GS Conscience|Conscience]],” in Guide to the Scriptures, at [scriptures.lds.org](https://www.churchofjesuschrist.org/study/scriptures?lang=eng).
 
 [^8]: See [[Acts 2.38|Acts 2:38]].
 
-[^9]: See “[Conscience](https://www.churchofjesuschrist.org/study/scriptures/gs/conscience?lang=eng&id=p1#p1),” in Guide to the Scriptures, at [scriptures.lds.org](https://www.churchofjesuschrist.org/study/scriptures?lang=eng).
+[^9]: See “[[GS Conscience|Conscience]],” in Guide to the Scriptures, at [scriptures.lds.org](https://www.churchofjesuschrist.org/study/scriptures?lang=eng).
 
 [^10]: Thomas S. Monson, “Decisions Determine Destiny,” *Tambuli,* July 1980, 30; *New Era,* Nov. 1979, 4.
 

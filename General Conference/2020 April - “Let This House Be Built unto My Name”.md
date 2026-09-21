@@ -123,7 +123,7 @@ I solemnly testify that the Father and the Son appeared to Joseph Smith, and Eli
 
 [^6]: Bible Dictionary, “[[BD Elijah|Elijah]].”
 
-[^7]: Guide to the Scriptures, “[Elijah](https://www.churchofjesuschrist.org/study/scriptures/gs/elijah?lang=eng).”
+[^7]: Guide to the Scriptures, “[[GS Elijah|Elijah]].”
 
 [^8]: [Teachings of Presidents of the Church: Joseph Smith](https://www.churchofjesuschrist.org/study/manual/teachings-joseph-smith/chapter-26?lang=eng&id=p19#p19) (2007), 311; emphasis added.
 

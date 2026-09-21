@@ -18,7 +18,7 @@ Before I had time to fully process the question, I heard a voice—sounding asto
 
 As soon as I said the words, a tsunami of thoughts flooded my mind. It had been a long time since I flew a 747. Back then I was young and a confident captain. Now I had a reputation to live up to as a former chief pilot. Would I embarrass myself in front of these professionals?
 
-But it was too late to back down, so I settled into the captain’s seat, placed my hands on the familiar and beloved controls, and felt, once again, the exhilaration of flight as the big jet roared down the runway and took off into the wild blue yonder.
+But it was too late to back down, so I settled into the captain’s seat, placed my hands on the familiar and beloved controls, and felt, once again, the exhilaration of flight as the big jet roared down the runway and took off into the wild blue yonder. Even if it was only simulated.
 
 I’m happy to say that the flight was successful, the aircraft remained intact, and so did my self-image.
 
@@ -165,7 +165,7 @@ I urge and bless every member of the Church, and all who desire to be part of it
 
 [^14]: See [[D&C 50.24|Doctrine and Covenants 50:24]].
 
-[^15]: See Guide to the Scriptures, “[Agency](https://www.churchofjesuschrist.org/study/scriptures/gs/agency?lang=eng).”
+[^15]: See Guide to the Scriptures, “[[GS Agency|Agency]].”
 
 [^16]: See [[D&C 84.38|Doctrine and Covenants 84:38]].
 

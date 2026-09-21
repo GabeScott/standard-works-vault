@@ -16,7 +16,7 @@ After I read, pondered, and prayed, the Lord gave me the assurance that Joseph S
 
 Why is it important to have living prophets to guide the true Church of Jesus Christ and its members?
 
-In the Guide to the Scriptures, we find the definition of the word *prophet:* “A person who has been called by and speaks for God. As a messenger of God, a prophet receives commandments, prophecies, and revelations from God” (“[Prophet](https://www.churchofjesuschrist.org/study/scriptures/gs/prophet?lang=eng),” scriptures.lds.org; see also Bible Dictionary, “[[BD Prophet|Prophet]]”).
+In the Guide to the Scriptures, we find the definition of the word *prophet:* “A person who has been called by and speaks for God. As a messenger of God, a prophet receives commandments, prophecies, and revelations from God” (“[[GS Prophet|Prophet]],” scriptures.lds.org; see also Bible Dictionary, “[[BD Prophet|Prophet]]”).
 
 It is a great blessing to receive the word, commandments, and guidance of the Lord in these difficult days of the earth. The prophet can be inspired to see the future in benefit of mankind.
 

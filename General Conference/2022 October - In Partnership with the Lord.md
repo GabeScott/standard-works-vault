@@ -63,7 +63,7 @@ I testify to you that as we—women and men—work together in a true and equal 
 
 [^8]: [[2 Nephi 26.33|2 Nephi 26:33]].
 
-[^9]: See Guide to the Scriptures, “[Unity](https://www.churchofjesuschrist.org/study/scriptures/gs/unity?lang=eng),” scriptures.ChurchofJesusChrist.org.
+[^9]: See Guide to the Scriptures, “[[GS Unity|Unity]],” scriptures.ChurchofJesusChrist.org.
 
 [^10]: Madeleine L’Engle, *The Irrational Season* (1977), 48.
 

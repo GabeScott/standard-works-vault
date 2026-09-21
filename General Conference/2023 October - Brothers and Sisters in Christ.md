@@ -107,15 +107,15 @@ I testify to you that as we continue to flow this way during our mortal life, a 
 
 [^21]: See [[2 Nephi 26.14|2 Nephi 26:14–30]][[2 Nephi 26.15|]][[2 Nephi 26.16|]][[2 Nephi 26.17|]][[2 Nephi 26.18|]][[2 Nephi 26.19|]][[2 Nephi 26.20|]][[2 Nephi 26.21|]][[2 Nephi 26.22|]][[2 Nephi 26.23|]][[2 Nephi 26.24|]][[2 Nephi 26.25|]][[2 Nephi 26.26|]][[2 Nephi 26.27|]][[2 Nephi 26.28|]][[2 Nephi 26.29|]][[2 Nephi 26.30|]].
 
-[^22]: See Guide to the Scriptures, “[Natural Man](https://www.churchofjesuschrist.org/study/scriptures/gs/natural-man?lang=eng),” Gospel Library; see also [[1 Corinthians 2.14|1 Corinthians 2:14]]; [[Mosiah 16.5|Mosiah 16:5]]; [[Alma 42.7|Alma 42:7–24]][[Alma 42.8|]][[Alma 42.9|]][[Alma 42.10|]][[Alma 42.11|]][[Alma 42.12|]][[Alma 42.13|]][[Alma 42.14|]][[Alma 42.15|]][[Alma 42.16|]][[Alma 42.17|]][[Alma 42.18|]][[Alma 42.19|]][[Alma 42.20|]][[Alma 42.21|]][[Alma 42.22|]][[Alma 42.23|]][[Alma 42.24|]].
+[^22]: See Guide to the Scriptures, “[[GS Natural Man|Natural Man]],” Gospel Library; see also [[1 Corinthians 2.14|1 Corinthians 2:14]]; [[Mosiah 16.5|Mosiah 16:5]]; [[Alma 42.7|Alma 42:7–24]][[Alma 42.8|]][[Alma 42.9|]][[Alma 42.10|]][[Alma 42.11|]][[Alma 42.12|]][[Alma 42.13|]][[Alma 42.14|]][[Alma 42.15|]][[Alma 42.16|]][[Alma 42.17|]][[Alma 42.18|]][[Alma 42.19|]][[Alma 42.20|]][[Alma 42.21|]][[Alma 42.22|]][[Alma 42.23|]][[Alma 42.24|]].
 
-[^23]: See “[Seek Christlike Attributes](https://www.churchofjesuschrist.org/study/manual/preach-my-gospel-2023/14-chapter-6?lang=eng),” *Preach My Gospel: A Guide to Sharing the Gospel of Jesus Christ* (2023), 123–38; see also Guide to the Scriptures, “[Disciple](https://www.churchofjesuschrist.org/study/scriptures/gs/disciple?lang=eng),” Gospel Library.
+[^23]: See “[Seek Christlike Attributes](https://www.churchofjesuschrist.org/study/manual/preach-my-gospel-2023/14-chapter-6?lang=eng),” *Preach My Gospel: A Guide to Sharing the Gospel of Jesus Christ* (2023), 123–38; see also Guide to the Scriptures, “[[GS Disciple|Disciple]],” Gospel Library.
 
 [^24]: See [[1 Samuel 16.7|1 Samuel 16:7]].
 
 [^25]: Abraham Lincoln, “Second Inaugural Address,” Mar. 4, 1865, loc.gov.
 
-[^26]: See [[4 Nephi 1.17|4 Nephi 1:17]]; see also Guide to the Scriptures, “[Children of Christ](https://www.churchofjesuschrist.org/study/scriptures/gs/children-of-christ?lang=eng),” Gospel Library.
+[^26]: See [[4 Nephi 1.17|4 Nephi 1:17]]; see also Guide to the Scriptures, “[[GS Children of Christ|Children of Christ]],” Gospel Library.
 
 [^27]: See Martin Luther King Jr., “Facing the Challenge of a New Age,” speech given Dec. 3, 1956.
 

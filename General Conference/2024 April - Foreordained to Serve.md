@@ -81,7 +81,7 @@ Our Father in Heaven will answer your prayers, especially your prayers offered d
 
 [^12]: See Russell M. Nelson, “[Hope of Israel](https://www.churchofjesuschrist.org/study/broadcasts/worldwide-devotional-for-young-adults/2018/06/hope-of-israel?lang=eng&id=p58#p58).”
 
-[^13]: Topics and Questions, “[Foreordination](https://www.churchofjesuschrist.org/study/manual/gospel-topics/foreordination?lang=eng&id=p4#p4),” Gospel Library; see also [[Jeremiah 1.5|Jeremiah 1:5]]; “[What Is the Relationship between Foreordination and Agency?](https://www.churchofjesuschrist.org/study/liahona/2023/10/come-follow-me/22-what-is-the-relationship-between-foreordination-and-agency?lang=eng),” *Liahona*, Oct. 2023, 47; Guide to the Scriptures, “[Foreordination](https://www.churchofjesuschrist.org/study/scriptures/gs/foreordination?lang=eng),” Gospel Library.
+[^13]: Topics and Questions, “[Foreordination](https://www.churchofjesuschrist.org/study/manual/gospel-topics/foreordination?lang=eng&id=p4#p4),” Gospel Library; see also [[Jeremiah 1.5|Jeremiah 1:5]]; “[What Is the Relationship between Foreordination and Agency?](https://www.churchofjesuschrist.org/study/liahona/2023/10/come-follow-me/22-what-is-the-relationship-between-foreordination-and-agency?lang=eng),” *Liahona*, Oct. 2023, 47; Guide to the Scriptures, “[[GS Foreordination|Foreordination]],” Gospel Library.
 
 [^14]: See [[Alma 13.1|Alma 13:1–4]][[Alma 13.2|]][[Alma 13.3|]][[Alma 13.4|]]; [[D&C 130.20|Doctrine and Covenants 130:20–21]][[D&C 130.21|]].
 

@@ -15,7 +15,7 @@ For more about these books, see “[[BD Amos|Amos]],” “[[BD Obadiah|Obadiah]
 
 In [[Amos 3.3|Amos 3:3–6]][[Amos 3.4|]][[Amos 3.5|]][[Amos 3.6|]], the prophet Amos presented examples of conclusions we can draw from signs we hear or see: when a lion roars, it must have captured prey; if a bird is caught in a trap, there must have been bait there. In [[Amos 3.7|verses 7–8]][[Amos 3.8|]], Amos applied this logic to prophets. What conclusions can we draw when a prophet prophesies? What else do you learn about prophets from [[Amos 7.10|Amos 7:10–15]][[Amos 7.11|]][[Amos 7.12|]][[Amos 7.13|]][[Amos 7.14|]][[Amos 7.15|]]?
 
-What has the Lord revealed to you through His prophets?
+In his message “[[2026 April - Follow the Prophet; He Knows the Way.md|Follow the Prophet; He Knows the Way]]” (*Liahona*, May 2026, 22–23), Elder Michael John U. Teh shared how teachings from President Dallin H. Oaks have influenced his life. What has the Lord revealed to you through His prophets?
 
 Elder Ulisses Soares said that “having prophets is a sign of God’s love” (“[[2018 April - Prophets Speak by the Power of the Holy Spirit.md|Prophets Speak by the Power of the Holy Spirit]],” *Ensign* or *Liahona*, May 2018, 99). Consider how you would complete this sentence: “I know God loves me, because He sends prophets who …” Here are some scriptures that can help: [[Deuteronomy 18.18|Deuteronomy 18:18]]; [[Ezekiel 3.16|Ezekiel 3:16–17]][[Ezekiel 3.17|]]; [[Ephesians 4.11|Ephesians 4:11–14]][[Ephesians 4.12|]][[Ephesians 4.13|]][[Ephesians 4.14|]]; [[1 Nephi 22.2|1 Nephi 22:2]]; [[D&C 21.4|Doctrine and Covenants 21:4–6]][[D&C 21.5|]][[D&C 21.6|]]; [[D&C 84.36|84:36–38]][[D&C 84.37|]][[D&C 84.38|]]; [[D&C 107.91|107:91–92]][[D&C 107.92|]].
 
@@ -53,6 +53,8 @@ Nineveh was an enemy of Israel known for its violence and cruelty. To Jonah, it 
 
 As you read Jonah, look for examples of the Lord’s mercy. Why do you feel Jonah was “displeased” and “very angry” ([[Jonah 4.1|Jonah 4:1]]) when the Lord extended mercy to the people of Nineveh? What do you feel the Lord was trying to teach him in [[Jonah 4.1|chapter 4]][[Jonah 4.2|]][[Jonah 4.3|]][[Jonah 4.4|]][[Jonah 4.5|]][[Jonah 4.6|]][[Jonah 4.7|]][[Jonah 4.8|]][[Jonah 4.9|]][[Jonah 4.10|]][[Jonah 4.11|]]? Ponder how you have experienced His mercy in your life. What do you learn from Jonah that can help you be more merciful?
 
+See also Matthew S. Holland, “[[2025 October - Forsake Not Your Own Mercy.md|Forsake Not Your Own Mercy]],” *Liahona*, Nov. 2025, 105–6.
+
 ### Scripture Helps
 
 - [What is a “plumbline”?](https://churchofjesuschrist.org/study/manual/scripture-helps-old-testament/46-amos-obadiah-jonah?lang=eng&id=p_eIMmP-p_qkvng#p_eIMmP)
@@ -82,7 +84,7 @@ Because this Sunday is the fifth Sunday of the month, Primary teachers are encou
 
 - Invite your children to pretend to be hungry as you read [[Amos 8.11|Amos 8:11–12]][[Amos 8.12|]]. What does it feel like when we are hungry for God’s word? Maybe your children could pretend to eat as you share with each other some of your favorite scriptures.
 
-- You could use Guide to the Scriptures, “[Apostasy](https://churchofjesuschrist.org/study/scriptures/gs/apostasy?lang=eng)” (Gospel Library), or “[After the New Testament](https://churchofjesuschrist.org/study/manual/new-testament-stories/after-the-new-testament?lang=eng)” (in *New Testament Stories*, 167–70) to help your children understand the “famine” that came from the Great Apostasy and how it ended with the Restoration. Share with each other reasons you are grateful that the Lord restored His gospel in our day.> 2:52
+- You could use Guide to the Scriptures, “[[GS Apostasy|Apostasy]]” (Gospel Library), or “[After the New Testament](https://churchofjesuschrist.org/study/manual/new-testament-stories/after-the-new-testament?lang=eng)” (in *New Testament Stories*, 167–70) to help your children understand the “famine” that came from the Great Apostasy and how it ended with the Restoration. Share with each other reasons you are grateful that the Lord restored His gospel in our day.> 2:52
 
 
 [[Jonah 1.1|Jonah 1–3]][[Jonah 1.2|]][[Jonah 1.3|]][[Jonah 1.4|]][[Jonah 1.5|]][[Jonah 1.6|]][[Jonah 1.7|]][[Jonah 1.8|]][[Jonah 1.9|]][[Jonah 1.10|]][[Jonah 1.11|]][[Jonah 1.12|]][[Jonah 1.13|]][[Jonah 1.14|]][[Jonah 1.15|]][[Jonah 1.16|]][[Jonah 1.17|]]

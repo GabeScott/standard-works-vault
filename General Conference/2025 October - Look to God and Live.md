@@ -107,7 +107,7 @@ I bear testimony of the Father, Son, and Holy Ghost, who in perfect unity of wor
 
 [^23]: Mapule Joyce Takane, in Jensen, “Survivors of Deadly Bus Crash in Lesotho Share Grief—and Faith—in Wake of Tragedy,” thechurchnews.com.
 
-[^24]: See [[1 John 5.7|1 John 5:7]]; [[3 Nephi 11.36|3 Nephi 11:36]]; [[D&C 20.28|Doctrine and Covenants 20:28]]; Guide to the Scriptures, “[God, Godhead](https://www.churchofjesuschrist.org/study/scriptures/gs/god-godhead?lang=eng),” Gospel Library.
+[^24]: See [[1 John 5.7|1 John 5:7]]; [[3 Nephi 11.36|3 Nephi 11:36]]; [[D&C 20.28|Doctrine and Covenants 20:28]]; Guide to the Scriptures, “[[GS God, Godhead|God, Godhead]],” Gospel Library.
 
 [^25]: [[3 Nephi 15.9|3 Nephi 15:9]].
 

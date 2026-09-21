@@ -1,0 +1,7 @@
+# Herod
+
+[Link](https://www.churchofjesuschrist.org/study/scriptures/gs/herod?lang=eng)
+
+A family of rulers in Judea near the time of Jesus Christ. They were important figures in many New Testament events. The family was founded by Herod the Great, who was fearful of the birth of the Savior ([[Matthew 2.3|Matt. 2:3]]) and gave the order for the massacre of the infants at Bethlehem. His sons included Aristobulus; Herod Philip ([[Matthew 14.3|Matt. 14:3]]; [[Mark 6.17|Mark 6:17]]); Herod Antipas, the tetrarch ([[Matthew 14.1|Matt. 14:1]]; [[Luke 9.7|Luke 9:7]]; also known as King Herod, [[Mark 6.14|Mark 6:14]]); Archelaus ([[Matthew 2.22|Matt. 2:22]]); and Philip, tetrarch of Iturea ([[Luke 3.1|Luke 3:1]]). Herod Agrippa Ⅰ ([[Acts 12.1|Acts 12:1–23]][[Acts 12.2|]][[Acts 12.3|]][[Acts 12.4|]][[Acts 12.5|]][[Acts 12.6|]][[Acts 12.7|]][[Acts 12.8|]][[Acts 12.9|]][[Acts 12.10|]][[Acts 12.11|]][[Acts 12.12|]][[Acts 12.13|]][[Acts 12.14|]][[Acts 12.15|]][[Acts 12.16|]][[Acts 12.17|]][[Acts 12.18|]][[Acts 12.19|]][[Acts 12.20|]][[Acts 12.21|]][[Acts 12.22|]][[Acts 12.23|]]) and his sister Herodias ([[Matthew 14.3|Matt. 14:3]]; [[Mark 6.17|Mark 6:17]]) were the children of Aristobulus. Herod Agrippa Ⅰ had several children also mentioned in the New Testament, including Herod Agrippa Ⅱ ([[Acts 25.13|Acts 25:13]]), Bernice ([[Acts 25.13|Acts 25:13]]), and Drusilla, wife of Felix ([[Acts 24.24|Acts 24:24]]).
+
+

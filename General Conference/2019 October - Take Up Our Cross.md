@@ -81,7 +81,7 @@ I testify to you that following our Master’s footsteps and waiting on Him who 
 
 [^8]: See [[Matthew 28.19|Matthew 28:19–20]][[Matthew 28.20|]].
 
-[^9]: See [[JST Matthew 16.25|Joseph Smith Translation, Matthew 16:25–29]][[JST Matthew 16.26|]][[JST Matthew 16.27|]][[JST Matthew 16.28|]][[JST Matthew 16.29|]] (in the Bible appendix); see also Guide to the Scriptures, “[Lust](https://www.churchofjesuschrist.org/study/scriptures/gs/lust?lang=eng)”; “[Natural Man](https://www.churchofjesuschrist.org/study/scriptures/gs/natural-man?lang=eng)”; “[Sensual, Sensuality](https://www.churchofjesuschrist.org/study/scriptures/gs/sensual-sensuality?lang=eng)”; “[Wicked, Wickedness](https://www.churchofjesuschrist.org/study/scriptures/gs/wicked-wickedness?lang=eng)”; [scriptures.ChurchofJesusChrist.org](https://scriptures.churchofjesuschrist.org).
+[^9]: See [[JST Matthew 16.25|Joseph Smith Translation, Matthew 16:25–29]][[JST Matthew 16.26|]][[JST Matthew 16.27|]][[JST Matthew 16.28|]][[JST Matthew 16.29|]] (in the Bible appendix); see also Guide to the Scriptures, “[[GS Lust|Lust]]”; “[[GS Natural Man|Natural Man]]”; “[[GS Sensual, Sensuality|Sensual, Sensuality]]”; “[[GS Wicked, Wickedness|Wicked, Wickedness]]”; [scriptures.ChurchofJesusChrist.org](https://scriptures.churchofjesuschrist.org).
 
 [^10]: See [[Alma 1.25|Alma 1:25]].
 

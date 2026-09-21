@@ -1,0 +1,15 @@
+# Job
+
+[Link](https://www.churchofjesuschrist.org/study/scriptures/gs/job?lang=eng)
+
+In the Old Testament, a righteous man who suffered tremendous affliction yet remained faithful to his belief in God. His story is told in the book of Job.
+
+## The book of Job
+
+Although the book is about Job’s suffering, it does not entirely answer the question of why Job (or any other person) might suffer pain and the loss of his family and goods. The book clarifies that having afflictions does not necessarily mean that a person has sinned. The Lord may use affliction for experience, discipline, and instruction as well as for punishment ([[D&C 122.1|D&C 122]][[D&C 122.2|]][[D&C 122.3|]][[D&C 122.4|]][[D&C 122.5|]][[D&C 122.6|]][[D&C 122.7|]][[D&C 122.8|]][[D&C 122.9|]]).
+
+The book can be divided into four parts. [[Job 1.1|Chapters 1–2]][[Job 1.2|]][[Job 1.3|]][[Job 1.4|]][[Job 1.5|]][[Job 1.6|]][[Job 1.7|]][[Job 1.8|]][[Job 1.9|]][[Job 1.10|]][[Job 1.11|]][[Job 1.12|]][[Job 1.13|]][[Job 1.14|]][[Job 1.15|]][[Job 1.16|]][[Job 1.17|]][[Job 1.18|]][[Job 1.19|]][[Job 1.20|]][[Job 1.21|]][[Job 1.22|]] are a prologue to the story. [[Job 3.1|Chapters 3–31]][[Job 3.2|]][[Job 3.3|]][[Job 3.4|]][[Job 3.5|]][[Job 3.6|]][[Job 3.7|]][[Job 3.8|]][[Job 3.9|]][[Job 3.10|]][[Job 3.11|]][[Job 3.12|]][[Job 3.13|]][[Job 3.14|]][[Job 3.15|]][[Job 3.16|]][[Job 3.17|]][[Job 3.18|]][[Job 3.19|]][[Job 3.20|]][[Job 3.21|]][[Job 3.22|]][[Job 3.23|]][[Job 3.24|]][[Job 3.25|]][[Job 3.26|]] relate a series of discussions between Job and three friends. [[Job 32.1|Chapters 32–37]][[Job 32.2|]][[Job 32.3|]][[Job 32.4|]][[Job 32.5|]][[Job 32.6|]][[Job 32.7|]][[Job 32.8|]][[Job 32.9|]][[Job 32.10|]][[Job 32.11|]][[Job 32.12|]][[Job 32.13|]][[Job 32.14|]][[Job 32.15|]][[Job 32.16|]][[Job 32.17|]][[Job 32.18|]][[Job 32.19|]][[Job 32.20|]][[Job 32.21|]][[Job 32.22|]] contain the speeches of Elihu, a fourth friend, who condemns Job for reasons other than the reasons of the first three friends. [[Job 38.1|Chapters 38–42]][[Job 38.2|]][[Job 38.3|]][[Job 38.4|]][[Job 38.5|]][[Job 38.6|]][[Job 38.7|]][[Job 38.8|]][[Job 38.9|]][[Job 38.10|]][[Job 38.11|]][[Job 38.12|]][[Job 38.13|]][[Job 38.14|]][[Job 38.15|]][[Job 38.16|]][[Job 38.17|]][[Job 38.18|]][[Job 38.19|]][[Job 38.20|]][[Job 38.21|]][[Job 38.22|]][[Job 38.23|]][[Job 38.24|]][[Job 38.25|]][[Job 38.26|]][[Job 38.27|]][[Job 38.28|]][[Job 38.29|]][[Job 38.30|]][[Job 38.31|]][[Job 38.32|]][[Job 38.33|]][[Job 38.34|]][[Job 38.35|]][[Job 38.36|]][[Job 38.37|]][[Job 38.38|]][[Job 38.39|]][[Job 38.40|]][[Job 38.41|]] conclude the book with a reassurance to Job that his course in life was a good one from the beginning.
+
+The book of Job teaches that if a person has a correct knowledge of God and is living a life that is acceptable to God, he will be better able to endure the trials that come upon him. Job’s unfailing faith is characterized by such exclamations as “Though he slay me, yet will I trust in him” ([[Job 13.15|Job 13:15]]). Job is also mentioned in [[Ezekiel 14.14|Ezekiel 14:14]]; [[James 5.11|James 5:11]]; [[D&C 121.10|Doctrine and Covenants 121:10]].
+
+

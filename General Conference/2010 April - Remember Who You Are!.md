@@ -63,7 +63,7 @@ And so I conclude with the Lord’s words to each of us, His precious daughters:
 
 [^6]: [[Joshua 1.9|Joshua 1:9]].
 
-[^7]: [[Joshua 3.5|Joshua 3:5]]; see also Guide to the Scriptures, “[Sanctification](https://www.churchofjesuschrist.org/study/scriptures/gs/sanctification?lang=eng),” scriptures.lds.org.
+[^7]: [[Joshua 3.5|Joshua 3:5]]; see also Guide to the Scriptures, “[[GS Sanctification|Sanctification]],” scriptures.lds.org.
 
 [^8]: [[Alma 13.3|Alma 13:3]].
 

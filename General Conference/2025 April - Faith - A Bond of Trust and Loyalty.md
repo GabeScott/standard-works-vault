@@ -81,7 +81,7 @@ I testify to you of the joy that comes from singing “the song of redeeming lov
 
 [^2]: The word *faith* comes from the Latin *fides*, which means “to trust” (see Michiel de Vaan, *Etymological Dictionary of Latin and the Other Italic Languages* \[2008\], “fido”). The Greek cognate, πίστις, translates as “trusting” (see Robert Beekes, *Etymological Dictionary of Greek* \[2010\], 1:1161–62).
 
-[^3]: “Faith is confidence and trust in Jesus Christ” (Guide to the Scriptures, “[Faith](https://www.churchofjesuschrist.org/study/scriptures/gs/faith?lang=eng&id=p1#p1),” Gospel Library).
+[^3]: “Faith is confidence and trust in Jesus Christ” (Guide to the Scriptures, “[[GS Faith|Faith]],” Gospel Library).
 
 [^4]: See “[Look unto Christ](https://www.churchofjesuschrist.org/study/video/face-to-face-events/2025-january-worldwide-discussion-for-youth-look-unto-christ?lang=eng)” (worldwide discussion for youth, Jan. 5, 2025), Gospel Library; see also Alexander Dushku, “[[2024 April - Pillars and Rays.md|Pillars and Rays]],” *Liahona*, May 2024, 14–16.
 

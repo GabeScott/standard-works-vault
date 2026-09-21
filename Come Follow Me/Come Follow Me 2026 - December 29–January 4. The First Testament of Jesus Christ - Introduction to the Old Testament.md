@@ -22,7 +22,7 @@ What do these examples teach about Him? What other references to Jesus Christ in
 
 In his message “[[2023 October - Jesus Christ Is the Treasure.md|Jesus Christ Is the Treasure]],” Elder Dale G. Renlund encouraged us to “remember and always focus on Jesus Christ” (*Liahona*, Nov. 2023, 98). Consider reading his message, looking for things you can do to find Jesus Christ not only in the Old Testament but also in your life.
 
-See also “[Types or Symbols of Christ](https://churchofjesuschrist.org/study/scriptures/gs/jesus-christ?lang=eng&id=title15-p161#title15)” in Guide to the Scriptures, “[Jesus Christ](https://churchofjesuschrist.org/study/scriptures/gs/jesus-christ?lang=eng),” Gospel Library; “[Seek the Lord Early](https://www.churchofjesuschrist.org/media/music/songs/seek-the-lord-early),” *Children’s Songbook*, 108.
+See also “[[GS Jesus Christ|Types or Symbols of Christ]]” in Guide to the Scriptures, “[[GS Jesus Christ|Jesus Christ]],” Gospel Library; “[Seek the Lord Early](https://www.churchofjesuschrist.org/media/music/songs/seek-the-lord-early),” *Children’s Songbook*, 108.
 
 > **Look for symbols that testify of Jesus Christ.** The Lord taught Adam, “All things have their likeness, and all things are created and made to bear record of me” ([[Moses 6.63|Moses 6:63]]). Whether you are studying or teaching, focusing on Jesus Christ can help you find meaning in the scriptures and increase your love for and faith in Him. (See *Teaching in the Savior’s Way*, [7](https://churchofjesuschrist.org/study/manual/teaching-in-the-saviors-way-2022/04-part-1/05-teach-about-jesus-christ?lang=eng).)
 

@@ -1,0 +1,11 @@
+CONVENTIONS.md
+.obsidian/community-plugins.json
+.obsidian/plugins/broken-links/data.json
+.obsidian/plugins/broken-links/main.js
+.obsidian/plugins/broken-links/manifest.json
+.obsidian/plugins/broken-links/styles.css
+Scripts/footnotes_parallel_fixed_caps.json
+Scripts/gc_topics.json
+Scripts/gc_urls.json
+Scripts/get_gc_topics.py
+Scripts/update_caps_and_clarity_words.py

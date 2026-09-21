@@ -4,7 +4,7 @@
 
 It’s natural to wonder why bad things happen to good people—or, for that matter, why good things happen to bad people. Why would God, who is just, allow that? The book of Job explores questions like these. Job was one of those good people to whom a lot of bad things happened. Because of Job’s trials, his friends wondered if he really was good after all. Job asserted his own righteousness and wondered if God really is just after all. But despite his suffering and wondering, Job maintained his integrity and faith in Jesus Christ. In the book of Job, faith is questioned and tested but never completely abandoned. That doesn’t mean all the questions are answered. But the book of Job teaches that until they are answered, questions can coexist with faith. And regardless of what happens in the meantime, we can say of our Lord, “Yet will I trust in him” ([[Job 13.15|Job 13:15]]).
 
-For an overview of the book of Job, see “[Job](https://churchofjesuschrist.org/study/scriptures/gs/job?lang=eng)” in the Guide to the Scriptures (Gospel Library).
+For an overview of the book of Job, see “[[GS Job|Job]]” in the Guide to the Scriptures (Gospel Library).
 
 ## Ideas for Learning at Home and at Church
 
@@ -59,7 +59,7 @@ Here are two general conference messages that can help change our perspective: T
 > **Be creative.** Learning doesn’t have to consist only of reading, thinking, and talking. Sometimes the most memorable learning comes in physically active ways. For example, when you read about how the Lord changed Job’s perspective in [[Job 38.1|Job 38–40]][[Job 38.2|]][[Job 38.3|]][[Job 38.4|]][[Job 38.5|]][[Job 38.6|]][[Job 38.7|]][[Job 38.8|]][[Job 38.9|]][[Job 38.10|]][[Job 38.11|]][[Job 38.12|]][[Job 38.13|]][[Job 38.14|]][[Job 38.15|]][[Job 38.16|]][[Job 38.17|]][[Job 38.18|]][[Job 38.19|]][[Job 38.20|]][[Job 38.21|]][[Job 38.22|]][[Job 38.23|]][[Job 38.24|]][[Job 38.25|]][[Job 38.26|]][[Job 38.27|]][[Job 38.28|]][[Job 38.29|]][[Job 38.30|]][[Job 38.31|]][[Job 38.32|]][[Job 38.33|]][[Job 38.34|]][[Job 38.35|]][[Job 38.36|]][[Job 38.37|]][[Job 38.38|]][[Job 38.39|]][[Job 38.40|]][[Job 38.41|]], you might take a walk and look at some of the Lord’s creations, large and small. Or you might look at an object from different perspectives—from above, below, up close, far away, and so on.
 
 
-> For more, see this month’s issues of the *[Liahona](https://churchofjesuschrist.org/study/magazines/liahona?lang=eng)* and *[For the Strength of Youth](https://churchofjesuschrist.org/study/magazines/for-the-strength-of-youth?lang=eng)* magazines.
+> For more, see this month’s issues of the [Liahona](https://churchofjesuschrist.org/study/magazines/liahona?lang=eng) and *[For the Strength of Youth](https://churchofjesuschrist.org/study/magazines/for-the-strength-of-youth?lang=eng)* magazines.
 
 
 ### Scripture Helps

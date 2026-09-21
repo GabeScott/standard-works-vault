@@ -103,7 +103,7 @@ I bear my sure and certain apostolic witness of the divinity of Jesus Christ and
 
 [^13]: See Joseph Smith, in “[History, 1838–1856, volume D-1](https://www.josephsmithpapers.org/paper-summary/history-1838-1856-volume-d-1-1-august-1842-1-july-1843/217),” 1572, josephsmithpapers.org; see also Joseph Smith, “[Discourse, 11 June 1843–A, as Reported by Wilford Woodruff](https://www.josephsmithpapers.org/paper-summary/discourse-11-june-1843-a-as-reported-by-wilford-woodruff/1),” \[42–43\], josephsmithpapers.org; Joseph Smith, “[Discourse, 11 June 1843–A, as Reported by Willard Richards](https://www.josephsmithpapers.org/paper-summary/discourse-11-june-1843-a-as-reported-by-willard-richards/2),” \[241\], josephsmithpapers.org.
 
-[^14]: See Bible Dictionary, “[[BD Israel, Kingdom of|Israel, Kingdom of]]”; James E. Talmage, *The Articles of Faith*, 315. Rehoboam and his subjects were known as the kingdom of Judah and were located in the southern part of modern Israel.
+[^14]: See Bible Dictionary, “[[BD Israel Kingdom Of|Israel, Kingdom of]]”; James E. Talmage, *The Articles of Faith*, 315. Rehoboam and his subjects were known as the kingdom of Judah and were located in the southern part of modern Israel.
 
 [^15]: See [[2 Kings 17.23|2 Kings 17:23]].
 
@@ -121,7 +121,7 @@ I bear my sure and certain apostolic witness of the divinity of Jesus Christ and
 
 [^22]: See Russell M. Nelson, in R. Scott Lloyd, “Seminar for New Mission Presidents: ‘Swift Messengers’ to Scattered Israel,” *Church News*, July 13, 2013, thechurchnews.com. President Nelson has stated that the gathering “is not a matter of physical location; it is a matter of individual commitment. People can be ‘brought to the knowledge of the Lord’ \[[[3 Nephi 20.13|3 Nephi 20:13]]\] without leaving their homelands” (“[[2006 October - The Gathering of Scattered Israel.md|The Gathering of Scattered Israel]],” *Ensign* or *Liahona*, Nov. 2006, 81). See also [[3 Nephi 21.1|3 Nephi 21:1–7]][[3 Nephi 21.2|]][[3 Nephi 21.3|]][[3 Nephi 21.4|]][[3 Nephi 21.5|]][[3 Nephi 21.6|]][[3 Nephi 21.7|]].
 
-[^23]: Our doctrine is clear; the Lord scattered the tribes of Israel because of their rebellion and their unrighteousness. However, the Lord also utilized the scattering of His chosen people among the nations of the world to bless those nations. (See Guide to the Scriptures, “[Israel—The Scattering of Israel](https://www.churchofjesuschrist.org/study/scriptures/gs/israel?lang=eng),” scriptures.ChurchofJesusChrist.org.)
+[^23]: Our doctrine is clear; the Lord scattered the tribes of Israel because of their rebellion and their unrighteousness. However, the Lord also utilized the scattering of His chosen people among the nations of the world to bless those nations. (See Guide to the Scriptures, “[[GS Israel|Israel—The Scattering of Israel]],” scriptures.ChurchofJesusChrist.org.)
 
 [^24]: Spencer W. Kimball, *The Teachings of Spencer W. Kimball*, 439.
 

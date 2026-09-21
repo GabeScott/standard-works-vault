@@ -45,7 +45,7 @@ What counsel do you find in [[Deuteronomy 6.4|Deuteronomy 6:4–12, 20–25]][[D
 
 You might also study Brother Jan E. Newman’s message “[[2023 October - Preserving the Voice of the Covenant People in the Rising Generation.md|Preserving the Voice of the Covenant People in the Rising Generation]]” (*Liahona*, Nov. 2023, 36–38) and consider how you will pass your faith in Christ to future generations.
 
-See also [[Deuteronomy 11.18|Deuteronomy 11:18–21]][[Deuteronomy 11.19|]][[Deuteronomy 11.20|]][[Deuteronomy 11.21|]]; Dale G. Renlund, “[[2020 April - Consider the Goodness and Greatness of God.md|Consider the Goodness and Greatness of God]],” *Ensign* or *Liahona*, May 2020, 41–44; Bible Dictionary, “[[BD Frontlets or phylacteries|Frontlets or phylacteries]].”
+See also [[Deuteronomy 11.18|Deuteronomy 11:18–21]][[Deuteronomy 11.19|]][[Deuteronomy 11.20|]][[Deuteronomy 11.21|]]; Dale G. Renlund, “[[2020 April - Consider the Goodness and Greatness of God.md|Consider the Goodness and Greatness of God]],” *Ensign* or *Liahona*, May 2020, 41–44; Bible Dictionary, “[[BD Frontlets|Frontlets or phylacteries]].”
 
 [[Deuteronomy 15.1|Deuteronomy 15:1–15]][[Deuteronomy 15.2|]][[Deuteronomy 15.3|]][[Deuteronomy 15.4|]][[Deuteronomy 15.5|]][[Deuteronomy 15.6|]][[Deuteronomy 15.7|]][[Deuteronomy 15.8|]][[Deuteronomy 15.9|]][[Deuteronomy 15.10|]][[Deuteronomy 15.11|]][[Deuteronomy 15.12|]][[Deuteronomy 15.13|]][[Deuteronomy 15.14|]][[Deuteronomy 15.15|]]
 ### Helping people in need involves generous hands and willing hearts.
@@ -100,7 +100,7 @@ It might be interesting to compare Moses’s words in [[Deuteronomy 29.9|Deutero
 
 - Talking about [[Deuteronomy 29.12|Deuteronomy 29:12–13]][[Deuteronomy 29.13|]] provides an opportunity for you and your children to talk about covenants they will make or have made with Heavenly Father. What does it mean to be God’s people? How do our promises make us God’s people? (see [[Deuteronomy 29.13|verse 13]]; see also [[Mosiah 18.8|Mosiah 18:8–10]][[Mosiah 18.9|]][[Mosiah 18.10|]]).
 
-- If your children need help understanding what a covenant is, suggest that they find a definition in “[Covenant](https://churchofjesuschrist.org/study/scriptures/gs/covenant?lang=eng)” in the Guide to the Scriptures (Gospel Library). What promises did God and the Israelites make with each other in [[Deuteronomy 30.8|Deuteronomy 30:8–10]][[Deuteronomy 30.9|]][[Deuteronomy 30.10|]]? What promises have we made with God? (see [[D&C 20.37|Doctrine and Covenants 20:37, 77]][[D&C 20.77|]]). How do these promises connect us with Him? Consider singing together a song about covenants, such as “Standing on the Promises” (Gospel Library).
+- If your children need help understanding what a covenant is, suggest that they find a definition in “[[GS Covenant|Covenant]]” in the Guide to the Scriptures (Gospel Library). What promises did God and the Israelites make with each other in [[Deuteronomy 30.8|Deuteronomy 30:8–10]][[Deuteronomy 30.9|]][[Deuteronomy 30.10|]]? What promises have we made with God? (see [[D&C 20.37|Doctrine and Covenants 20:37, 77]][[D&C 20.77|]]). How do these promises connect us with Him? Consider singing together a song about covenants, such as “Standing on the Promises” (Gospel Library).
 
 > For more, see this month’s issue of the [Friend](https://churchofjesuschrist.org/study/magazines/friend?lang=eng) magazine.
 

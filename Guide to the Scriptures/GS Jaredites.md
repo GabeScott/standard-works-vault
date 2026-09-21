@@ -1,0 +1,9 @@
+# Jaredites
+
+[Link](https://www.churchofjesuschrist.org/study/scriptures/gs/jaredites?lang=eng)
+
+*See also* [[GS Book of Mormon|Book of Mormon]]; [[GS Jared|Jared]]; [[GS Jared, Brother of|Jared, Brother of]]
+
+People in the Book of Mormon who were descendants of Jared, his brother, and their friends ([[Ether 1.33|Ether 1:33–41]][[Ether 1.34|]][[Ether 1.35|]][[Ether 1.36|]][[Ether 1.37|]][[Ether 1.38|]][[Ether 1.39|]][[Ether 1.40|]][[Ether 1.41|]]). They were led by God from the Tower of Babel to the Americas, a promised land ([[Ether 1.42|Ether 1:42–43]][[Ether 1.43|]]; [[Ether 2.1|2–3]][[Ether 2.2|]][[Ether 2.3|]][[Ether 2.4|]][[Ether 2.5|]][[Ether 2.6|]][[Ether 2.7|]][[Ether 2.8|]][[Ether 2.9|]][[Ether 2.10|]][[Ether 2.11|]][[Ether 2.12|]][[Ether 2.13|]][[Ether 2.14|]][[Ether 2.15|]][[Ether 2.16|]][[Ether 2.17|]][[Ether 2.18|]][[Ether 2.19|]][[Ether 2.20|]][[Ether 2.21|]][[Ether 2.22|]][[Ether 2.23|]][[Ether 2.24|]][[Ether 2.25|]]; [[Ether 6.1|6:1–18]][[Ether 6.2|]][[Ether 6.3|]][[Ether 6.4|]][[Ether 6.5|]][[Ether 6.6|]][[Ether 6.7|]][[Ether 6.8|]][[Ether 6.9|]][[Ether 6.10|]][[Ether 6.11|]][[Ether 6.12|]][[Ether 6.13|]][[Ether 6.14|]][[Ether 6.15|]][[Ether 6.16|]][[Ether 6.17|]][[Ether 6.18|]]). Although their nation had at one time millions of people, they were all destroyed by civil war brought on by wickedness ([[Ether 14.1|Ether 14–15]][[Ether 14.2|]][[Ether 14.3|]][[Ether 14.4|]][[Ether 14.5|]][[Ether 14.6|]][[Ether 14.7|]][[Ether 14.8|]][[Ether 14.9|]][[Ether 14.10|]][[Ether 14.11|]][[Ether 14.12|]][[Ether 14.13|]][[Ether 14.14|]][[Ether 14.15|]][[Ether 14.16|]][[Ether 14.17|]][[Ether 14.18|]][[Ether 14.19|]][[Ether 14.20|]][[Ether 14.21|]][[Ether 14.22|]][[Ether 14.23|]][[Ether 14.24|]][[Ether 14.25|]][[Ether 14.26|]][[Ether 14.27|]][[Ether 14.28|]][[Ether 14.29|]][[Ether 14.30|]][[Ether 14.31|]]).
+
+

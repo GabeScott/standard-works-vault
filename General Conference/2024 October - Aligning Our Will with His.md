@@ -61,11 +61,11 @@ I testify to you that following the Lord’s will in our life will enable us to 
 
 [^1]: See [[Matthew 13.45|Matthew 13:45–46]][[Matthew 13.46|]].
 
-[^2]: See Guide to the Scriptures, “[Kingdom of God or Kingdom of Heaven](https://www.churchofjesuschrist.org/study/scriptures/gs/kingdom-of-god-or-kingdom-of-heaven?lang=eng)” and “[Eternal Life](https://www.churchofjesuschrist.org/study/scriptures/gs/eternal-life?lang=eng),” Gospel Library.
+[^2]: See Guide to the Scriptures, “[[GS Kingdom of God or Kingdom of Heaven|Kingdom of God or Kingdom of Heaven]]” and “[[GS Eternal Life|Eternal Life]],” Gospel Library.
 
 [^3]: See [[D&C 68.4|Doctrine and Covenants 68:4]].
 
-[^4]: See Guide to the Scriptures, “[Endure](https://www.churchofjesuschrist.org/study/scriptures/gs/endure?lang=eng),” Gospel Library.
+[^4]: See Guide to the Scriptures, “[[GS Endure|Endure]],” Gospel Library.
 
 [^5]: [[1 Corinthians 2.16|1 Corinthians 2:16]]; see also [[Philippians 4.1|Philippians 4:1]].
 
@@ -83,11 +83,11 @@ I testify to you that following the Lord’s will in our life will enable us to 
 
 [^12]: [[Philippians 2.21|Philippians 2:21]].
 
-[^13]: See Guide to the Scriptures, “[Eternal Life](https://www.churchofjesuschrist.org/study/scriptures/gs/eternal-life?lang=eng),” Gospel Library.
+[^13]: See Guide to the Scriptures, “[[GS Eternal Life|Eternal Life]],” Gospel Library.
 
 [^14]: See [[Philippians 4.7|Philippians 4:7]]; [[D&C 43.34|Doctrine and Covenants 43:34]].
 
-[^15]: See Guide to the Scriptures, “[Tempt, Temptation](https://www.churchofjesuschrist.org/study/scriptures/gs/tempt-temptation?lang=eng),” Gospel Library.
+[^15]: See Guide to the Scriptures, “[[GS Tempt, Temptation|Tempt, Temptation]],” Gospel Library.
 
 [^16]: Quentin L. Cook, “[‘Fear Not … in Me Your Joy Is Full’ (D&C 101:36)](https://www.churchofjesuschrist.org/study/broadcasts/worldwide-devotional-for-young-adults-an-evening-with-elder-cook/2016/09/fear-not-in-me-your-joy-is-full-d-and-c-101-36?lang=eng)” (worldwide devotional for young adults, Sept. 11, 2016), Gospel Library.
 
@@ -97,12 +97,12 @@ I testify to you that following the Lord’s will in our life will enable us to 
 
 [^19]: See [[2 Nephi 28.21|2 Nephi 28:21–23, 26]][[2 Nephi 28.22|]][[2 Nephi 28.23|]][[2 Nephi 28.26|]].
 
-[^20]: See Guide to the Scriptures, “[Agency](https://www.churchofjesuschrist.org/study/scriptures/gs/agency?lang=eng),” Gospel Library.
+[^20]: See Guide to the Scriptures, “[[GS Agency|Agency]],” Gospel Library.
 
 [^21]: “How Great the Wisdom and the Love,” *Hymns*, no. 195.
 
 [^22]: [[Matthew 4.4|Matthew 4:4]].
 
-[^23]: See Guide to the Scriptures, “[Consecrate, Law of Consecration](https://www.churchofjesuschrist.org/study/scriptures/gs/consecrate-law-of-consecration?lang=eng),” Gospel Library.
+[^23]: See Guide to the Scriptures, “[[GS Consecrate, Law of Consecration|Consecrate, Law of Consecration]],” Gospel Library.
 
 #Agency #Discipleship #EternalLife #Humility #JesusChrist

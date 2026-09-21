@@ -109,7 +109,7 @@ In the name of Jesus Christ, amen.
 
 [^15]: See [[Matthew 25.14|Matthew 25:14–30]][[Matthew 25.15|]][[Matthew 25.16|]][[Matthew 25.17|]][[Matthew 25.18|]][[Matthew 25.19|]][[Matthew 25.20|]][[Matthew 25.21|]][[Matthew 25.22|]][[Matthew 25.23|]][[Matthew 25.24|]][[Matthew 25.25|]][[Matthew 25.26|]][[Matthew 25.27|]][[Matthew 25.28|]][[Matthew 25.29|]][[Matthew 25.30|]].
 
-[^16]: See Guide to the Scriptures, “[Talent](https://www.churchofjesuschrist.org/study/scriptures/gs/talent?lang=eng).” A talent was an ancient unit of weight and monetary value in Greek and Roman times. It is estimated that one talent was worth about 6,000 denarii, and since a denarius was roughly a day’s wage for a laborer, a single talent would be equivalent to about 20 years of wages for an average worker.
+[^16]: See Guide to the Scriptures, “[[GS Talent|Talent]].” A talent was an ancient unit of weight and monetary value in Greek and Roman times. It is estimated that one talent was worth about 6,000 denarii, and since a denarius was roughly a day’s wage for a laborer, a single talent would be equivalent to about 20 years of wages for an average worker.
 
 [^17]: [[Matthew 25.21|Matthew 25:21]]; see also [[Matthew 25.23|verse 23]].
 

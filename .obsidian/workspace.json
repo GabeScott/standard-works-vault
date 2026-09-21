@@ -69,7 +69,10 @@
             "type": "leaf",
             "state": {
               "type": "bookmarks",
-              "state": {},
+              "state": {
+                "showSearch": false,
+                "searchQuery": ""
+              },
               "icon": "lucide-bookmark",
               "title": "Bookmarks"
             }
@@ -151,9 +154,19 @@
               "icon": "lucide-list",
               "title": "Outline of D&C 1.2"
             }
+          },
+          {
+            "id": "f5f0dde7d426d4b0",
+            "type": "leaf",
+            "state": {
+              "type": "broken-links-view",
+              "state": {},
+              "icon": "unlink",
+              "title": "Broken links"
+            }
           }
         ],
-        "currentTab": 2
+        "currentTab": 4
       }
     ],
     "direction": "horizontal",
@@ -161,6 +174,7 @@
   },
   "left-ribbon": {
     "hiddenItems": {
+      "broken-links:View broken links": false,
       "bases:Create new base": false,
       "switcher:Open quick switcher": false,
       "graph:Open graph view": false,
@@ -170,7 +184,7 @@
       "command-palette:Open command palette": false
     }
   },
-  "active": "536dbe9b54b29748",
+  "active": "f5f0dde7d426d4b0",
   "lastOpenFiles": [
     "Book of Mormon/1 Nephi 1.1.md",
     "Book of Mormon/Mormon 1.14.md",

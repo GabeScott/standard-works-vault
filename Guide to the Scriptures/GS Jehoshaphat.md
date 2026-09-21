@@ -1,0 +1,7 @@
+# Jehoshaphat
+
+[Link](https://www.churchofjesuschrist.org/study/scriptures/gs/jehoshaphat?lang=eng)
+
+In the Old Testament, a faithful king of Judah ([[1 Kings 15.24|1 Kgs. 15:24]]; [[1 Kings 22.1|22]][[1 Kings 22.2|]][[1 Kings 22.3|]][[1 Kings 22.4|]][[1 Kings 22.5|]][[1 Kings 22.6|]][[1 Kings 22.7|]][[1 Kings 22.8|]][[1 Kings 22.9|]][[1 Kings 22.10|]][[1 Kings 22.11|]][[1 Kings 22.12|]][[1 Kings 22.13|]][[1 Kings 22.14|]][[1 Kings 22.15|]][[1 Kings 22.16|]][[1 Kings 22.17|]][[1 Kings 22.18|]][[1 Kings 22.19|]][[1 Kings 22.20|]][[1 Kings 22.21|]][[1 Kings 22.22|]][[1 Kings 22.23|]][[1 Kings 22.24|]][[1 Kings 22.25|]][[1 Kings 22.26|]][[1 Kings 22.27|]][[1 Kings 22.28|]][[1 Kings 22.29|]][[1 Kings 22.30|]][[1 Kings 22.31|]][[1 Kings 22.32|]][[1 Kings 22.33|]][[1 Kings 22.34|]][[1 Kings 22.35|]][[1 Kings 22.36|]][[1 Kings 22.37|]][[1 Kings 22.38|]][[1 Kings 22.39|]][[1 Kings 22.40|]][[1 Kings 22.41|]][[1 Kings 22.42|]][[1 Kings 22.43|]][[1 Kings 22.44|]][[1 Kings 22.45|]][[1 Kings 22.46|]][[1 Kings 22.47|]][[1 Kings 22.48|]][[1 Kings 22.49|]][[1 Kings 22.50|]][[1 Kings 22.51|]][[1 Kings 22.52|]][[1 Kings 22.53|]]).
+
+

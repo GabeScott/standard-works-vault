@@ -137,7 +137,7 @@ I joyfully witness that Jesus Christ is our living Savior. Alma’s promise is t
 
 [^18]: See Historical Thesaurus, Oxford English Dictionary, results for the search term “agency,” oed.com.
 
-[^19]: See [[Articles of Faith 1.13|Articles of Faith 1:13]]; Guide to the Scriptures, “[Agency](https://www.churchofjesuschrist.org/study/scriptures/gs/agency?lang=eng),” Gospel Library.
+[^19]: See [[Articles of Faith 1.13|Articles of Faith 1:13]]; Guide to the Scriptures, “[[GS Agency|Agency]],” Gospel Library.
 
 [^20]: [[2 Nephi 2.14|2 Nephi 2:14]]; see also [[2 Nephi 2.13|verse 13]].
 

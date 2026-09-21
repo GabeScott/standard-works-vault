@@ -79,7 +79,7 @@ I invite you to commit yourself more fully to the Savior, His gospel, and His Ch
 
 [^12]: See Russell M. Nelson, “[[2019 October - Spiritual Treasures.md|Spiritual Treasures]],” *Ensign* or *Liahona*, Nov. 2019, 77.
 
-[^13]: See [[Mosiah 18.22|Mosiah 18:22]]; [[Moses 6.68|Moses 6:68]]; Guide to the Scriptures, “[Sons and Daughters of God](https://www.churchofjesuschrist.org/study/scriptures/gs/sons-and-daughters-of-god?lang=eng),” Gospel Library.
+[^13]: See [[Mosiah 18.22|Mosiah 18:22]]; [[Moses 6.68|Moses 6:68]]; Guide to the Scriptures, “[[GS Sons and Daughters of God|Sons and Daughters of God]],” Gospel Library.
 
 [^14]: See [[3 Nephi 27.13|3 Nephi 27:13–21]][[3 Nephi 27.14|]][[3 Nephi 27.15|]][[3 Nephi 27.16|]][[3 Nephi 27.17|]][[3 Nephi 27.18|]][[3 Nephi 27.19|]][[3 Nephi 27.20|]][[3 Nephi 27.21|]].
 
@@ -97,9 +97,9 @@ I invite you to commit yourself more fully to the Savior, His gospel, and His Ch
 
 [^21]: We can access God’s power by exercising faith in Jesus Christ, repenting of our sins, and keeping the covenants we make with Heavenly Father and Jesus Christ in ordinances such as baptism, the endowment, and the sacrament.
 
-[^22]: See Guide to the Scriptures, “[Justification, Justify](https://www.churchofjesuschrist.org/study/scriptures/gs/justification-justify?lang=eng),” Gospel Library.
+[^22]: See Guide to the Scriptures, “[[GS Justification, Justify|Justification, Justify]],” Gospel Library.
 
-[^23]: See Guide to the Scriptures, “[Sanctification](https://www.churchofjesuschrist.org/study/scriptures/gs/sanctification?lang=eng),” Gospel Library.
+[^23]: See Guide to the Scriptures, “[[GS Sanctification|Sanctification]],” Gospel Library.
 
 [^24]: See [[Moroni 10.32|Moroni 10:32–33]][[Moroni 10.33|]].
 

@@ -1,0 +1,7 @@
+# Barnabas
+
+[Link](https://www.churchofjesuschrist.org/study/scriptures/gs/barnabas?lang=eng)
+
+Name given to Joseph (also called Joses), a Levite of Cyprus, who sold his land and gave the proceeds to the Apostles ([[Acts 4.36|Acts 4:36–37]][[Acts 4.37|]]). Though not one of the original Twelve Apostles, he did become an Apostle ([[Acts 14.4|Acts 14:4, 14]][[Acts 14.14|]]) and served on several missionary journeys ([[Acts 11.22|Acts 11:22–30]][[Acts 11.23|]][[Acts 11.24|]][[Acts 11.25|]][[Acts 11.26|]][[Acts 11.27|]][[Acts 11.28|]][[Acts 11.29|]][[Acts 11.30|]]; [[Acts 12.25|12:25]]; [[Acts 13.1|13–15]][[Acts 13.2|]][[Acts 13.3|]][[Acts 13.4|]][[Acts 13.5|]][[Acts 13.6|]][[Acts 13.7|]][[Acts 13.8|]][[Acts 13.9|]][[Acts 13.10|]][[Acts 13.11|]][[Acts 13.12|]][[Acts 13.13|]][[Acts 13.14|]][[Acts 13.15|]][[Acts 13.16|]][[Acts 13.17|]][[Acts 13.18|]][[Acts 13.19|]][[Acts 13.20|]][[Acts 13.21|]][[Acts 13.22|]][[Acts 13.23|]][[Acts 13.24|]][[Acts 13.25|]][[Acts 13.26|]][[Acts 13.27|]][[Acts 13.28|]][[Acts 13.29|]][[Acts 13.30|]][[Acts 13.31|]][[Acts 13.32|]][[Acts 13.33|]][[Acts 13.34|]][[Acts 13.35|]][[Acts 13.36|]][[Acts 13.37|]][[Acts 13.38|]][[Acts 13.39|]][[Acts 13.40|]][[Acts 13.41|]][[Acts 13.42|]][[Acts 13.43|]][[Acts 13.44|]][[Acts 13.45|]][[Acts 13.46|]][[Acts 13.47|]][[Acts 13.48|]][[Acts 13.49|]][[Acts 13.50|]][[Acts 13.51|]][[Acts 13.52|]]; [[1 Corinthians 9.6|1 Cor. 9:6]]; [[Galatians 2.1|Gal. 2:1, 9]][[Galatians 2.9|]]; [[Colossians 4.10|Col. 4:10]]).
+
+

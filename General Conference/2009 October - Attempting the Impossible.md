@@ -43,7 +43,7 @@ The author of the perfect plan that contains these glorious promises is our Fath
 
 [^2]: [[D&C 14.7|D&C 14:7]].
 
-[^3]: See Guide to the Scriptures, “[Eternal Life](https://www.churchofjesuschrist.org/study/scriptures/gs/eternal-life?lang=eng),” [scriptures.lds.org](https://www.churchofjesuschrist.org/study/scriptures?lang=eng).
+[^3]: See Guide to the Scriptures, “[[GS Eternal Life|Eternal Life]],” [scriptures.lds.org](https://www.churchofjesuschrist.org/study/scriptures?lang=eng).
 
 [^4]: [[D&C 4.2|D&C 4:2]].
 

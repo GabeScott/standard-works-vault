@@ -65,7 +65,7 @@ I conclude where I began, with the words of an innocent child: “You are never 
 
 [^1]: [[1 Nephi 8.24|1 Nephi 8:24]].
 
-[^2]: See Topical Guide, “[[Temple, House of the Lord|Temple, House of the Lord]],” 519; “[Temple, House of the Lord](https://www.churchofjesuschrist.org/study/scriptures/gs/temple-house-of-the-lord?lang=eng),” in Guide to the Scriptures, at [scriptures.lds.org](https://www.churchofjesuschrist.org/study/scriptures?lang=eng).
+[^2]: See Topical Guide, “[[Temple, House of the Lord|Temple, House of the Lord]],” 519; “[[GS Temple, House of the Lord|Temple, House of the Lord]],” in Guide to the Scriptures, at [scriptures.lds.org](https://www.churchofjesuschrist.org/study/scriptures?lang=eng).
 
 [^3]: [[Mosiah 2.6|Mosiah 2:6]].
 

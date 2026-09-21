@@ -38,7 +38,7 @@ It is in the home that one learns that faith is intimately related to the Atonem
 
 Without the effects of the Atonement in our lives, it would be impossible to develop the type of faith necessary for repentance, and so we would remain outside the marvelous plan of mercy since “only unto him that has faith unto repentance is brought about the great and eternal plan of redemption” ([[Alma 34.16|Alma 34:16]]).
 
-Repentance—that change that takes place in the heart, that is born of love for the Lord, that leads us to move away from sin and to submit to His will—can “become effective and accepted by God” “only through the atonement of Jesus Christ” (Guide to the Scriptures, “[Repent, Repentance](https://www.churchofjesuschrist.org/study/scriptures/gs/repent-repentance?lang=eng&id=p1#p1),” 206).
+Repentance—that change that takes place in the heart, that is born of love for the Lord, that leads us to move away from sin and to submit to His will—can “become effective and accepted by God” “only through the atonement of Jesus Christ” (Guide to the Scriptures, “[[GS Repent, Repentance|Repent, Repentance]],” 206).
 
 Once God has accepted repentance, the process that we are describing leads us to participate in ordinances and the covenants associated with them, such as baptism and confirmation. The renewal of these covenants is brought about when we regularly and worthily partake of the sacrament, and then the remission of our sins is realized.
 
